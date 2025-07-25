@@ -1,0 +1,2653 @@
+Starts at
+
+- 6:24:00) **JSTLK**: Dan's number one fan is in my Gen Chat right now. I need him to answer if he saw that Nicholas Call. That was, again, I just have to reiterate.
+- 6:24:14) **Kuihman**: Did you see that Nicholas Call? And do you need access to any emergency resources?
+- 6:24:20) **JSTLK**: No, I think we need a wellness check, okay? Oh, I just wanna make such a fucked up joke, but it's, Can we get a wellness call for Dan? Guys, we listen, he already takes sleeping meds when he goes on streams late at night and I'm worried that we might see a triple or quadruple down here that none of us want to see. All right? That wasn't the joke, by the way, but that'll be the end of that.
+- 6:24:46) **C**: Think things at you. But like the knife's kind of up to my fucking throat and I see why it's there. But I'm like, Hey, look, like, this is the joke.
+- 6:24:59) **JSTLK**: Sorry. That was funny. That was really good, actually, from Perry.
+- 6:25:05) **C**: See why it's there.
+- 6:25:06) **JSTLK**: But I'm like, I'm trying to throw weapons on Conrad.
+- 6:25:08) **C**: Look, like, this is the situation.
+- 6:25:13) **Parry**: It's not just you, listen, you're not the only one who engaged poorly here, right? Marcus having them in their servers, bad. People being, like, mutual friends with them is bad. I'm just saying that, like, you doing this is also a bad thing. I understand your attention might have been proper, but, hell, Marx's attention just could have been proper. That doesn't make what he did any less of, like, him trying to have a personal, strange relationship with the person.
+- 6:25:30) **C**: Negligent. I'm. Okay, that is. I mean, that's the most, like.
+- 6:25:39) **E**: I.
+- 6:25:39) **C**: I I'm already uncomfortable that I feel like I have to step in because it's like, it's. It's just. Everybody's talking about this minor person over and over and bringing her up and it's just like, like there's a lot of fucking attention on this person. I'm gonna at least tell them like, hey, if you get some fucking sleazy content creator trying to manipulate you or something, like you don't feel like you have to keep it quiet or to not rock the boat or whatever. Like I was imagining Peraparapon in the situation she is now applying to hater, which is, like having some dude creep up on you and not wanting to say anything. So it's like, yeah, I realized optically, like, it's.
+- 6:26:20) **JSTLK**: Okay. What happened? I need. I might need the parapon story. I might need, like, the actual. Were they to explain the M leaks?
+- 6:26:33) **Kuihman**: No, they were not the M leaks. They were not the M lakes. Parry and Starbesh have sent DMs. So here's what happened, okay?
+- 6:26:42) **JSTLK**: Okay, well, hold on. I just asked Morale if it really happened tonight, and he said, I said hypothetically, could that have possibly happened? He's like, hypothetically, she probably would have done it and really enjoyed doing it.
+- 6:26:54) **E**: So.
+- 6:26:57) **JSTLK**: I'm just saying, I'm just quoting you, Morale. Anyway, Queenie, you laid out the story if you want.
+- 6:27:01) **Kuihman**: Yeah, so. what happened was basically Parapon showed up in YouTube chats, freshly 18. Okay, perfect from RAO using some like Lolly Avatar and with a very, very high-pitched woman voice. If you're sort of seeing the picture I'm building here, so obviously this is completely irresistible to RAO. Anyone like that, that's like absolute, like. honey pot type situation. So MRAO immediately goes for this and MRAO adds this girl on Snapchat and on Snapchat they engage in some, as I understand it, consensual race play and degradation and allegedly cuck queen fantasization where this power pon girl writes the words n-word slave on her tits and sends Mara a photo. Okay, so this.
+- 6:28:06) **JSTLK**: Was initially a dog pfp when I initially messaged them.
+- 6:28:11) **G**: Any.
+- 6:28:11) **JSTLK**: Any recent Behavior. Okay, it was initially a dog profile picture. All right, 18. I don't even know about that. I didn't ask them the month that they were born in. like lying maliciously.
+- 6:28:25) **Kuihman**: Oh, this is. I'm being accurate.
+- 6:28:27) **JSTLK**: So you're not being accurate? I'm being accurate.
+- 6:28:30) **Kuihman**: I'm being accurate.
+- 6:28:31) **JSTLK**: So Ralph's behavior does not seem exclusive to certain individuals. It seems that Ralph gets this girl chimping out.
+- 6:28:37) **JSTLK**: Jesus. Well, hold on. He's maliciously spinning a story to, like, defame somebody. It's very normal behavior for his people. They control.
+- 6:28:46) **Kuihman**: I literally can't not do this. I literally can't not do this. So yeah, Rachel gets this girl to write N-word slave on her tits and send him a photo.
+- 6:28:55) **JSTLK**: I don't think it was N-word slave. I don't know about that.
+- 6:28:58) **Kuihman**: Something like that. It's something to that effect.
+- 6:29:00) **G**: Along the lines.
+- 6:29:01) **E**: Yeah.
+- 6:29:01) **Kuihman**: That's the phrase that I've heard go around. Um, and then she eventually decides either she doesn't want to have people online, men online, trying to hit on her and pry into her sex life. so she starts saying she's a lesbian or she genuinely thinks she's a lesbian, this sort of up in the air. But she had previously consensually engaged with Marel. So everyone's sort of been told she's a lesbian. And so that that was sort of like the basis, I guess, for people believing that Marel had done something non-consensually was that, well, power ponies are lesbians. Why would she consent? And then also this was the basis that was used to stop this call coming out because apparently be outing power ponies sexuality to reveal that she had had sexual interactions with morale behind the scenes outing her straight.
+- 6:29:52) **JSTLK**: Yeah, if I go to the I downloaded the DMS just in case she was like lying, but I don't know if that's the case. I'm obviously not going to add anything, but if I control F the n-word hard R.
+- 6:30:04) **Kuihman**: This is not on Snapchat.
+- 6:30:06) **JSTLK**: Yeah, yeah. There's a lot. There's a lot of n-words JSTAG. That's, that's...
+- 6:30:18) **JSTLK**: Hold on. Whoop, not that one. Thank you. That's, it's really, we just have to, it's fucked up, dude.
+- 6:30:28) **Kuihman**: All right.
+- 6:30:31) **JSTLK**: Send me the logs.
+- 6:30:34) **Kuihman**: Also, there's a key part of this as well, is that Parry was being very protective of Parapon. and would not release his call and out of her sexuality. And Parry has been very close to Parapony person. So close, in fact, that in Minecraft they built a double bed together. And in their Minecraft server, they would sleep in a double bed together in Minecraft.
+- 6:30:59) **JSTLK**: I can see if there's something I'm fine with leaking. I would do it for money, but I don't know if I'm doing it for free.
+- 6:31:04) **Kuihman**: I can see, though, with a lesbian. an internet lesbian. She placed the bed there.
+- 6:31:13) **JSTLK**: Sexuality. Yeah, I wouldn't want to do that. Oh, what? Dude, these people are odd.
+- 6:31:28) **E**: Yeah.
+- 6:31:29) **JSTLK**: Okay. I'm looking at these again. I don't know if I'm gonna out any of these for free.
+- 6:31:32) **JSTLK**: Wait, wait, wait, wait. Okay, okay. Jesus Christ. How? Okay. How pissed is Perry at Morale?
+- 6:31:44) **Kuihman**: Well, yeah, that's what I was saying. I was saying Perry feels like you got cocked, I think. I think he feels like he was sort of cocked by a cartoon cat.
+- 6:31:51) **JSTLK**: Well, I would not expect Perry to say that. I would expect Perry to probably just be like, kind of take shots at Morale once in a while.
+- 6:32:01) **Kuihman**: Yeah, lashing out.
+- 6:32:02) **JSTLK**: Yeah, yeah. But I don't know if that's happened.
+- 6:32:07) **JSTLK**: He's done that a little bit.
+- 6:32:11) **JSTLK**: Like there.
+- 6:32:11) **JSTLK**: I forget what exactly. I was doing Major Wendy. He, like, freaked out when I was covering Major Wendy. I don't know if that counts because Major Wendy was, like. Like a fan of his. He'd show up and chat a lot. Maybe he was just mad that I was fucking with him.
+- 6:32:27) **H**: You don't feel better? Nothing. You stole this mentally ill guy's, like, girlfriend. You don't feel bad, man.
+- 6:32:34) **JSTLK**: Not really.
+- 6:32:34) **JSTLK**: No.
+- 6:32:35) **Kuihman**: No, no. Before she met Perry, I feel bad. Raul sexed her before she met Perry.
+- 6:32:41) **E**: Yeah.
+- 6:32:42) **H**: Even worse. Holy. They think Perry got your sloppy seconds. Oh, God. I seem like I tapped into it. Thank God I wasn't tapped in.
+- 6:32:52) **JSTLK**: He's not even into race play, it seems. I don't know why he wants her.
+- 6:32:55) **Kuihman**: Well, he's a Muslim. I should send this.
+- 6:32:58) **G**: Ooh.
+- 6:33:00) **JSTLK**: You mean an Arab?
+- 6:33:02) **Kuihman**: No, I mean a Muslim.
+- 6:33:05) **JSTLK**: Wait, what do you mean seen this? Certainly doesn't speak like a Muslim.
+- 6:33:09) **Kuihman**: What are you confused about?
+- 6:33:12) **JSTLK**: His ethnicity?
+- 6:33:14) **Kuihman**: He's a Muslim.
+- 6:33:17) **JSTLK**: I feel like you mean an Arab. I didn't think Muslim. I thought Muslim was an ethno-religious group.
+- 6:33:22) **Kuihman**: They look at and tell you.
+- 6:33:24) **JSTLK**: Jason I think I found the tamest message I sign. I'll send you those. Actually, do you like, uh, have you got donos? It's not nice, No This is like.
+- 6:33:35) **JSTLK**: I' like fiveive subs, five subs to leak this. I'll see. I' not even choice. don' anyone else anyone else sto't even. It's actually fucked. Send it to me.
+- 6:33:56) **H**: I'm the only black person in this call. Send it to me.
+- 6:33:59) **JSTLK**: He just deleted it from my DMs. He just deleted it from my DMs. It's, unfortunately for him, I screenshot it before he deleted it from the DMs. But, don't show that to people.
+- 6:34:10) **H**: Don't show that to people.
+- 6:34:12) **JSTLK**: Don't come, man.
+- 6:34:13) **Kuihman**: I do it for money. What did he say?
+- 6:34:15) **JSTLK**: Can you give me a gist of what he said?
+- 6:34:17) **G**: It's literally two minutes.
+- 6:34:19) **JSTLK**: I can't very easily. It's like not even a lot of stuff. yeah, it's just awesome sauce. Thank you for the five gifted.
+- 6:34:24) **E**: Yeah.
+- 6:34:24) **Kuihman**: Is it like n-word hole or something? Close.
+- 6:34:28) **JSTLK**: Close.
+- 6:34:30) **G**: What is this girl doing?
+- 6:34:32) **JSTLK**: You need to stop. R you need to stop. R you need to stop. You absolutely need to stop now.
+- 6:34:39) **H**: Am I seeing it or not, bro? What are we doing here?
+- 6:34:43) **JSTLK**: You probably got the justice. Fine.
+- 6:34:45) **JSTLK**: Hold on.
+- 6:34:47) **JSTLK**: I don't think I can send it to you, Kenny. I feel like there's. There's an aspect of your character that is preventing me from sending.
+- 6:34:53) **JSTLK**: Yeah.
+- 6:34:54) **H**: Look, come on. Come on, bro. We're best friends. We have BFFs. You can share stuff with me.
+- 6:35:05) **JSTLK**: Okay, we did get the. We did get the subs from Awesome Sauce, so I feel like scammer ass.
+- 6:35:11) **H**: I feel like I just think he's a scammer.
+- 6:35:12) **JSTLK**: It's very underwhelming. I feel like you can I put.
+- 6:35:15) **JSTLK**: It well, I played it up. I wanted the donuts, bro. I feel like it's very tame yeah.
+- 6:35:23) **JSTLK**: In comparison this is my side by the way. I'm not leaking her side. I would not do that I feel like I'm fine to leak my side.
+- 6:35:34) **H**: Jesus Christ, dude My bad fuck.
+- 6:35:42) **E**: Can.
+- 6:35:42) **JSTLK**: A y not catch a Vibe? God damn.
+- 6:35:45) **Kuihman**: I can a y not catch a Vibe?
+- 6:35:48) **H**: There's no way.
+- 6:35:50) **Kuihman**: Young trying to catch a Vibe out here.
+- 6:35:53) **H**: What the.
+- 6:35:54) **JSTLK**: The guys are. You guys are like, a good number. Jesus.
+- 6:35:59) **E**: Oh.
+- 6:36:01) **Kuihman**: My God.
+- 6:36:02) **JSTLK**: I disavow, by the way. I would not do this today. This is a lapse in my judgment.
+- 6:36:06) **H**: Definitely not catch.
+- 6:36:09) **E**: Up.
+- 6:36:11) **JSTLK**: This guy is.
+- 6:36:12) **C**: What the.
+- 6:36:15) **JSTLK**: You are disgusting. You are disgusting. Sorry. Disgusting.
+- 6:36:24) **C**: And it worked.
+- 6:36:25) **H**: That's the worst part. It worked.
+- 6:36:26) **G**: How?
+- 6:36:27) **JSTLK**: I. Yeah, that's the thing, though. It doesn't even make.
+- 6:36:32) **Kuihman**: All I'm saying is you wouldn't be getting quite so much right now. Jay still, Kev. that's all I'm saying. That's all.
+- 6:36:40) **JSTLK**: The Jerry Race play, dude, it's gonna come out. It's gonna come out, and you're gonna be.
+- 6:36:49) **JSTLK**: It's not. It's not.
+- 6:36:50) **JSTLK**: He's gonna go on Twitter. I would never call a girl the n-word that's what Destiny's gonna treat.
+- 6:36:59) **H**: Okay.
+- 6:37:00) **JSTLK**: -Huh just for probably something like that. I don't think he's above it, actually. If he said that, it would be a lie, I think.
+- 6:37:09) **JSTLK**: I... No, I didn't do this. I would never do this. It's crazy shit.
+- 6:37:15) **JSTLK**: Never, never ever.
+- 6:37:18) **Kuihman**: You wouldn't do this.
+- 6:37:19) **JSTLK**: Love of your life, you've been married 10 years, and they ask you to do it once. You're not doing it.
+- 6:37:28) **JSTLK**: Uh, I was way too aggressive with what I said there. Obviously, there are cases where it could happen, but not in, okay.
+- 6:37:34) **JSTLK**: Yeah, you.
+- 6:37:39) **JSTLK**: Was this your life for 10 years here, bro? Was this the love of your life for 10 years?
+- 6:37:44) **JSTLK**: Augie RFC.
+- 6:37:45) **JSTLK**: Wait. Hold on. Actually, no, not Augie. The only question that actually matters is who initiated this?
+- 6:37:54) **JSTLK**: I don't know. I wanted to. The issue, because I. I feel like part of the contention was who initiated it initially, and I tried to see if I could.
+- 6:38:01) **JSTLK**: Figure it out.
+- 6:38:03) **JSTLK**: I want to say it was her.
+- 6:38:04) **JSTLK**: I think it's her because you think it's her. Because if you. If you thought it was you, you just say me. Because then you don't actually denigrate her at all.
+- 6:38:12) **E**: Well, I.
+- 6:38:12) **JSTLK**: Again, I don't want to out any. Any, like, serious, to be clear.
+- 6:38:17) **Kuihman**: I know.
+- 6:38:17) **JSTLK**: I don't remember.
+- 6:38:18) **JSTLK**: I. I don't.
+- 6:38:19) **JSTLK**: I don't remember exactly.
+- 6:38:21) **JSTLK**: I couldn't say. I wish they were in the log so I could see, but they're not, unfortunately, so I can't say definitively. I don't remember.
+- 6:38:34) **Kuihman**: What?
+- 6:38:35) **JSTLK**: How? Oh, God. Oh, I feel. How upset is Perry gonna be when he tries to pull this move? And she's like, oh, that's disgusting. Ah, logs off.
+- 6:38:46) **JSTLK**: I don't think Perry's gonna do that. I think Perry is probably, like, asexual. I think.
+- 6:38:52) **H**: He'S, like.
+- 6:38:54) **JSTLK**: I think he's like religious maybe also.
+- 6:39:01) **JSTLK**: I don't know, I've heard Perry talk about cutting women's heads off and shooting three pointers with him. I feel like possibly he might say something like this. I think he described like brutally raping Denims, no. Hypothetically. Hypothetically.
+- 6:39:19) **JSTLK**: I don't remember, to be fair.
+- 6:39:21) **JSTLK**: It was a hypothetical. It was a hypothetical to illustrate a point. It was not him doing it. It was not him getting off on it. He was saying, hypothetically, this would be how this would go. So, you know, you might have a point. It's possible. Okay, anyway, you guys down with just continuing this Starbase call?
+- 6:39:45) **E**: Yeah.
+- 6:39:46) **JSTLK**: Okay. All right. I just, wait, is there anything else? Do we have anything else in this, I just wanna make sure we get past the Parapon thing, 'cause, is there anything else? Is there any, was there any like Fallout? I don't even know. Oh, right, no, I was told that you basically logged on that day where you're like, thank God, thank God this happened, 'cause now nobody cares about my thing. Right?
+- 6:40:11) **C**: Oh, yeah.
+- 6:40:12) **JSTLK**: I mean, I thought it was really fun. The same day that it was outed, like, your shit got outed, and then, there's like two other things that happened the same exact day, so nobody was talking about those. I thought it was really funny. I forget exactly what people cared more about, though. It was your thing and then someone else's.
+- 6:40:31) **JSTLK**: Okay.
+- 6:40:32) **JSTLK**: Oh, it was like, yeah, it was like Starbase being a pedophile or something, or Starbase being Paragon, and then you, edating Cherry. And then, like, one other thing, and I was like, dude, nobody cares about this. This is epic.
+- 6:40:44) **H**: Is Starbucks Rich?
+- 6:40:46) **JSTLK**: He has wealth.
+- 6:40:47) **Kuihman**: It's so funny that Jason was eating.
+- 6:40:51) **JSTLK**: And status. Yeah, it's so funny.
+- 6:40:55) **JSTLK**: It's even funnier that we were doing so with queeman's explicit blessing.
+- 6:41:04) **Kuihman**: Go ahead and eat that. That's what I said. I said, go ahead and eat that.
+- 6:41:07) **JSTLK**: It seems like a really good idea. I can't see any downsides was what he said.
+- 6:41:11) **E**: God, I kind of- I mean, I.
+- 6:41:13) **C**: Don'T know what I'm supposed to do when people start knocking on the door, calling me a pedophile. I'm like, why? Come in my fucking house.
+- 6:41:21) **Kuihman**: Come in my fucking house.
+- 6:41:22) **Parry**: To do it discreetly though, I tell her to discreetly tell you, why not tell her to be public about- if you want to give her the advice of if she should be public about it, that's fine. Now, if you think the only way to get her to agree with you is if you have a friendly relationship with her, you realize that that's like, I'm not saying you're grooming, but you are trying to create like a personalized relationship with her where she can trust you and you can get her to do stuff, right?
+- 6:41:42) **C**: Well, I want this minor to have one trusted contact that is like, you know, like, I'm being discreet with Parapon too.
+- 6:41:54) **G**: But why?
+- 6:41:56) **C**: I know the phrasing is it's really fucked.
+- 6:41:58) **Parry**: I don't even talk about the optics, right?
+- 6:42:01) **JSTLK**: But why?
+- 6:42:02) **Parry**: Do you think, I'm not saying I'm not trying to say, like, how dare you, but like, why do you think that you're in a position where you can do that?
+- 6:42:09) **G**: Right?
+- 6:42:09) **Parry**: Why do you think that you're in a position with this random minor, you don't know them in real life, where you can become this trusted person with them? You could have told them to talk to their parents about it. You could have told them to like.
+- 6:42:20) **C**: Be public about any private interactions you're having with people, but you're trying to get this person.
+- 6:42:25) **E**: I'm the one person, yeah?
+- 6:42:26) **C**: I'm the one that knows. I, like, if it wasn't for Marcel's involvement in this, I wouldn't have said.
+- 6:42:32) **Parry**: Anything, but it's just like, well, I understand that MRA is like mutual friends with them, but it's the internet. There's plenty of possible Predators, right? So I don't take that MRA existing and thinking that we're going to change anything.
+- 6:42:43) **C**: Well, I mean, because he did it.
+- 6:42:46) **JSTLK**: Shamoo, is that Tactome video out yet? I swear to God, every time I.
+- 6:42:51) **Kuihman**: See you, it's lazy. The video is in review. The video is in review. This video three weeks ago. Yeah, fucking goofy ah, lazy ah, goofy ah lazy ah video.
+- 6:43:04) **JSTLK**: This fucking video. God damn it.
+- 6:43:07) **E**: To one person, me.
+- 6:43:08) **JSTLK**: Right, but people on the internet do.
+- 6:43:10) **C**: This all the time, right?
+- 6:43:11) **Parry**: The risk was already there. Just as you know, the MRA has done this. I mean, I mean, yeah, with the, I forgot her name, 17 year old. Just being a MRA is in the space. Doesn't mean that, like, you know, that doesn't really change anything because the risk.
+- 6:43:24) **Kuihman**: Already existed for them.
+- 6:43:27) **C**: But, I mean, yeah. So by telling them to, like, this just seems like a pretty basic, like, if you're gonna have kids around at all, like, you should at least tell them, like, hey, like, I don't.
+- 6:43:45) **Parry**: Tell them what?
+- 6:43:46) **C**: It just feels. I didn't just, like, you know, be careful. Like, there's. I don't know.
+- 6:43:51) **Parry**: You could have told them to be careful. You could have told them if anybody tries the mugging, says, We're a wizard, I think they should go public about it. You should tell your parents. You could tell them to talk to her parents.
+- 6:44:01) **C**: You could have sent her, I mean, you could have sent her like a fucking, I don't know, FBI. Because I'm thinking of the car and.
+- 6:44:08) **JSTLK**: She'S under the same pressure.
+- 6:44:10) **C**: At least she feels she's under the.
+- 6:44:12) **JSTLK**: Same pressure that, you know, she's built up in the community. And he doesn't want to. Zoe and Jacob got to go for a day, okay? Zoe and Jacob got to go for a day. They both gotta go for a day.
+- 6:44:21) **H**: Garbage mod.
+- 6:44:22) **JSTLK**: They gotta go for a day, okay? I'm sorry. I don't know what they're doing. They gotta go for a day. This is fucking weird. Some weird shit going on. They gotta go out.
+- 6:44:35) **C**: Wanna blow everything up to just because she's feeling uncomfortable, but it's like, you know, for a minor, they're not really fucking- Like they're fucking stupid, they're retarded. All right, but so- We don't even know if this miner has like doxable information involved in them. Like they're like miners are fucking retarded.
+- 6:44:55) **Parry**: Right, but this doesn't point at the idea that you have to be the one that they should only one that they should confide in, right? That doesn't mean that you're like someone who's responsible enough or in a societal or any point of view, somebody that should be entrusted with your ability to.
+- 6:45:09) **E**: Take care of this person.
+- 6:45:10) **C**: Well, because I feel, I guess you could say I feel burned.
+- 6:45:14) **JSTLK**: I especially, dude, you can't be the guy who's taking care of these minors and the guy who posts about loving CP, okay? You can't be, those can't be the same guy. That's just not allowed.
+- 6:45:26) **C**: The knowledge that Mao is kind of like a really pushy, non-consent race play, like saying, okay.
+- 6:45:36) **JSTLK**: Non-consent race play. From what I've heard here, there's a lot of n-words in those DMS. Okay. Seems like if there was not consent there, it would have been difficult.
+- 6:45:47) **JSTLK**: How fast was this guy typing? I literally don't know how I can prove it's non-consensual or like it was consensual. I mean, so, I mean, she's not.
+- 6:45:57) **Kuihman**: Even publicly alleging it was non-consensual so any retaliation behind the scenes, just like, okay, either say it publicly or.
+- 6:46:04) **E**: And show some logs or.
+- 6:46:05) **C**: He wants like crazy shit that race play like saying he wants like that's.
+- 6:46:13) **JSTLK**: A he he says like hard r fucking a lot, right? That was in the other call.
+- 6:46:18) **JSTLK**: I don't know what that's on that's his thing. I never said n-word fuck. Okay. It was more of a not not like that not in that way. Okay. That's on him.
+- 6:46:27) **Kuihman**: That's all him.
+- 6:46:28) **JSTLK**: That's in his mind. Not not something I would do.
+- 6:46:30) **C**: Okay.
+- 6:46:31) **JSTLK**: It was not like that. It was not like crazy shit.
+- 6:46:34) **C**: I didn't say that.
+- 6:46:35) **Parry**: That can be an issue, but that doesn't mean that's the response that is for you to be the one that's caring for this person in a private, discrete way. Because you- who else? Well, Marou is a group freak. Well, who else? Her parents or fucking the police or you try and get her back through every server. That doesn't mean that you- that doesn't give you the right to engage with a minor in a private way. And even if you didn't have any untoward ideas, I don't think you did, right? That is still what you're doing. You're engaging with a minor in a private way in a way that you.
+- 6:47:04) **C**: Want them to confide in only you.
+- 6:46:59) **Parry**: Right, where nobody else can arbitrate, right? It's not like you're a police officer and you have a commanding authority and see what you're doing.
+- 6:47:05) **C**: Everybody else involved, right? Like, why is a person being brought up, like, you know, in front of hundreds of viewers? Like, it's just the fact that I even know this person is kind of a red flag. Like, you know, I engage with- But.
+- 6:47:19) **Parry**: Again, I understand that it's an issue, but you're not responding to me when I ask you, why does that give you the right, I guess, to, like, engage with this person in this way? You're not like a police officer, you don't have somebody looking over to make.
+- 6:47:31) **C**: Sure you're not being up to no good. Why do you need to be a police officer to say like, hey, be careful?
+- 6:47:37) **Parry**: If you want it to be discreet.
+- 6:47:39) **C**: Don'T be afraid to say something.
+- 6:47:40) **Parry**: You can say, yeah, but you don't feel like you have to keep quiet. You also said we can handle it discreetly. Well, yeah, we, you and her, can handle discreetly, just you two.
+- 6:47:50) **JSTLK**: That's what that comes off as, is you're trying to create a singular intimate situation. I love how Rao messaging somebody, wait, hold on. the Parapon person was of age, right? You said 18. When did they join the Minecraft server?
+- 6:48:06) **JSTLK**: Recently ish, like, around when it was made, I think.
+- 6:48:11) **JSTLK**: Well, I'm saying that, like, were they 18 when they joined the Minecraft server?
+- 6:48:18) **Kuihman**: Or Parapon?
+- 6:48:19) **E**: Yeah.
+- 6:48:21) **Kuihman**: Yeah, she was, she was 18 when she was sexting Mrau and she didn't join the Minecraft server with Parry until after that.
+- 6:48:29) **JSTLK**: Oh, I see. Okay.
+- 6:48:30) **Parry**: If you're telling her, hey, feel free.
+- 6:48:32) **JSTLK**: To, to- I love that the fact that you were messaging this woman apparently gives this guy reason to message minors. Yeah. Problematic.
+- 6:48:40) **Kuihman**: You're messaging a minor. Well, I guess I've got to start contacting kids to keep them away from you then.
+- 6:48:46) **C**: Hey, man.
+- 6:48:47) **JSTLK**: He for some reason thought I was going to DM, DM the 16 year old, and he wanted me to DM them as well. There's, like, DMS or messages where he's saying that.
+- 6:48:59) **JSTLK**: Wait, what?
+- 6:49:01) **JSTLK**: Yeah, he. He wanted me to DM them.
+- 6:49:04) **JSTLK**: Can you.
+- 6:49:05) **E**: What?
+- 6:49:07) **JSTLK**: Yeah, he's very rich. I don't understand it. I don't. I don't know.
+- 6:49:14) **JSTLK**: I was just hoping MRA would message her. That's why I told Perry.
+- 6:49:21) **E**: Huh?
+- 6:49:23) **JSTLK**: Yeah, he went on this really long, like, chain of messages in dickers gen shop.
+- 6:49:28) **Kuihman**: This just seems like. This seems like he's basically saying, no, no, you don't understand. I. I wasn't grooming a 16 year old. I was actually trying to use a 16 year old as a honeypot to take out my anger on Rau. That just seems like what he's trying to say there, but that just makes me think even more that he's. doing the first one.
+- 6:49:47) **JSTLK**: This is. Huh. This does make the Paragon coverage way better. Okay, there's a way more satisfying ending than him just disappearing. Way better.
+- 6:49:59) **C**: Yeah, because I don't want to be.
+- 6:50:02) **JSTLK**: Like.
+- 6:50:04) **C**: If I. I. Like, I only trust. I trust you. I trust bataka. I trust Paragon. Like, who else am I supposed to...
+- 6:50:16) **JSTLK**: Brad, now that I got you here, what did you mean when you told Babka that Tarzan was wrong? Why do you laugh like that when I ask you an absurd question?
+- 6:50:31) **JSTLK**: Well... Like you know the movie Tarzan.
+- 6:50:37) **JSTLK**: I'm aware of the concept of Tarzan. I don't know which monkey people were.
+- 6:50:42) **JSTLK**: Able to form relationships, like coherent and, you know, kind relationships with the white folk.
+- 6:50:48) **JSTLK**: Sure.
+- 6:50:50) **JSTLK**: So when I say that Tarzan's wrong, I I'm what I'm. It's like a. It's sort of like a play on words. Like, you know, our kind isn't, you know, meant to be together, like, near each other. you know?
+- 6:51:05) **JSTLK**: Yeah, but, yeah, I need you to elaborate further.
+- 6:51:09) **JSTLK**: It's like a postmodern meta satirical take on Tarzan.
+- 6:51:15) **E**: Yeah.
+- 6:51:16) **JSTLK**: Starcross lovers. Okay. Okay.
+- 6:51:23) **C**: Like, if I think something's, like, really strange, I I should have told you.
+- 6:51:28) **Kuihman**: No, you're right.
+- 6:51:29) **Parry**: I should have told you not to.
+- 6:51:30) **JSTLK**: Wait. okay, now the Parapon thing that didn't just leak. I did DM or something, did it?
+- 6:51:37) **JSTLK**: Yeah, like recently. I did DM babka saying I was sorry.
+- 6:51:42) **Kuihman**: I felt.
+- 6:51:42) **JSTLK**: Because the babka stuff came up before that. Was the Parapon leaks in response to the babka stuff?
+- 6:51:47) **JSTLK**: No, the Parapon stuff was significantly, like, earlier than the babka stuff, I think.
+- 6:51:53) **JSTLK**: I could have sworn babka was in here a couple nights ago talking about it, but maybe I'm. Maybe I'm crazy.
+- 6:51:59) **JSTLK**: If she was on it.
+- 6:51:59) **Parry**: Engage in this way. That's what I should have done. I didn't say that. I just said that, you know, even if you do this, you can't really stop. I should have done it. I agree with that.
+- 6:52:08) **JSTLK**: I was, I was a- Wait, wait, wait. What's the order? Who did you message first? Mmm.
+- 6:52:18) **JSTLK**: Hera. Babka wasn't around when I messaged her.
+- 6:52:22) **JSTLK**: Okay. so it was like, okay, this worked once. I'm going to try it again.
+- 6:52:28) **JSTLK**: No, I was. I was. Okay. It's very hard to. To explain this in a way that will make you believe me. Okay? So I'm gonna try. One of them being babka was me being racist, because I thought it was funny. I thought it was funny to piss her off by being racist because you'd get really mad over it, and it would be funny, like, on stream.
+- 6:52:48) **JSTLK**: Okay.
+- 6:52:49) **Kuihman**: And the other one wasn't.
+- 6:52:50) **JSTLK**: So it's like, these are obviously, I mean, like, I don't, you know, I mean, how am I supposed to, you know?
+- 6:52:57) **JSTLK**: No, I would believe that. That you mean, like, we're not meant to be friends. Yeah, yeah, that means more.
+- 6:53:02) **H**: So you're only good jokes for being racist?
+- 6:53:05) **JSTLK**: I actually, hold on, I actually believe that, right? It's not like Tartzan was fucking, you know, any of his, ape friends. I literally, ID, like, a couple days.
+- 6:53:14) **JSTLK**: Ago, I DM'd Babka, and I was like, hey, I'm sorry. I don't want you to think, like, any of this is, like, some weird sexual. Like, I was just trying to be racist for funny. I'm sorry if I made you feel uncomfortable.
+- 6:53:27) **Kuihman**: He was getting off on it. He was getting off on it.
+- 6:53:30) **H**: Was for real. He's a freak for sure.
+- 6:53:32) **Kuihman**: Yeah.
+- 6:53:34) **JSTLK**: We considered that the public thing might be what Maura gets off on, and we're all engaging in his fetish right now.
+- 6:53:40) **H**: Don't care.
+- 6:53:42) **JSTLK**: That's kind of based.
+- 6:53:43) **C**: I was like, I was like, this is why I'm telling.
+- 6:53:45) **JSTLK**: Wait, why did you just that was there was no way that's more who just put crickets there yeah, it was more wonderful no way that was more that just put crickets there. There's no way that it was more.
+- 6:53:55) **JSTLK**: It was more there I Don't know how to even do that.
+- 6:54:02) **C**: I'm.
+- 6:54:07) **G**: Telling.
+- 6:54:07) **C**: You this cuz like I want I if I'm gonna be seen interact with this person. I don't want to do in public. I but like, this is a strange situation, you know? It's like, I, you know, I wish I could have told you then, like, hey, there's your stuff with my own stuff, but like, I'm not trying, you know, like, I'm trying to not break trust with the one or two other friends that I make here, which is like, too, like, the whole thing with like, helping pay or like, helping pay for stuff is that like, maybe it's not just you, like, I know all three of you guys and you guys, Seem to have the inclination to work together, but somebody's fucking too poor, which is you. And going one for one is saying, I see that you guys are working together. And I want to enhance that up to the point where it's like, it's responsible to do so. Like, I'm not trying to own you guys, but it'd be cool to have, like, you know, instead of some two.
+- 6:55:01) **G**: Fucking.
+- 6:55:08) **JSTLK**: You know what it makes it work when a rich person and a poor person are, like, close and friends? The thing that makes that relationship work, okay, is when the rich person repeatedly reminds the poorer person of the wealth gap, okay, of the wealth disparity.
+- 6:55:24) **C**: You can lose your friends. We have to relatively successful friends with something-- I don't know. If 50-100-200 bucks a month helps friends get business going, like under 200 bucks a month?
+- 6:55:39) **JSTLK**: 50-100-200 bucks a month. Brother, people have, even people who are not doing well in life, have $200 of discretion are you spending in a month. You're just like a neat, or like basically a neat borderline neat, okay? You have 50 bucks a month to spend probably. You do have that money. Just normally people spend it on like booze or drugs or something.
+- 6:56:00) **C**: Helps friends get business going.
+- 6:56:02) **JSTLK**: These people are autistic.
+- 6:56:03) **C**: It's fucking pennies in the long run. Like, it's not like I expect any sort of, like, I mean, it's, this is, I feel like, you know, I had a mentor invest in me when I was younger. And, like, I was, like, 22, and he paid for, like, large sums of money, and we did some work together. and it, you know, it was successful, but, like, there was. I never felt like I owed him, you know? Like, I never felt like there was any sort of leverage there. It's like, if I. Like, it's just supposed to be. I don't know. It's like you guys seem to have a potential to have a successful financial relationship, but, like, you're poor, so I don't know.
+- 6:56:51) **Parry**: Right, well listen, I mean, I'm not saying that there's another entity offering. I should have just been clear about that. I'm truly interested in that. I should have been clear about that as well. Yeah, I know. I'm just saying that like, okay, but all that aside, I'm not saying that you're like wrong for offering or whatever. I mean, people can read that way.
+- 6:57:09) **C**: I don't particularly think that's the case, but, you know, sounds like I'm fucking grooming you, man. Like, I know, I know, I know there's what use, like, I have to watch the full thing because I only caught, like, I caught the part where Bug called me pedophile and then I had to get ready for work. But it just seems like I'm a pedophile and I think there's the only thing I could do now is leave. But if I do that, then I'm like, I'm truly pedophile. So it's like, why do you care?
+- 6:57:34) **Parry**: What people say about you on the internet is whatever. I mean, I just, I'm not saying whether you should or shouldn't leave. The issue I have is that it's with this thing, right? I mean, I should have said, More about, I should have said more about when you said to me, but it's just, there's, there is an issue with you engaging and seeing that you are the arbiter of what, what, what of how, it's like you're trying to be judged during execution, or you're trying to be the one that actually can do the right thing in this situation.
+- 6:57:55) **C**: But the other human being, if this girl got more, like, I would have some negative experience on the internet and I just did nothing. Like, why?
+- 6:58:07) **Parry**: Maybe you feel guilty, but that doesn't.
+- 6:58:09) **C**: Give you the right to do what you think.
+- 6:58:11) **JSTLK**: I'm literally all- He's like the hero. Does Perry not understand that he's like the hero in this story?
+- 6:58:16) **Kuihman**: He's protecting the 16 year old girl's virginity. He's so- He's such a fucking hero, man. Holy shit, dude.
+- 6:58:24) **C**: Why don't you get some guy to marry this guy? He's so based. Only person who knew about, you know, how Mraow was treating women. And then there's this whole thing with this minor that comes in.
+- 6:58:35) **JSTLK**: Did he just say he's the only person who knew?
+- 6:58:37) **C**: I was treating women. And that person who knew.
+- 6:58:41) **JSTLK**: She only leaked it to, like, him, and then he leaked it to Perry, supposedly.
+- 6:58:45) **JSTLK**: Okay.
+- 6:58:47) **C**: I'm literally the only person who knew about, you know, how Mraow was treating women.
+- 6:58:54) **JSTLK**: I mean, I'll be real, when people hear about Mraow doing, like, aggressive race play with somebody, I think the general reaction is like, yeah, that tracks. Jesus, that tracks. that tracks with everything I know about this guy. I don't think anybody who's. What does he mean? I was the only person who knows how brow engages with women. Pretty much everybody's just like, yeah, probably.
+- 6:59:18) **JSTLK**: I don't know, dude. It's, like, pissing me off. His voice does not match at what he looks like. It's, like, making me mad. Like, I'm listening to. I can't imagine, like, his face talking with this voice.
+- 6:59:30) **JSTLK**: I kind of can. I kind of can.
+- 6:59:33) **C**: And then there's this whole thing with this minor that comes up and- well.
+- 6:59:38) **Parry**: No, listen, I knew he's- Harapon told me about the routing, but I didn't bump it, it didn't like pop into my head, hey, you should tell this.
+- 6:59:47) **JSTLK**: Person to- I should find every minor I know on the internet and message them and warn them that they need to come to me and, you know, I'll keep you safe. I need to message every one of them.
+- 6:59:58) **C**: Get out of here.
+- 6:59:59) **Parry**: No, because the issue is engagement.
+- 7:00:01) **JSTLK**: Why, wait, why is this hater person like, they weren't in the Minecraft servers of Miner, were they?
+- 7:00:06) **Kuihman**: I, no. Not as far as I know.
+- 7:00:09) **JSTLK**: Oh, okay.
+- 7:00:10) **Parry**: Being a Miner in the first place. Right, I don't, people shouldn't trust me. I shouldn't trust myself to be able to engage with this person in a private way.
+- 7:00:19) **C**: I can only ignore it for so long, like how many months of discussion around this person has to happen. And I start seeing, you know, I, I, you know, people are like, tell parapod, start telling me things. I find the Kiwi Farms thread, and I'm just kind of like, you know, I'm kind of sick, like, or not sick, but it's like, I, this feels.
+- 7:00:39) **JSTLK**: Like I'm just supposed to, wait, the KF thread.
+- 7:00:44) **Kuihman**: What? Very serious thread.
+- 7:00:47) **JSTLK**: Very serious. My Kiwi Farms.
+- 7:00:49) **JSTLK**: Yeah.
+- 7:00:50) **C**: I find the Kiwi Farms thread.
+- 7:00:52) **JSTLK**: Bullshit going on in the Kiwi, the, the KF.
+- 7:00:54) **C**: Like, am I just supposed to say, nothing. And what?
+- 7:00:56) **JSTLK**: Okay.
+- 7:00:57) **E**: Yeah.
+- 7:00:58) **C**: I mean, it's a hunch about it.
+- 7:00:59) **JSTLK**: That is better to.
+- 7:01:00) **C**: It's like, I don't know.
+- 7:01:02) **Parry**: It's like, I want to say you're. You're doing, like, I'm not saying you're doing it as a debate way, but you're doing, like, a false. I call me tighter. You do nothing. Or you just trying to get this person to trust in you discreetly.
+- 7:01:16) **Kuihman**: Right.
+- 7:01:16) **C**: There are Alternatives, right?
+- 7:01:18) **Parry**: You could have told them in public or private. Talk to their parents. You could have. Well, the sort of thing where it's trying to. I want to. I know there's plenty of stuff you could have done, but you're trying to. I understand that you think that the most impact you can have is by engaging in this person in a private, discreet way. But there are too many risks associated with that, and you shouldn't be trusted by other people or yourself to engage in that way.
+- 7:01:32) **C**: Well, I think it's like, I, yeah, I, I, I mean, there's not, I.
+- 7:01:39) **JSTLK**: I'll be honest, I don't know. It's really concerning. I, I realize I've been making all this commentary about this, but it's kind of concerning to me that his first reaction when Perry says, you're, like, not equipped to talk to a minor in private. I feel like my first, my first, like, gut reaction there would be to be like, what do you mean I'm not equipped? Like, I'm not a danger to these people. But he's just like, you're right, you're right. But I'll just go to the next point. You're right.
+- 7:02:06) **C**: I couldn't possibly. I.
+- 7:02:08) **JSTLK**: There's no way I should be talking. Yeah, I. Like, just the implication that they'd be like, you're not, like, able to control.
+- 7:02:15) **C**: Yourself or something is crazy. I mean, there's not. I, the whole pretense that I'm doing this to have some sort of, like, close relationship is like, it's a, that's just, like, she, she even tried coming to me later and I'm like, hey, like, like, I'm old. Like, there is, I mean, should I, wait, wait, what did she say to you?
+- 7:02:30) **Parry**: She, like, tried coming on to you.
+- 7:02:32) **C**: Do you want to see, no, she, she said hi, Starbase. And I'm like, oh, hey, like, I'm a 30 year old man, by the way.
+- 7:02:40) **G**: Okay.
+- 7:02:40) **C**: Im tried to be nice about it.
+- 7:02:42) **Parry**: I I do think She said.
+- 7:02:46) **E**: I.
+- 7:02:46) **Parry**: Think you should think it public because.
+- 7:02:47) **C**: Im I'm going to say I I's't think I'm I mean, with her permission, but like, that's what like, why do we have to make more about this minor like? I'll tell you I'll show I mean, and then I guess I'll trust you to to not I mean, to respect her w Hay.
+- 7:03:01) **H**: Is the guy retarded? I don know what? is giving him the armamds?
+- 7:03:05) **JSTLK**: I' gonna to trust him to at.
+- 7:03:07) **C**: Least, or to at least ask her. Like, this is, this is already, like, a lot of weird attention. And it's just like, yeah, let's talk about this minor more.
+- 7:03:15) **Parry**: It's like, I understand what you're saying. I understand that it's annoying that the minor is getting put more into spotlight. However, I think that you have to understand that you put yourself in a situation where.
+- 7:03:25) **C**: No, and nobody should trust you. Really? Nobody should trust really. Anyway, but you have a situation where there's a high risk to this person. Okay, Harry, you're, you're a good one. But, like, I mean, I'm surprised that this is even, like, a thing. that you have, like, this, like, this weird sex freak cat hanging out and, you know, his friends have miners in his servers. It's just like.
+- 7:03:43) **JSTLK**: That'S our sex freak cat. Okay? Don't laugh, Kenny. That's our sex. I don't know this nigga.
+- 7:03:48) **H**: I don't know this nigga. I'm giving you zero dollars. I do not know him.
+- 7:03:56) **JSTLK**: Okay, I. you see, he's a good one, though. You see, he's a. Say you respect that he's just a why and catching a Vibe.
+- 7:04:05) **H**: You respect that? I don't respect them. I don't respect them. You should go to jail.
+- 7:04:10) **C**: I'm just supposed to stay here and lay.
+- 7:04:12) **Parry**: I was against the minor stuff. I've always been against the miners.
+- 7:04:15) **G**: Freak.
+- 7:04:16) **C**: Spander with these kids, man. It's like, okay, all right.
+- 7:04:19) **JSTLK**: I agree.
+- 7:04:20) **Parry**: I've always been against this minor stuff. I've got a fan letter. So I knew they were minor. for my chat. What I'm getting at is, I understand that you have these understandings of other people, I might even say you're wrong, I just think there's like some weird.
+- 7:04:32) **C**: Freaks in the community, right? My issue is, you're trying to convince me to something that I already know, and I'm kind of thinking about, okay.
+- 7:04:39) **Parry**: What the fuck now?
+- 7:04:40) **C**: I have to go back to work. Like, what the fuck? Well, listen, I mean, we can debate and argue, but like, I feel like, I feel like I agree with all the things you're saying.
+- 7:04:50) **Parry**: Like, those things are like, I'm just doing the best to defend myself. You might agree, you might agree with me, that's like, you know, you shouldn't engage in this, but you did anyway.
+- 7:04:55) **C**: And I just wore, so you're not.
+- 7:04:57) **Parry**: But like, the issue here is if.
+- 7:04:58) **C**: You trust yourself too much, you would do this again. So, no, we don't agree then. Well, yeah, because you guys have no fucking, no understanding how to, like, keep fucking kids out of your business.
+- 7:05:09) **Parry**: I feel like I've done a decent job.
+- 7:05:11) **C**: I agree other people are being, you.
+- 7:05:12) **Parry**: Agree, but again, but that doesn't give you the right, I understand what you're saying. You know, I know you mean the.
+- 7:05:18) **C**: Community, you mean the community, I get that.
+- 7:05:17) **Parry**: I understand.
+- 7:05:18) **C**: Okay, you do a great job. That's why I thought, you know, I'm gonna be open about this with you because it's like, yeah, this is, I don't know, like, I, I would have talked more, I would have filled you in on everything. If I had known that Parapod also told you, that would have been, so I would have been, I'm front and be like, hey, like, I'm kind of weird about this hater person being like, you know, like the fact that she's still, like, you know, around, even after still everything, like, Why is she here? Like, at this point, I'm seeing this, like, this mistake waiting to happen. Like, somebody's gonna fucking, you know.
+- 7:05:56) **E**: I.
+- 7:05:56) **C**: Guess you'd say, but like, you know, fuck with this girl. I'm just totally like, yeah, I'm not gonna say fucking anything to anybody. I'm just gonna be fucking silent. I feel like that would have been, the, I guess, the best course of action, but like, I also don't fucking care that much about my presence in the community, because that's fucking weird. Like, I'd rather, I'd rather step in and try to do something, because no one else is fucking do anything. And fuck it, if I get burned, who cares? It's just, it's fucking-.
+- 7:06:32) **JSTLK**: Guys, I'm gonna step in and do something, and if I get burned, who cares? I get burned. Who cares? Like, his voice wasn't cracking while he's freaking out about this, like, two seconds ago.
+- 7:06:44) **H**: You Harbor this guy? Should you really be roasting him right now?
+- 7:06:49) **JSTLK**: The star base guy. Star bash was, like, banned instantly as soon as he joined my server. No, Paragon was many things, but Paragon no, never overtly coded himself as a pedophile. Okay, you guys all hold the L on. On harboring this guy when he was an overt pedophile.
+- 7:07:06) **G**: Okay.
+- 7:07:06) **Kuihman**: You guys all hold the L on that.
+- 7:07:08) **JSTLK**: I distinctly remember he had some Lolly.
+- 7:07:11) **JSTLK**: Drama where he said Lolly wasn't pedophilia or something. People clouded on him in the Discord. Does anybody remember that? I have no idea.
+- 7:07:19) **JSTLK**: I swear to God, this guy had.
+- 7:07:22) **JSTLK**: L, because I started making fun of him because of the Lolly. And then someone was like, wait until you find out about the dick pick.
+- 7:07:28) **JSTLK**: And I was like, what?
+- 7:07:29) **JSTLK**: Then I learned about that, and I made fun of him for that. And then he. He hated me after that. I made fun of him for being like a lolly con and the dick pick guy. Nobody in chats referencing it. Okay, maybe I made it up. I don't know. I distinctly remember that, though.
+- 7:07:45) **JSTLK**: I do remember that he certainly was a weirdo, and he played, like, a lot of Rimworld and owned a bird with no other.
+- 7:07:54) **JSTLK**: No, I was right.
+- 7:07:55) **Kuihman**: It happened.
+- 7:07:55) **JSTLK**: Iron sides is a mod. I don't think he would lie.
+- 7:07:59) **JSTLK**: He might lie. you my life.
+- 7:08:00) **C**: Like, this is, you know, I'm not like, if.
+- 7:08:05) **Kuihman**: If.
+- 7:08:08) **C**: I feel like QQ did the right thing, making a big fuss about it for two weeks, and even still after everything, like, I still see her around. It's like, Jesus, like, what? Somebody's gotta.
+- 7:08:22) **JSTLK**: At least is Rimworld a mark against you? If you have a Rimworld base, that's like, people are like, holy, this is the most autistic thing I've ever said. Yeah, you're a non-offending pedophile probably. Not offending, I would not be scared of you. But like, you're like somebody who's so autistic, the concept of speaking to an adult woman like terrifies you. And so, yeah, obviously children.
+- 7:08:46) **Parry**: I should do something about it. But what I'm getting at- yeah. I understand that you can have all.
+- 7:08:51) **C**: The right intentions in the world, but your- paper- like, yeah, like, what is she gonna do? Is she gonna call 9-1-1 when you're now molasses for? Sorry.
+- 7:09:03) **Kuihman**: I understand.
+- 7:09:03) **Parry**: Okay, it's a difficult situation for her to deal with this. All right, well, take your time. It's a difficult situation or, you know, because obviously it's like, we're gonna call the police and tell them, hey, there's this minor in this area. That's probably not gonna happen. However, I just. Even on a personal level, I wouldn't trust myself to, like, be the.
+- 7:09:21) **H**: You are the- you are the- no.
+- 7:09:23) **Parry**: I am not the police. I am not the police.
+- 7:09:25) **JSTLK**: No, because I have no ability- what happened to Pon-Pon? The most disturbing part of this is when he came on my stream, he was always like, no, no, no. I can't quiet my bird down at all. I can't even put him in the other room. He'd be really loud. And now to maintain his camouflage is star-based, he hid his bird. He somehow got his bird to shut the fuck up.
+- 7:09:46) **JSTLK**: He still got the bird. Whatever he's called, I'm pretty sure he said he's either on a walk or at work. So he's like actively avoiding his bird when he goes into calls. I mean, I'm not told accountable by anyone else, right?
+- 7:09:56) **H**: I'm just like my own person and.
+- 7:09:57) **Parry**: Saying, you're your own person, right? And it's the same way it'd be wrong for me to go to think, all right, well, it doesn't matter if there are like, you know, issues with like engagement miners and private situations. I can trust myself, so I can do it. You can't trust yourself in these situations. That's what the main issue is being introduced is that like, you know, people get the idea. It's you can't you can't trust yourself with these situations. Even if you know that you're the.
+- 7:10:20) **C**: Right person, I know I'm in the.
+- 7:10:21) **Parry**: Right when I do stuff, right? But I just mean I could just go around violating the idea, oh well I'll just I'll just deal with this minor, you know, even if we have a personal relationship, that's okay.
+- 7:10:29) **C**: The fucking norms are already being broken. Fucking pedophile cats.
+- 7:10:38) **Kuihman**: I agree, I agree it.
+- 7:10:40) **JSTLK**: Hold on. pedophile cats.
+- 7:10:45) **Kuihman**: Pedophile cats, man.
+- 7:10:47) **JSTLK**: If you be file cats, okay, he's not gonna. He would never do it again. He would never do it again. He'd never, ever do it again.
+- 7:10:56) **Kuihman**: Not yet.
+- 7:10:57) **C**: I'm the one. I get burned for. For talking. And that's fine, right? Like, I don't regret. I mean, okay, obviously, Heinz is 2020.
+- 7:11:10) **E**: But.
+- 7:11:13) **C**: I feel true to my moral compass that I did what I could with the information and whatever. I'm not trying to be, here's a question for you. I'm trying to make some friends on the internet. I'm not trying to become the center of attention for this sort of thing. I would rather just make some friends and hang out.
+- 7:11:32) **Parry**: Why didn't you, let's say, why not in this situation do, for example, Hi, Hater. I'd really think that the way that you're engaging in these communities is really weird. I think you should talk to your parents about this. And they'll probably let you know that this all really messed up. Why don't say something like that to Hater in public or private?
+- 7:11:49) **C**: I mean, yeah, that, okay, that would have been good. I wish. I mean, I'm not saying I wish you told me that sooner, make it like any sort of blame on you, but like, yeah, that would have been fucking great. But it's like, Right, that's the issue.
+- 7:12:04) **Parry**: Is that you see it like you're the only one who can handle the situation, but there are other ways in.
+- 7:12:08) **JSTLK**: Which we have- no, re, Mraal will never do it again. Mraal will never talk to a 17 year old again, or a 16 year old for the first time, or 50, I'm saying he is done. That part of his life is over, okay? You gotta get out of jail free card. You can't ever play the double down. Yes, I did.
+- 7:12:27) **Kuihman**: You did.
+- 7:12:28) **JSTLK**: I did DM a minor. Yeah, you can't do that again. Everybody gets one.
+- 7:12:32) **JSTLK**: Everybody gets one. I used mine.
+- 7:12:33) **JSTLK**: No, no, no. Basically nobody gets one, but you double down on something totally insane. It was very, very entertaining. So basically nobody gets away with it, but you get one. Look at this 15.
+- 7:12:45) **JSTLK**: Everybody gets one.
+- 7:12:46) **JSTLK**: Nah.
+- 7:12:47) **Parry**: We still don't evolve you in invoking yourself. You shouldn't. I could have done that.
+- 7:12:55) **C**: You could have. Yeah, but it's like I, you know, like, I tried to run this by.
+- 7:12:58) **Parry**: You, and, well, I mean, you didn't try to buy me because you didn't. Whatever.
+- 7:13:03) **JSTLK**: My entire Discord spamming gifts of Nicholas Darrow eating cake. Can you guys just chill? Nicholas did a fantastic thing today, and you guys are ruining it by spamming gifts of a meeting cake. Can you.
+- 7:13:18) **C**: It bought that I did it brutal and, like it. It just sucks that if, I don't know, I just, I wish I had your stronger, I wish, excuse me, I wish I had your stronger feelings about it earlier. That would have been very helpful.
+- 7:13:38) **E**: And.
+- 7:13:42) **Parry**: I didn't realize, and it's only in hindsight I realized, yeah, it's really bad idea to do it, because when you send it to me, I told, I don't think that's a good idea. And the thing I said about, I don't think you're actually going to be able to engage with something. I agree with that, but I should have said no. There's like all the other things that I'm realizing this. So I'm not saying that I immediately clocked what you're doing as a horrible.
+- 7:14:02) **C**: Idea, which I'm coming to realize seems wrong. But I guess I am lamenting that. It will just be your game. With my limited time.
+- 7:14:09) **Kuihman**: Josh Kosche donated $3. Starbazed also deleted his bird picture from his DMs with the minor before sending screenshots. presumably so he wouldn't be linked back to Paragon.
+- 7:14:21) **JSTLK**: Yeah, we covered that earlier in the night. Thanks, Josh Kos. Yeah, it's a good thing to highlight though. They deleted the picture of the parrot. All right. Very goofy stuff. Sent a lot of the same stickers that Paragon would send though, I think.
+- 7:14:34) **C**: Okay, well, I'm not trying to, it'd just be nicer if we had had more communication. I'm just regretting things out loud, you know? I, I, we're both busy and we both have weird time zone and it's hard to, but it's like, I wish that I could have shared my anxiousness about Mau's actions to you sooner. And it's just like, that's, that shit just is what unsettles me the most is that like, like he did, it's like some fierce, on the, I have.
+- 7:15:10) **JSTLK**: To cross the street.
+- 7:15:15) **C**: Like, dude, it's some fierce, like. And, like, he's crazy.
+- 7:15:22) **JSTLK**: Why? Ah, that's just.
+- 7:15:26) **C**: That's just. It's un. It's unsettling, and.
+- 7:15:30) **JSTLK**: And it's.
+- 7:15:31) **C**: And it's like. It's apparently like a wild.
+- 7:15:33) **E**: No.
+- 7:15:34) **JSTLK**: What? Isn't this, like. A clash? I think Starbase was not like a... Like a moral flagger, right? Like he wasn't like that? Am I crazy? I thought his whole thing was he was like super unhinged, like all the time. Like how does him protecting people even fit into like the character that he was trying to play?
+- 7:15:55) **Kuihman**: Yeah, I don't know.
+- 7:15:56) **JSTLK**: Like I feel like he was actually...
+- 7:15:58) **Kuihman**: It was like... But here's the thing though, he was always just kind of like weird. He was obviously trying to be like, Epic and wholesome and like morning to women and shit like that. It's just like, you know, I don't know, man. It's fucking weird, though.
+- 7:16:11) **JSTLK**: Maybe I just did. I only saw him in spicy chat. Maybe he was different in other discords or something. Huh? Okay.
+- 7:16:19) **G**: Okay.
+- 7:16:19) **C**: Not a well-known but, like, also, given.
+- 7:16:22) **JSTLK**: That he's Paragon, all I saw from him was, like, adding me with the most unhinged, like, all the time, so. I think that's probably what it was, was that was my only interaction with him. He already hated me in my community.
+- 7:16:33) **C**: So the phrase a well-kept secret, right? Or, like a secret that is...
+- 7:16:39) **Parry**: Mom tells it to people or whatever, I guess.
+- 7:16:41) **C**: But, well, if you know it and I know it, so it's like, I wish I had an emotional out to like, you know, I was trying to do my best. to keep my, you know, to not break Parapon's trust and to keep what you told me secret. But, like, you know, I mean, we talked about it, like, many times since, and it's like we're both. I mean, I think knows about it, too. And it's just like.
+- 7:17:17) **JSTLK**: Babka knows about.
+- 7:17:18) **C**: You, you know, I.
+- 7:17:20) **E**: Right.
+- 7:17:20) **C**: For them, it's like, I don't want to like press them on it too much. It's like the DMs I saw from PearPod, I'm like, this is like, ah, like this is kind of, you know, it's just like, I'm seeing like somebody that I have, like, I mean, yeah, we're like, we're friends. It's kind of like, oh, this is, oh, this is like very, this is kind of like, ah, I'm fortunate to learn of. and makes me.
+- 7:17:47) **Kuihman**: Doesn't.
+- 7:17:48) **C**: Doesn't make me feel good. And it's like, I mean, the worst part is like, I don't even think, like, that's the. Like, you know, she thinks it's. She thinks it's like.
+- 7:18:00) **Kuihman**: She doesn't see it as serious as.
+- 7:18:01) **Parry**: It is or whatever. Yeah, sure. I got that.
+- 7:18:05) **C**: I'm just. I'm just going on my. I'm just.
+- 7:18:09) **JSTLK**: I don't know what you're saying, I guess.
+- 7:18:11) **Parry**: It'S just, I said, this can all be. This is Ultra. I think, yeah, I was probably, you know, almost definitely like a freak and whatever. It's just, that doesn't give you the, the room or the right or whatever.
+- 7:18:22) **G**: To engage in that thing.
+- 7:18:23) **Parry**: All right, so in the future, what you should do, if you're not a browser thing, I don't know.
+- 7:18:29) **C**: You can, like, again, I wish we could, uhuh.
+- 7:18:31) **Parry**: That's what I'm saying.
+- 7:18:33) **C**: It's like, you know, my, my frustration is not with you directly, but it's like, and, you know, it's like, it's emotionally tense topic, and it's uncomfortable, and I would have liked to have, I don't know, just like, I got these two women tell me things, and, you know, it just wouldn't have been nice to be like, okay, somebody to help me keep my cool and, you know, just.
+- 7:19:00) **Kuihman**: I tried.
+- 7:19:01) **C**: I mean, I tried to. I know it's hard to. We, our schedules don't line up very much, so it's hard to like get, I don't know, you know, now you think I'm a pedophile.
+- 7:19:14) **Parry**: I was, I was persaying here, but, I- Dude, really?
+- 7:19:19) **JSTLK**: I don't think you're a pedophile, I.
+- 7:19:20) **Parry**: Think you're like an idiot who gets.
+- 7:19:21) **Kuihman**: Way too involved in situations.
+- 7:19:24) **JSTLK**: It's.
+- 7:19:27) **C**: I just don't want to be involved in brows. sex roller coaster anymore.
+- 7:19:36) **Kuihman**: Raul sex roller coaster.
+- 7:19:39) **JSTLK**: I did.
+- 7:19:40) **Kuihman**: I.
+- 7:19:40) **JSTLK**: It's so confusing what this guy's even talking about.
+- 7:19:44) **Kuihman**: I've willingly involved myself in Raul sex roller coaster, and I want to leave.
+- 7:19:54) **JSTLK**: He literally. He literally messaged a minor to talk about-- to defend them from Rau's sex rollercoaster. He, like, involved himself completely. Oh, wait, did Babka also DM him directly? Or did Babka just talk about it publicly?
+- 7:20:08) **JSTLK**: Him and Babka were, like, friends. I don't know if-- or if or what or whatever they damned about.
+- 7:20:15) **JSTLK**: Hmm.
+- 7:20:16) **C**: You know, I just-- I-- dude, I listened to that little fucker talk about-- like, the hater stuff on stream, and I'm just like, yeah, this is. This is like, I gotta stop watching this.
+- 7:20:27) **Kuihman**: This is.
+- 7:20:27) **Parry**: I thought he was against the snow. I mean, well, I mean, this is.
+- 7:20:31) **C**: The way he was.
+- 7:20:31) **JSTLK**: Everything I said on stream about hater was like, yeah, it's probably good that they banned them from the server. Like, they don't. We don't need 16 year olds in, like, these Discord communities. I don't know what the he's talking about.
+- 7:20:44) **G**: So retarded.
+- 7:20:45) **C**: Got this, like, little Glee in his voice, and he's covering. you know, Marcus getting raped on stream and stuff. And it's just like, I. It's just. Yeah, this guy is a. He's a demented little.
+- 7:20:59) **JSTLK**: And.
+- 7:20:59) **C**: Okay, I. I'm saying this as, like.
+- 7:21:02) **JSTLK**: We see this tactic many times. This is a tactic we're aware of. Okay, listen, being criticized, but this guy is a devious little right here. Okay, guys are devious. Little fucker. Mm-.
+- 7:21:19) **C**: This is in a way catharsis that it's nice to be able to be like, okay, there's somebody to fucking talk to you about this that's not like, like a woman involved and like- you-.
+- 7:21:37) **Parry**: Know, I mean, even from a- yeah, I mean, anyways, -huh.
+- 7:21:41) **C**: Sorry. Just what? I mean, there's a matter of business to attend to. Like, I. I do need to go back to work. I do want to hear your bull.
+- 7:21:49) **Kuihman**: It's a matter of, you know, I'm not.
+- 7:21:51) **JSTLK**: -Huh not rushing, bro. We just spilled some mimosas in the. In the. In the garden over there. Okay, we need that cleaned up stat. I've got a matter of. I've got a matter of business to attend to. I've got to go.
+- 7:22:08) **C**: I don't have an infinite amount of time. No, I get just even from a.
+- 7:22:12) **Parry**: Like, self, if you really cared about holding around Council, you realize him being able to point at you being a weird freak or being seen as a weird freak is gonna fuck that over as well.
+- 7:22:22) **C**: This is this whole, like, internet, the whole internet, like, reputation.
+- 7:22:26) **Parry**: You cared about holding around Council. You realize him being able to point at you being a weird freak or being seen as a weird freak is.
+- 7:22:33) **C**: Gonna fuck that over as well. This is this whole, like, Internet, the whole internet, like, reputation game, like, kind of misses me. I don't, like, I-.
+- 7:22:44) **Parry**: Yeah, I guess so. You don't care about, you know, I'm.
+- 7:22:46) **JSTLK**: Not doing the writing as long as.
+- 7:22:47) **Parry**: You'Re doing the right thing. I think that you're not doing the writing. I do sincerely, it's, I understand the Klaus stuff, but I do sincerely think you're not doing the writing here. I think that you have gone too far in so far as you're getting involvement here with this person. You should never, you should never sort yourself in that way. It's wrong to do, especially with the movie in miners case. I was just, okay, look, I just, I feel like you do need to, I mean, I'd appreciate if you could send me the messages just for peace of mind on my phone calls.
+- 7:23:22) **Kuihman**: Sorry.
+- 7:23:22) **Parry**: All right.
+- 7:23:23) **C**: All right. I missed the last 30 seconds to a minute. I had a phone call.
+- 7:23:28) **JSTLK**: Absolutely devious to use the fat diggers picture. All right.
+- 7:23:32) **C**: Okay, I guess I just want to.
+- 7:23:33) **Parry**: Say, I mean, I appreciate if you could send me the messages with Hater.
+- 7:23:37) **JSTLK**: Just for peace of mind. It's actually fucked up that she says it looks like Dicker's and Chud had a baby when it's just Dicker's face made fat.
+- 7:23:46) **E**: Okay?
+- 7:23:47) **JSTLK**: That's fucked up. Why? Why would they do that?
+- 7:23:50) **Parry**: Mind on my end, right? I mean, if you're saying you don't want me to publicize of her, but.
+- 7:23:55) **C**: I feel like this whole situation is.
+- 7:23:56) **Parry**: Public now, you know, people continue streaming about it. and so.
+- 7:24:00) **C**: Well, again, that's the thing, is that unless. Okay, if you guys want a feature, which. If you guys want to show what she said, you guys probably should get her permission. Or at least. At least, like, you know, everybody wants to avoid here like a plague. Like, it's. It's. It. Isn't it a little weird how she's, like, kind of, you know, like, isolated now, and she's literally, literally is, like, shut out. from, you know, any. So I guess, you know, if she's. She's talking to me like, okay, here, you just gotta. I mean, I guess, you know, you are free to do, you know, I'm.
+- 7:24:40) **Parry**: Probably gonna show them do whatever.
+- 7:24:41) **E**: Right.
+- 7:24:42) **C**: Well, I mean, I. I know once I send it to you, it's kind of, you know, out of my control, but I would just hope that if. like, I feel like any criticism you have, it's kind of toothless if, like, yeah, it just. It just seems like crazy the same situation where you get more and more eyes on her over and over and over again, and it's just like, if this keeps, like, if this keeps continuing, like, I do. I'm. I'm. I don't miss that. I'm not trying to be around.
+- 7:25:22) **E**: No.
+- 7:25:23) **JSTLK**: God damn it. I just did it again. Sorry. God damn it.
+- 7:25:28) **Kuihman**: Okay, nice one.
+- 7:25:29) **JSTLK**: Listen, if you guys keep. If you guys keep questioning me, dming this Miner, okay? I'm out of here. That 50 a month I give you, it's out of here. Stop talking about me dming a minor. Stop saying it's weird. Stop saying it's predatory.
+- 7:25:40) **Kuihman**: Okay, Minecraft server is gone if you keep talking about this.
+- 7:25:43) **C**: With your pedophile circus.
+- 7:25:46) **H**: Can I get the ticket?
+- 7:25:48) **JSTLK**: Miss me with the pedophile circus, dude. Sorry. Kenny was trying to show. Kenny, you need money?
+- 7:25:58) **H**: Yeah, I'll take it from Starbase. If he's still alive, come join my Discord.
+- 7:26:01) **JSTLK**: He'll stop talking about my bad file if he pays you. Yeah. Yeah, that's based. I respect it.
+- 7:26:06) **Parry**: Did you had DMS with her or. How did this get revealed? Just because you were Mutuals or people were questioning you? you told me, I know that.
+- 7:26:12) **C**: Yeah, I was worried and I added her because I was like, okay, I don't know. Like, I saw her in Marcus's server still after that, you know, there was like, what? I don't remember the order of events now, but I just remember there was the initial stream where people, it's like before Marcus came on to Aiden's and.
+- 7:26:35) **JSTLK**: Whatever, I think that Marcus was streaming with you for a while. What did Marcus do, Morale? need a guy that streams with you?
+- 7:26:44) **Kuihman**: Children server.
+- 7:26:46) **E**: Yeah.
+- 7:26:47) **JSTLK**: So he, when I was doing the cunny bed, he was, like, watching my stream, and he got that from me.
+- 7:26:55) **E**: And.
+- 7:26:57) **JSTLK**: He just started doing the cunny bit a lot with, like, miners present in his community. Like, there was someone as young as 15, like, a ton of stuff like that. And it was obviously pretty bad. And this hater person. was one of them.
+- 7:27:09) **E**: So.
+- 7:27:11) **JSTLK**: That was like a whole drama. But eventually he. He banned them and, like, banned miners from his community and turned down on the jokes and stuff like that.
+- 7:27:20) **JSTLK**: Very smart to just not allow miners in your community on a base level. I think that's probably what everybody should do. It's just automatic. I found out you're under 18.
+- 7:27:30) **E**: Off.
+- 7:27:31) **JSTLK**: Off. Don't be here.
+- 7:27:34) **C**: The date. It's probably in the screenshot I sent. It was the day, but I think I. I did it like the.
+- 7:27:40) **JSTLK**: Wait, hold on. Actually, this is important. Did you guys see crontos's face reveal?
+- 7:27:47) **E**: No.
+- 7:27:48) **C**: Okay.
+- 7:27:49) **JSTLK**: All right, hold on, hold on, hold on, hold on, hold on, hold on. He face revealed today unironically, and I want to see if you guys have, by the way, do not. Just get ready to watch it and do not be racist, okay? 'Cause I thought something, I just wanna see, wait, wait like 10 seconds of him talking when he face reveals before I pause and then we'll say like kind of who we think he looks like, okay? So I wanna make sure we're all.
+- 7:28:15) **Kuihman**: On the same page. Wait, no way, Q face reveal.
+- 7:28:18) **JSTLK**: Fuck it, Master.
+- 7:28:19) **H**: Really, really seriously, Q face reveal. Fuck it, Master. Master, Percy, Seth, my little Percy.
+- 7:28:34) **E**: We.
+- 7:28:34) **JSTLK**: All see it, right? We all see it. No, but also, yes.
+- 7:28:39) **JSTLK**: Wait, does he look like too mad?
+- 7:28:42) **JSTLK**: That was me. That was mine. Was. I was like, holy. It's literally too mad from the right angle.
+- 7:28:50) **E**: Yeah.
+- 7:28:53) **JSTLK**: I I thought it was too mad for sure. You find a better angle here? Not from this angle at all. Could be Benny. Anyway, maybe that'll be how I do it. Maybe I'll wear a mask. Like my Q. Okay, maybe I'll do the same bit. I'll do the same thing.
+- 7:29:15) **G**: You did this for your face.
+- 7:29:19) **JSTLK**: What'S that?
+- 7:29:21) **H**: That scared to show your face?
+- 7:29:24) **JSTLK**: Yes.
+- 7:29:27) **H**: Bro. Yes.
+- 7:29:29) **JSTLK**: He thinks he has me doxed, and he's retweeted what he thinks is, like, a doxed image of me, like, multiple times in the past two days.
+- 7:29:37) **H**: You should know the doctors are gonna. You knew doctors were coming. You put your foot into their drama sphere. You knew it was coming. Come on.
+- 7:29:45) **E**: Side.
+- 7:29:46) **Kuihman**: Don't go waste time, bro.
+- 7:29:47) **C**: Don't go waste time.
+- 7:29:49) **H**: I'm a living proof, so ain't compromising. Million on the cool.
+- 7:29:53) **Kuihman**: Gang, gang.
+- 7:29:54) **H**: Draw houses. Found looking like Peru. Graduated.
+- 7:29:59) **JSTLK**: Bro on my soul, bro.
+- 7:30:01) **Kuihman**: If you're typing Lamau, you're gonna get back, bro.
+- 7:30:04) **JSTLK**: Stop.
+- 7:30:05) **Kuihman**: Stop calling me too mad.
+- 7:30:07) **JSTLK**: Stop.
+- 7:30:07) **Kuihman**: Stop, bro.
+- 7:30:08) **JSTLK**: Stop calling me too mad, bro.
+- 7:30:10) **Kuihman**: Stop calling me too mad, bro. Stop calling me too mad, bro.
+- 7:30:14) **JSTLK**: Stop calling me too mad, bro. The fucked up thing was somebody told me it was happening and I went and saw it and I paused. I was like, holy fuck, he looks exactly like too mad. And then he said this. Well, you got me while my hairline's looking crazy. By the way, by the way, by the way, we're gonna get the clips.
+- 7:30:33) **Kuihman**: Listen, we're gonna get the clips out the way right now.
+- 7:30:36) **JSTLK**: We're gonna get the clips out the way. No, no, no, no, no. yeah, we're gonna click. Yeah, we're gonna get those Clips out the way.
+- 7:30:40) **Kuihman**: We'll get those Clips out the way.
+- 7:30:42) **JSTLK**: Yes. I could make my eyes cross-eyed sometimes.
+- 7:30:45) **Kuihman**: Yes.
+- 7:30:45) **JSTLK**: Yes, I could do that. Yes, I could do that, bro. You look young.
+- 7:30:49) **C**: Anyway, super awesome. Tarantos face reveal. Let's go. It's like I sent the friend request to earlier in the day, and then I said to her, and I'm like, okay, I'm. I'm like, this is a sort of situation. I'm. like, not comfortable doing, like, without at least, like, telling somebody. And besides Parapont and Bokka, like, the only person I chose with you. And so, I mean, that's just, this is just my series of steps or, like, you know, my decision-making process in the moment. Okay, now we're starting to hear the bird, aren't we?
+- 7:31:20) **JSTLK**: Was that the bird? Series of steps. Yeah, I think so.
+- 7:31:23) **C**: Hard to, like, you know, my decision-making.
+- 7:31:26) **JSTLK**: Process in the moment.
+- 7:31:27) **C**: Yeah, that's the bird.
+- 7:31:28) **E**: And.
+- 7:31:31) **C**: But yeah, let me. I did delete. I I don't want to. She was very.
+- 7:31:39) **E**: I don't know.
+- 7:31:39) **C**: It's like, if she's messaging me, like, she's probably already upset. So, you know, whenever. I mean, I showed you a picture of my bird, and I should turn that picture, but I I'm. I don't want my bird in any sort of screenshots. or anything. That's kind of like if I'm sending this out to the world, I'm leading my bird. She references the image, so that's why. But here, let me. I need to.
+- 7:32:08) **JSTLK**: I'm not sending my bird out to the world, guys. I will never dox my bird, okay? My bird's identity will remain private.
+- 7:32:17) **C**: I have my hand full of coffee.
+- 7:32:20) **E**: Here.
+- 7:32:21) **JSTLK**: Wait, this was, was this before, three days ago? Porter Bellar, did you watch this and were you the person who first realized that this was Perry? Sorry, not Perry, Paragon. Because I swear to God, the guy talking about hiding his bird with like this voice, would just, or was it already out? Because I feel like you could have watched this call and just been like, oh, bird trying to hide his bird. This voice, it would have just like clicked. immediately. I could see it.
+- 7:32:51) **C**: I need to cough for a bit. So let me mute.
+- 7:32:54) **Parry**: Yeah, all right.
+- 7:32:56) **JSTLK**: Okay, here.
+- 7:32:58) **C**: I'm going to go back to work after this, though. Okay, so.
+- 7:33:03) **JSTLK**: This probably.
+- 7:33:04) **C**: I mean, unless this is resolved in some matter, I'm probably not. I don't know. I'm probably going to peace out because this is. I mean, I mean, you know, I'm not, I'm not gonna run away or anything, but I'm like, you guys sort this out. I'll be here if, you know, if you have any questions. And you know the reason? I don't really, oh, he used to.
+- 7:33:25) **JSTLK**: Do this as well when he was.
+- 7:33:26) **C**: Coming on my stream.
+- 7:33:28) **JSTLK**: He'd be like, I'm really busy, but, like, I could maybe make time for you guys. I have, like, so much work on my plate, but I could maybe make time for you guys. It's like, motherfucker, dude, that's why I.
+- 7:33:40) **JSTLK**: Think it's so retarded. When when people are like oh, it was a year ago when he did the dick pic shit. It's like he's acting the exact same.
+- 7:33:49) **JSTLK**: I mean, this is weird. Is this worse? I think this is like weirder. I'd be more weirded out. Like at least sending your dick pics to like, sending your dick pics to like an adult is like bad, obviously. But oh man, it's weird.
+- 7:34:07) **E**: The.
+- 7:34:08) **JSTLK**: The risk of downside with the messaging the child is just so much worse, right? Like, realistically, what actually happened is maybe not worse, but, like, the implication.
+- 7:34:17) **JSTLK**: If this guy wasn't Paragon, like, it would. It probably wouldn't matter as much that he was damning the 16 year old. But the fact that this is the guy who, like, unconsensually sent a photo and, like, changed his reasoning three times and was, like, super weird about, you.
+- 7:34:32) **JSTLK**: Know, was messaging, like, all of the other women, like, clearly was messaging women to, like, flirt.
+- 7:34:38) **E**: Right.
+- 7:34:38) **JSTLK**: And was not great at it. Yeah. Kind of autistic and would be doing it a lot. I think that gets weird.
+- 7:34:44) **E**: Yeah.
+- 7:34:44) **JSTLK**: Pretty quickly.
+- 7:34:45) **E**: Yeah.
+- 7:34:46) **Parry**: I said that you should, like, talk to Agents because apparently you were, like, saying about it. I didn't mean it. Like, I wasn't trying to, like, I've.
+- 7:34:54) **C**: Been talking a lot of about. Because that's why I talk to them.
+- 7:34:57) **Parry**: On stream or whatever. I felt like it was only fair.
+- 7:35:00) **G**: Yeah.
+- 7:35:00) **Parry**: I know he's sorry about YouTube or whatever.
+- 7:35:03) **C**: I I gave you that. I give you that five. in because, I mean, we have a relationship together, and I want to at least, you know, I'm not trying to hide, like, a pedophile, but, like, I just wanna.
+- 7:35:14) **Parry**: I just want to clarify.
+- 7:35:16) **C**: I have a job to do.
+- 7:35:19) **Parry**: -Huh and I'm not gonna walk into.
+- 7:35:21) **C**: Work super up because I'm. Yeah, I have to at least, like, have a basic level of functioning. Okay, right here. Like, personally, I think this is. like, this is a huge. I personally think I did nothing wrong, but I understand it looks really bad. And the way it looks is also my responsibility, but still, like, so you.
+- 7:35:50) **Parry**: I'm not like, I'm a tourist. You sent a picture of your bird. Is that it?
+- 7:35:54) **JSTLK**: Or.
+- 7:35:55) **C**: Well, yeah, because the first thing I was like, oh, hi. I'm like, because we had talked, I mean, we- she like, she like told me where she lives. It's for some reason she like lives in the Bay Area. We talked about this in YouTube chat.
+- 7:36:10) **JSTLK**: Bro, why are you talking about- yeah.
+- 7:36:13) **JSTLK**: Apparently he lives near this girl.
+- 7:36:15) **JSTLK**: Yeah, he does. Why, I don't know why he would like even bring that up here. I don't know why he would say like where she lives in this video. I have no idea why he would do this. that's, like, already so many.
+- 7:36:27) **H**: How do you know he's not at her house right now? You know that? Okay, bro, he's getting his freak off.
+- 7:36:32) **C**: Yo, bro, first the sobbing.
+- 7:36:36) **H**: Yo, bro, latticowns are winning.
+- 7:36:38) **C**: Pedophiles are winning.
+- 7:36:39) **JSTLK**: Wait, I'm starting to realize why Kenny's streams are mostly silent. Jesus.
+- 7:36:44) **H**: You are done.
+- 7:36:45) **Kuihman**: Silent talks.
+- 7:36:47) **C**: Sorry.
+- 7:36:49) **Kuihman**: They're raping kids.
+- 7:36:51) **E**: No.
+- 7:36:51) **Kuihman**: Okay.
+- 7:36:53) **JSTLK**: I don't know. I don't know about the. The Avatar combination is just a little, you know, it's a little.
+- 7:36:58) **C**: Yeah, it's like a long time ago, and we talked about my birds, so it's like, I I just. I think it's just being normal and friendly. I I'm not gonna spend a ton of time. Like, what else do I send? Like, do I just say, I mean, okay, I should have just said, don't talk to me.
+- 7:37:17) **E**: You.
+- 7:37:18) **C**: You stupid.
+- 7:37:20) **Parry**: I mean, you could have left them unseen. I don't know. It's.
+- 7:37:23) **C**: Well, that's what I usually do.
+- 7:37:25) **JSTLK**: I should have just done nothing.
+- 7:37:27) **C**: I should have just done nothing. I'll let her get great.
+- 7:37:31) **JSTLK**: But.
+- 7:37:38) **H**: He won. He won so bad.
+- 7:37:40) **JSTLK**: Oh, that's kind of funny. that's crazy. Mrow. You have any. That's, like, probably fair, right? He had to. He had to. He had to. He had. He had no choice. Yeah.
+- 7:37:58) **JSTLK**: I mean, I'm not.
+- 7:37:59) **JSTLK**: He went from the Tactical peen to. Tactical. The Tactical beam to the new minor pipeline. Yeah, that's wild, man.
+- 7:38:11) **Parry**: You could have tried to, you know, secure this person's, like, safety without getting involved in a private manner, as you did here. That's what I I keep trying to reiterate that.
+- 7:38:19) **G**: I did.
+- 7:38:19) **Parry**: It seems like I did.
+- 7:38:21) **C**: I just wish, you know, the time for your advice would have been when I was like, hey, that's, you know, like, I I appreciate your advice because it's like, it's very correct, and it's very true, but it's like, If you.
+- 7:38:36) **Parry**: Came to me and said, Hey, I was thinking of private DMing hater and asking her if she has any issues she wants to confide in me with. I said, no, don't do that because at the end of the day, you're still engaging with somebody. That's what I would have said. Now, when you sent me the message, did I, rather away, no, because I'm like, an easy sort of thing, I didn't take it through. I agree with that. I wouldn't have told you to do this, don't get me wrong. I would have told you if you're worried about this person, try and get them to talk to the parents about the user situation.
+- 7:39:07) **C**: Hell, call the fucking FBI or whatever, probably won't do much, but you might as well.
+- 7:39:02) **JSTLK**: Stuff like that.
+- 7:39:03) **Parry**: I wouldn't have told you to try and be somebody that this person can trust in.
+- 7:39:07) **C**: Yeah, I guess that if this is why kids shouldn't be around, and if they're gonna be around, like, you can't just ignore them. And I I understand. I definitely shouldn't be the person that zooms, but, like, it's been months, and, like, you tried to make a big fuss about it, and then after all that ended, she's still there. I'm just like, this is. At this point, everybody's incompetent and nobody has the power to keep pedophiles away from this person. You should at least tell them, like, you know, fucking say something if somebody tries to rape you or whatever. Have some forceful e-sex or some bullshit. Like, I don't know. I don't fucking do this. I only do all this e-sex and sexting I only sex people like I know in real life. So it's just like the standards that you guys have for each other, it's.
+- 7:40:06) **JSTLK**: Like, I, you know, I'm doing some stuff.
+- 7:40:11) **C**: That's where, okay, maybe this is where being a 30 year old is kind of like, I just be, I'm just being fucking, yeah, I mean, there's a lot of advice I wish I could have had.
+- 7:40:24) **JSTLK**: Okay, the literal worst time to mention that you're 30 years old.
+- 7:40:28) **C**: Before this. And I guess, you know, I I don't. I I mean, personally, I don't hold much against you. I just. I mean, I don't. You know, you are doing your best in this situation as well, and, like, there's not, like, the blame pretty much is all on me, but it's just.
+- 7:40:49) **E**: I.
+- 7:40:51) **Parry**: All right, well, this instance.
+- 7:40:53) **H**: I get it.
+- 7:40:54) **C**: Next time or if there is a next time assistance.
+- 7:40:57) **Parry**: Well, listen, I honestly, I didn't even know the extent of stuff. I literally woke up and I didn't know, I didn't know that it's a, I, I mean, maybe I just don't usually like talk to people and tell them I'm going to cover them before I cover them, you know, I didn't do this with Duck Bringer. I didn't do, I don't do this with anyone.
+- 7:41:16) **C**: I wouldn't do this with anyone because I feel like, I mean, if it's of public importance, then I would talk about it. Um, and that's why I did what I did. I'm down to, I'm down, you know, if I need to make an appearance, if you think that's the best, but I'm not, I'm not going to be taking any weird shit from Aiden. I mean, I'll talk to Aiden, but.
+- 7:41:30) **Parry**: I mean, say what you will about Aiden. I mean, I don't think he's like.
+- 7:41:33) **C**: He'S kind of a sex fest as.
+- 7:41:34) **Parry**: Far as I can tell.
+- 7:41:35) **C**: I mean, you know, he's like, he's like, he's like a rhetoric rapist, like women a little bit, you know, but I would say that he's like, I.
+- 7:41:44) **Parry**: Do think he genuinely feels what he does. I don't think he's like being bad faith about it.
+- 7:41:48) **C**: I can say that lightheartedly. Maybe he's being.
+- 7:41:51) **Parry**: I mean, if you're saying you don't.
+- 7:41:53) **C**: Want to talk to him because it's an honest. I don't need a rhetorical wiping. I'm. I'm not. Don't rhetorically rate me. Like, let's just figure it out.
+- 7:42:04) **H**: Any information like this.
+- 7:42:05) **C**: That whatever Stone needs to be unturned, like, unturn it. Like, it's.
+- 7:42:10) **E**: I. I got tapping out.
+- 7:42:12) **C**: I'm ready to. If there's any.
+- 7:42:14) **Kuihman**: Yeah.
+- 7:42:14) **E**: Yeah.
+- 7:42:14) **C**: Okay.
+- 7:42:15) **Parry**: If there's any questions, maybe I can bring you on. Maybe I can even. moderate and make it so it's not like a cringe debate type shit.
+- 7:42:23) **C**: I mean, this is your stream. I'm...
+- 7:42:24) **JSTLK**: Okay, hold on, guys. Refresh the chat and see if the sub badges show up. Look, sub badges. They should be there for everybody, I think. They do not appear to be working correctly. They do not appear to be getting delineated correctly at all. They're just all the same for everybody. That's kind of annoying, but this should just not work. Why is everybody the same sub badge?
+- 7:42:49) **H**: Hey, refresh your on-screen chat.
+- 7:42:53) **JSTLK**: What do you mean? Refresh my on-screen chat.
+- 7:42:55) **H**: The badges aren't in the on-screen chat.
+- 7:42:59) **JSTLK**: True. Hold on. They are. now showing up. Yes, they are now showing up. For some reason, my kick chat, they don't show up correctly. Are they showing up correctly for you guys? No, they all. They all look essentially the same color. Oh, I know what it is. It's because a bunch of people are like a year or something. I saw one green one for a one month. and then the rest, like, don't seem to be working at all. Weird. Maybe that'll get fixed at some point. I have no idea. Huh.
+- 7:43:53) **C**: Okay. I'm taking a. I I I'm. I'm going to. I'm definitely taking a break. I mean, at least, you know, my personal, like where I place my time, but I'm still of course, like here for any contact or any discussion.
+- 7:44:14) **JSTLK**: But.
+- 7:44:16) **C**: I trust, I mean, I trust you to handle your business and.
+- 7:44:25) **E**: I.
+- 7:44:26) **C**: Would say, yeah, good luck, I guess.
+- 7:44:30) **Kuihman**: Okay.
+- 7:44:30) **C**: Just, I, I, with how you handle things.
+- 7:44:33) **E**: Yeah. Yeah.
+- 7:44:34) **Parry**: Just so you know, I am probably, I'm not gonna, I'm probably going to, you know, bring up, not the, not the PowerPoint stuff. I will probably bring up if somebody asks me some of the stuff you've said here, just to be clear.
+- 7:44:44) **C**: I, I, yeah, well, I mean, I, I, in some case, I would imagine.
+- 7:44:49) **JSTLK**: That, well, I don't know why this.
+- 7:44:50) **C**: Is, you know, the important parts of this call that you would need to show other people or that other people want to see or whatever information that I have Paul, do you hear?
+- 7:45:01) **JSTLK**: Like, three minutes later, you may or.
+- 7:45:02) **C**: May not have recorded it. You know, I I guess do your business. I hope. I guess I hope that there's a little consideration that I don't get raped more than I already am raped. And, well, yeah, I don't want to see kids anymore. I don't want to see kids. well, I mean, I'm talking about, I guess, do your best. I don't know.
+- 7:45:30) **E**: I.
+- 7:45:30) **C**: This is. I. I have to focus on, like, you know, this is. It's kind of exceeding the amount of.
+- 7:45:37) **E**: Right.
+- 7:45:37) **Parry**: I guess you have a lot of life and stuff outside of this, like.
+- 7:45:40) **E**: Yeah.
+- 7:45:41) **G**: Yeah. All right.
+- 7:45:42) **Parry**: I just thought I'd let you know that. So, you know, it's not like I'm, like, springing the back on you by revealing, but, yeah, probably.
+- 7:45:47) **E**: Yeah.
+- 7:45:48) **C**: Well, I'm saying you have full range to do what you want. To just, you know, I have faith in you to do- I mean, if it comes to I see that- Dude.
+- 7:46:00) **JSTLK**: He is so clearly, am I the only person who just hears him screaming right now? If you want the money I send you each month, clean this up. Clean it up, Perry. Clean it the fuck up right now, or I'm out. I'm outta here with my $50 a month, Perry. he's, like, screaming at Adam directly.
+- 7:46:19) **C**: There's another pedophile rape tree coming for me. I'm gonna be a little hesitant.
+- 7:46:24) **JSTLK**: Wait, another?
+- 7:46:26) **C**: But, like, I I don't know how I would personally approach this without.
+- 7:46:36) **JSTLK**: What the did he mean? Another one.
+- 7:46:38) **C**: Maintain or with maintaining, like, everyone's privacy, like, power pawns and morals, like.
+- 7:46:43) **E**: That.
+- 7:46:44) **C**: That's up to you. I I'm. I'll follow your lead. I, you know, this is. I don't want to be involved in, like, your guys's. Okay, so I'm not saying you're. I'm saying your eyes are rhetorically, not you included, but, like, I don't want to be involved in your. These people who are, like, a decade younger than me, weird, like, sex interactions, like, it's. It's beyond me.
+- 7:47:10) **JSTLK**: He doesn't want to be involved, but.
+- 7:47:12) **C**: He'S like, he's the one that starts it. I mean, I have faith in you.
+- 7:47:16) **JSTLK**: Yeah, I don't, he involved himself. You know what the easiest way to not get involved in talking to minors or getting like a pedophile rape creek against you is just like, don't be involved with minors. It's pretty easy. Pretty easy. That's all you gotta do.
+- 7:47:32) **Parry**: Good luck. I get thanks, and you know, good luck with the rest of your day or whatever, I guess, emotionally straining. Situation, but I mean it just sucks.
+- 7:47:43) **C**: That you know Only thing I regret is like, you know, I made some cool friends here and I Don't know this seems like this seems like very soil territory now so I regretfully await your Correspondence regarding this matter. Okay, okay Well, okay, good luck.
+- 7:48:06) **H**: Thank you.
+- 7:48:07) **C**: Sorry for all this, sorry for all this again.
+- 7:48:10) **Parry**: Okay, so your bird's blind, by the way, in one eye. Is that the bird you mean?
+- 7:48:14) **C**: No.
+- 7:48:15) **E**: What?
+- 7:48:16) **Parry**: She's like a white eye. You sent me a picture.
+- 7:48:19) **C**: Oh, well, it's closing his eyes. Oh, yeah. You want to see the picture I sent? Here's the picture I sent, hater.
+- 7:48:29) **Parry**: I just wanna- I don't know if it's like a very identifiable bird.
+- 7:48:34) **C**: I mean, I guess not wanting it's on the internet. I mean, it's just kind of like, I don't- yeah, like, I don't want- I don't want to see my bird being covered in this pedophile drama. That's kind of- Right.
+- 7:48:47) **JSTLK**: That's just, like, leave my fucking bird out of this. A little understandable. I think it's- okay, guys, guys, now refresh the chat. Refresh the chat. All the colors are working.
+- 7:48:58) **E**: Sorry, I lied when I said I.
+- 7:49:00) **JSTLK**: Was not going to work on it anymore. I do have it working now. now all of the little sub icons are different colors. Nice, nice, nice.
+- 7:49:11) **C**: It's like, hey, like, the thing is, propagate everything with hater. If you have any questions, like, the thing is, like, like, at this point, if, like, I don't want to speak publicly about her anymore, like, this is just.
+- 7:49:28) **E**: Yeah.
+- 7:49:29) **C**: Anyways, I gotta go.
+- 7:49:31) **Parry**: All right. Thank you for calling.
+- 7:49:32) **JSTLK**: Have a good day.
+- 7:49:33) **C**: See you, dude.
+- 7:49:34) **JSTLK**: Got business to attend to, guys. We have business to attend to. We gotta go.
+- 7:49:38) **Parry**: I look blind.
+- 7:49:45) **JSTLK**: All right, Perry. Apparently, you look blind. All right. Cool, cool, cool, cool, cool, cool. Okay, what else do we have today? I'm trying to think. We got, what, 30 minutes, 45 minutes left on the stream? 45? 30, 30 minutes. What should we do here, guys? What are we doing? What are we up to? Trying to think of, like, what did I have here for the end of stream? I don't think I had, like, a lot else, to be honest. I was checking out some. Some legal Mind stuff stuff or legal mindset stuff. It was pretty funny. See here. What are we looking at? What are we looking at?
+- 7:50:44) **Kuihman**: That ladyboy mindset guy is straight. Retarded, bro. That guy is dumb.
+- 7:50:51) **JSTLK**: I watched his stuff today. It was very. It was very funny. Technically, I'm not a passport, bro. I just. I've been a permanent resident of Thailand, the Philippines, Japan, South Korea.
+- 7:51:02) **Kuihman**: There's a clip.
+- 7:51:02) **G**: There is a tree. A clip.
+- 7:51:04) **Kuihman**: I kid you not. There is a clip where he says, yeah. So if you're a man leaving the West for the East, You could be considered the passport, bro.
+- 7:51:13) **JSTLK**: Okay. What is it?
+- 7:51:16) **C**: Oh, sh. Wait, wait, wait.
+- 7:51:18) **Kuihman**: This is great for the end of the stream. Pull up this video. Pull up this video.
+- 7:51:24) **JSTLK**: What is this? What is this? Oh, wait. Hold on. Why does this exist? Passport, bros. Is it really worth living in Asia? we got the West from a channel called go East.
+- 7:51:41) **Kuihman**: Well, wait. Pull up the channel. Look at the actual tag for the channel.
+- 7:51:45) **G**: Sorry.
+- 7:51:46) **JSTLK**: Helping the everyday person escape the collapsing West for the East. We have. Oh, we will have information on visas, relocation, housing. Wait, this is his channel.
+- 7:51:56) **H**: What?
+- 7:51:57) **JSTLK**: Yeah.
+- 7:51:58) **Kuihman**: Look, I go East.
+- 7:51:59) **JSTLK**: This is what Hassan said. Hassan said, I don't. Hassan, he said. Okay. Oh, he literally is exactly that. Dude, why did we not have this earlier in the stream? He is exactly that.
+- 7:52:11) **E**: Yeah.
+- 7:52:11) **C**: Unless we had a website too, it's not on this site anymore.
+- 7:52:15) **Kuihman**: He's a straight crossbow, bro.
+- 7:52:16) **JSTLK**: In the world, does he, does he make that? Dude, okay, let me just ask you, how in the world do you not take this all down before making that video towards you?
+- 7:52:26) **Kuihman**: You start crying defamation about him calling you a passport, bro. Yeah, you think so, right?
+- 7:52:31) **JSTLK**: Dude, what the fuck? Asia versus Latin America, where should you move? He literally read a passport bro channel. Oh, this whole Reddit is content, the passport bros. I don't know why I pulled this up on my screen without really even investigating what the links were. That could have been real bad. The passport bros, dude. No, no, no. When Hassan was saying this, I was like, oh, that actually makes a lot of sense. That, like, you don't see a lot of white dudes who are just like, I'm gonna go here and I'm gonna do, like, content and, like, constantly mention that I am here, right? Also, I said this, I was like, I have no indication, I have no proof that he's a passport bro. But that comment about the tranquility of Asian countries, I'm telling you, that is the loudest dog whistle on planet Earth that this guy is like a, Like a fucking, he's got yellow fever, okay? He wants to be there for the women, like, a hundred percent. It's just obvious. Some people are like, oh, so just having respect for Asian cultures means you're a pedophile? No, but trust me, there's a confluence of factors coming together here, okay, that point in a certain direction, not that he's a pedophile specifically, but that he is like a passport bro. God, ah, that was awesome. That's amazing. I just want to make it very clear, not accusing him of being a pedophile. I don't think he's a pedophile. I've seen nothing that- But look at the text.
+- 7:54:03) **Kuihman**: Go East Gentleman. That's the app for the channel.
+- 7:54:06) **JSTLK**: Go East Gentleman. And this is- I saw this on the- Look at the intro.
+- 7:54:10) **Kuihman**: Read the intro as we watch this. Read the actual cards in the- Get.
+- 7:54:14) **JSTLK**: Out, get out, get out, get out, get out, get out, get out, get out, get out, get out. Dude.
+- 7:54:20) **G**: I swear he had a...
+- 7:54:21) **H**: I'm sorry, I think he might have took it.
+- 7:54:23) **Kuihman**: Wind it back, watch the first, see the first couple cards.
+- 7:54:28) **JSTLK**: Gentlemen, it's time.
+- 7:54:32) **C**: Forget the West.
+- 7:54:34) **Kuihman**: Black Lives Matter. But he's not right wing guys. He's not, he doesn't talk about politics. He doesn't talk about politics. He doesn't do right wing stuff. He's not.
+- 7:54:46) **H**: He went on a fresh and fit.
+- 7:54:48) **JSTLK**: Dude, the other dog whistle was very clearly when he was like, unlike America, Asian countries actually care about illegal migrants. It's like, okay, but you don't talk about politics. Really? Really? Go East. Bro, he literally hold on. oh, no. Fast facts. Fast, fast facts. But Hassan's defamation. Dude, there's no way. Because he said. Did he say, I don't sell courses or something? He said, like, I don't give courses.
+- 7:55:31) **C**: Who offers courses on becoming a passport, bro, who primarily streams on Rumble.
+- 7:55:39) **I**: Neither one of those things are true. I do not have a single course on becoming a passport bro.
+- 7:55:44) **E**: And--.
+- 7:55:47) **JSTLK**: Hold on. Hold on.
+- 7:55:49) **Kuihman**: There's a lot of course on becoming a passport bro, Jay Stork. It's a course, because-- Correct.
+- 7:55:53) **JSTLK**: No, no, no. Even if we consider these advice on becoming a passport bro or courses, he does not have a single one. He has many. He has many, many, many examples of how to become a passport bro. He's got so many. Japan won't go woke, here's why. Is China becoming dangerous for everyone? Indonesian deportation and death penalty. International moving tips. That sure sounds like somebody who wants to be a passport bro would want to watch that. International moving tips? Uhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh Western content creators beware in Asia massive legal risk. Digital nomads can get into trouble for this in Asia. Hold on, hold on. Don't do this. Thailand tourist visa avoid this bad advice. Oh boy. This guy. All right, I'm sorry, whatever you're watching, I'm watching this now, okay? Who's behind anime's woke trend with legal mindset? Okay, we are.
+- 7:57:09) **Kuihman**: Watch the first comment on the other video. You just gotta hear this quote. You gotta hear the quote. They're just completely racist. Total entire argument.
+- 7:57:15) **JSTLK**: Okay. Why? Why? How? does this happen? And I'll just. I'll just say, anybody who's listened to this guy's legal advice, I guarantee you this guy's attaching himself to H3 stuff. I guarantee you, okay? I hate to give Destiny any Laurels. I really do. I do not like this person. But if Dan were to, like, tell him, like, oh, yeah, this legal mindset's doing content on this now, I guarantee Destiny, like, said to him, oh, you shouldn't trust that guy. That guy's legal analysis is terrible. I promise you. I promise you he said that. And Dan was like, no, I think he's on my side. I think he's doing good. He's doing good for us. Oh, God.
+- 7:57:57) **I**: Hey, everyone, welcome to Go East. And as always, this is a channel where we help men escape the collapsing West for the East. And today we're going to be talking about a great one. As always, I'm Andrew. I'm an American attorney living over here. working remotely and living legally over here in Asia currently in Seoul, South Korea. Now we're gonna be talking about a certain movement that has blown up on the internet that's gotten out there. That's right, it's the Passport Bros. Now, don't worry, I'll explain everything, but this is gonna be a controversial one. I'm certain this is gonna be clipped. So stay tuned here. And by the way, if you like this content, smash the like button so that YouTube knows that we can pass this in the algorithm and it can get spread to other people out there looking for the same information. So the passport bros, what are they? What is it? Well, it's not, it's like one of those things that you try to make it into a single group person or organization, but it really isn't. It's really just a movement of people that are seeking out foreign women because, well, they don't want to deal with Western women, particularly American women. And it came out of the United States. Now, I know that a lot of people originally, it seems like Passport Bros originally was just something that was specifically African-American. But no, I think it applies to all races.
+- 7:59:20) **JSTLK**: Hello? I'm sorry, I'm, I just hit my download button here. I need this before he pulls this down. He is pulling this down, like, immediately. I have this download. I'm telling you, I have this immediately. It's where he had a website.
+- 7:59:35) **C**: Sorry.
+- 7:59:33) **JSTLK**: I'm sorry, dude.
+- 7:59:36) **I**: Seeking out foreign women, seeking out other women because they just aren't dealing with the of dating in the United States. And this can apply to Canada, Western Europe, Australia or New Zealand. So to me, anybody could be a passport, bro. As long as you're leaving the west for the east, I mean, you could be a passport, bro. So if you're.
+- 7:59:59) **Kuihman**: Let play out, let play out.
+- 8:00:01) **I**: The guy listening to this channel and you leave the US, you could qualifying to the definition. But there we go.
+- 8:00:08) **Kuihman**: How can he possibly claim it's defamation when there's an article about a passport, bro? When you have this out on your channel, this is just public. This is just here. You're saying, yeah, if you're a man who's leaving the West for the East, you could be a passport, bro, on this definition. Especially if you're watching this channel. Well, you left the West for the East and you're making this shout. So how would you not be a passport, bro?
+- 8:00:31) **JSTLK**: This is some obscene. It's crazy.
+- 8:00:35) **I**: It's so blakely criticized for choosing women from the East and from the South America as well. Latin America, the East over here, where they're going to.
+- 8:00:47) **JSTLK**: Okay. All right. That's fantastic. Hassan did, like, true. Hassan did some real reporting for once. Hasan is back straight. Let's go, Hasan. Ah, hold on. Can I get some-- who tweeted this-- this fucking video? Was it Awk? Because somebody tweeted the full thing about the passport bro thing, and I was like, dude, there's no way. There's no way he's, like, complaining about this. I just want to see-- Asmongold can't help but laugh after Chadder noticed something about Hasan. Guy surrounded by girls, now surrounded by lawyers, okay? Where is it? Where is it? Where is it? I think it's on this channel.
+- 8:01:32) **Kuihman**: In these countries because- I'm not beefing with legal YouTubers. Grimacing emoji. Bro, this guy is straight retarded. What do you mean? This is the easiest layup for a son ever.
+- 8:01:46) **JSTLK**: Dude. Oh, right here. I'm a long-term resident of several countries in Asia. Help others to obtain legal visas long term. Perhaps the only person who could be a passport bro is the individual who visited Berlin. Do we have people quote tweeting this? Is there like somebody who's raped this guy like brutally? Oh, I told him I said someone.
+- 8:02:05) **Kuihman**: Needs to splice the clips, but no one's done it yet. Someone needs to splice up the clips, but I saw some calling it defamation.
+- 8:02:12) **JSTLK**: And the definition clip. Somebody posted it on his shit. Another channel, by the way, dude. Dude, these people. 370,000 views on this one. Anybody quote this and like, dude, dude, people just have, I know I can't lay this one at his feet too, and I know he had a rough night. But this in my mind, it's just I can't possibly be blamed on him, but I'll do it anyway, 'cause this is what happens to their people, okay? This is another certified like Dan Saltzman classic right here. Just like we don't investigate anybody who we're associating with, we just totally like endorse their statements, W them without looking into anything. Amazing. Amazing. Yes, I am baselessly blaming a Jewish man for this, okay? I'm doing that right now. Oh, you love to see it. I think Hassan needs to wave his gun at a few people. It seems a few more people crash down.
+- 8:03:26) **Kuihman**: It feels like it's just like I can't. Everything is just so retarded. Like, when they. How can you possibly. Apparently, apparently, Nick reacted to a legal mindset video earlier and was nodding his head along, so I wonder if it was the defamation one that very funny. I don't know if it was a doxing one of the defamation ones.
+- 8:03:40) **JSTLK**: There's no way.
+- 8:03:43) **E**: But.
+- 8:03:44) **Kuihman**: Yeah, I just like you. How can you give this guy any.
+- 8:03:52) **E**: Why?
+- 8:03:53) **Kuihman**: How is Ethan like, oh, don't be for legal YouTubers. This guy is retarded. Like, watch any of this guy's videos. He is dumb as. He's actually dumb as a rock. He is so dense. It's insane.
+- 8:04:06) **JSTLK**: Uh, awesome. Alright, okay, well, that was all fun. Sports is out of control. It really is, isn't it? Behind anime's woke trend. Sorry, I do want to watch this. I just want to watch it, okay? This guy doesn't comment on politics at all.
+- 8:04:33) **Kuihman**: Now we're gonna have all two ideas for this question. I got a few.
+- 8:04:40) **JSTLK**: Okay. Yeah, we know. We know. We always know. We always know.
+- 8:04:46) **I**: Anime woke. Is it all lost on the island in the house of the Rising Sun? We're gonna talk about that today for all those weebs out there, for all those. Japan. Is anime going woke? Is something wrong? And by the way, if it's going woke, if there's problems, who is to blame? As always, this is Go East helping people move from the west to the east. I am Andrew Esquiro, an American attorney living abroad, helping you sort through these issues.
+- 8:05:15) **JSTLK**: So give me the Patrick Bet-David clip. That's what I really need, okay? It's a couple things I need you to be thinking about. Number one, You are Jewish. I can't even finish it.
+- 8:05:26) **I**: Because they're complicated and somebody has to. Now, starting into this, I just want to say, look, I have always been a big anime fan. I grew up on anime. I will talk about some of my favorite animes like Cowboy Bebop, Trigun, Evangelion, right? These are things I knew way, way back.
+- 8:05:45) **H**: Super duper fraud.
+- 8:05:46) **E**: Yeah.
+- 8:05:48) **H**: This is a normie.
+- 8:05:49) **Kuihman**: There's a good anime.
+- 8:05:50) **H**: What's an army? What are your favorite anime?
+- 8:05:53) **Kuihman**: Kenny, I've watched none of those in full.
+- 8:05:56) **JSTLK**: Kenny, what are the three best anime of all time?
+- 8:05:59) **E**: Go.
+- 8:05:59) **Kuihman**: How would I see my old time?
+- 8:06:00) **JSTLK**: Because you guys, when you guys are.
+- 8:06:03) **H**: Normally, you just wouldn't understand the greatness, right? Exactly.
+- 8:06:06) **Kuihman**: So you're, like, gonna say some, like, child rape, and you're like, well, you guys are noise. You just don't get it. It's actually a really good character.
+- 8:06:14) **H**: Okay, I could like some other.
+- 8:06:16) **E**: Stuff.
+- 8:06:16) **H**: You host better.
+- 8:06:17) **Kuihman**: All right, man. Okay, bro.
+- 8:06:19) **C**: Yeah.
+- 8:06:20) **H**: Girl fan.
+- 8:06:21) **Kuihman**: I'm seeing your prep picture.
+- 8:06:24) **H**: Loser.
+- 8:06:33) **Kuihman**: So what? What child rape you watching, Kenny? Well, you're top three.
+- 8:06:38) **H**: No, I don't watch any of that stuff.
+- 8:06:40) **JSTLK**: I'm just.
+- 8:06:41) **H**: Just making a point. Even if I did like that.
+- 8:06:42) **E**: Stuff.
+- 8:06:47) **Kuihman**: You didn't say anything.
+- 8:06:47) **H**: If I did it. Okay. Yeah, if I did it.
+- 8:07:07) **Kuihman**: Hey, there.
+- 8:07:08) **E**: My.
+- 8:07:10) **JSTLK**: My IRL friends like Trigon a lot.
+- 8:07:12) **Kuihman**: I thought how good.
+- 8:07:14) **H**: Yeah, it's good.
+- 8:07:17) **JSTLK**: They invited me over to their house for, like, a watch party. It was epic.
+- 8:07:20) **Kuihman**: Trigon's cool. Cagney's is cool. Cowboy Bebop's cool. Evangelion's cool.
+- 8:07:29) **G**: I watched.
+- 8:07:30) **JSTLK**: I watched one of the Cowboy Bebop movies. I haven't seen the actual show.
+- 8:07:34) **E**: I.
+- 8:07:34) **Kuihman**: That is a good pleasure. Yeah. I actually have a future diary.
+- 8:07:36) **E**: Yeah.
+- 8:07:38) **C**: Real killer.
+- 8:07:42) **JSTLK**: I'm back.
+- 8:07:43) **Kuihman**: I'm dead. My Wonderland. Both of those go with pleasure. For sure.
+- 8:07:46) **JSTLK**: Deadman Wonderland is good.
+- 8:07:48) **G**: Yeah.
+- 8:07:49) **JSTLK**: Okay. Fortunately, it's not even good. I can tell it's not good, but.
+- 8:07:55) **Kuihman**: No, both of those. You can tell they're not good. They are obviously not good shows, but they are very fun to watch.
+- 8:08:02) **H**: I give me pics like this.
+- 8:08:04) **JSTLK**: And this guy's like, Gallo Bebop.
+- 8:08:06) **H**: Evangelion.
+- 8:08:07) **C**: Okay.
+- 8:08:08) **H**: I wouldn't even watch those.
+- 8:08:09) **Kuihman**: Those are cool. The rebuilds blow, dude.
+- 8:08:15) **H**: I've been saying that.
+- 8:08:18) **I**: Trigun, Evangelion.
+- 8:08:20) **G**: Right.
+- 8:08:20) **I**: These are things I knew way, way back in the day. I've watched all the Studio Ghibli films. I'm a big anime fan. So I say this as an anime fan and as somebody. who's known about anime in the past. Now, admittedly, I do not watch as much anime anymore. Frankly, because I work, I have work to do, whether it's making these videos, whether it's contracting, whether it's you working on my YouTube, my other YouTube channel.
+- 8:08:46) **JSTLK**: Legal mindset, I am very busy.
+- 8:08:48) **JSTLK**: I don't, oh, he's doing both. I thought it was like, okay, I thought he was gonna be like kind.
+- 8:08:54) **JSTLK**: Of quiet about it, but he's just open about it. Well, I noticed that he has legal mindset here, and he's got all of his shit here. Oh, rumble.com/user/legalmindset legalmindset.locals.com I don't think it's weird that Hassan thought he streamed on Rumble when he's like- He does stream on Rumble.
+- 8:09:09) **H**: He does local live streams. He does stream on Rumble. He does live streams on local.
+- 8:09:14) **JSTLK**: Oh, well. DG?
+- 8:09:16) **I**: Much time to watch anime as I would like. I really would love to have more time to watch anime. I do not. Therefore, I wanted to talk today about this thing that's been coming up lately. And I'm going to reference some older articles and material, but these are problems that people have been bringing up specifically about the localization of anime and this critique that American localizers, people in the United States, are adding in terms. And I want to say this is not a new problem. In fact, this is something that's been going on for the past couple of years. This article is from 2020, and you saw that even back in 2020, people were adding terms like woke, virtue signaling and politically correct into animes as part of the localization. And for those that do not know, localization is the process through which Japanese material is made into American material when they translate it into English.
+- 8:10:09) **JSTLK**: Oh, this is actually going to be an awful video. It's just going to be about localization companies. It sucks.
+- 8:10:15) **Kuihman**: You should watch one about moving to Asian countries. That's way funnier.
+- 8:10:32) **I**: Certain this is going to be clear. All people, you know, this can apply to Canada, Western passport, bro. As long as you're leaving the West for the East, I mean, be a passport, bro.
+- 8:10:43) **G**: So.
+- 8:10:43) **I**: If you're a guy listening to this channel and you leave the US, you could qualify under the definition. But let's look at that choice. They've been criticized for choosing women from the East and from South America as well, Latin America, the East over here, whether they're going to Thailand, Philippines, Brazil, wherever. They've been accused of many things for that, including they've been said that, oh, you guys are just committing A different form of sex, sex.
+- 8:11:15) **G**: Sex trafficking.
+- 8:11:17) **Kuihman**: Or sex tourism. But he doesn't fully he, like, backs off of it. It's so funny.
+- 8:11:23) **JSTLK**: Dude, the sex tourism thing, that's what I think Passport Bro did apply when I watched it earlier. I was like, Passport Bro totally applies. If he called you a sex tourist, then maybe you could, like, have some gripes, right? Yeah, I'm a resident, but Constitution, whatever.
+- 8:11:38) **I**: Else you want to call it. And engaging in the sex industry. That's all it is. Well, that is highly insulting and I wouldn't even dare say, I would even say it's pretty much racist against these other countries saying that it's...
+- 8:11:56) **JSTLK**: Cool, that's based.
+- 8:11:58) **I**: These other countries, other women suddenly don't have agency as people that you as a woman particularly the women in the West that are complaining about this, and the guys, the beta guys that enabled them, that back them up, that parrot these points, they're saying that, oh, the women over here, they can't make their own choices. You're coming with your Western money and suddenly you're dazzling them and enchanting them and you're removing their agency. No, that is completely not the case. Women over here are absolutely intelligent. They know what they're doing. They're playing 4D chess. You're playing 2D. They're playing 4D chess on you. They're far ahead of the game.
+- 8:12:38) **Kuihman**: So I think it's very condescending. This 18 year old girl I picked up in a developing nation is actually why I had a chat. She's playing 4D chess. She didn't have a actual primary education.
+- 8:12:49) **I**: But she's playing 4D chess. Especially Western women say, oh, it's just engaging in the industry. No, they're engaging in relationships. They're engaging whatever they want to do. And it's also very hypocritical. critical because you see women back in the United States who've now turned more than ever to OnlyFans, to sugar dating sites. The girl next door is now on the Sugar Daddy site. So how is it that she gets to criticize you for going somewhere else? And if you were going to pay a lower rate, you're paying a lower rate. You just might be doing it in the course of a real relationship instead of through a Sugar Daddy site like in the United States. So if anything, the United States and.
+- 8:13:25) **JSTLK**: The West, my brother, far more more.
+- 8:13:27) **I**: Into the sex trade than it has in the East. I'll say it like that. You're far more likely to find a natural relationship, a real relationship, than you are in the United States, where you are viewed as a wallet. You're viewed as no more than a bag of money for them to take. They don't believe.
+- 8:13:42) **JSTLK**: I'm so glad that Ethan Klein and Dan Seltzer have both co-signed this guy.
+- 8:13:47) **Kuihman**: Co-signing this guy.
+- 8:13:49) **C**: This guy's fucking awesome.
+- 8:13:51) **JSTLK**: Have you seen this guy's sick addition to the team with Tecton and Nux Taku? let's go, guys.
+- 8:13:55) **Kuihman**: Ladyway mindset. Welcome to the team. Like the deep, which child mine plays.
+- 8:14:02) **H**: Pulled up his website yet?
+- 8:14:05) **JSTLK**: No.
+- 8:14:09) **Kuihman**: The go East website.
+- 8:14:11) **H**: Yeah, it's like, what it was.
+- 8:14:13) **C**: I was like, what was this?
+- 8:14:13) **H**: All my kids searching for this.
+- 8:14:14) **G**: It's actually crazy.
+- 8:14:20) **H**: I put it inside chat. His website, the Gold East website.
+- 8:14:23) **JSTLK**: Okay, Dan.
+- 8:14:24) **Kuihman**: Saltman, I was trying the tiny chat.
+- 8:14:27) **H**: Yeah, I swear to God, he took it down. You can't click on it. I get off his Channel or some.
+- 8:14:34) **JSTLK**: As seen on YouTube. Wait, no way.
+- 8:14:38) **Kuihman**: No way.
+- 8:14:39) **JSTLK**: No way. What?
+- 8:14:40) **H**: I'm telling you, Hassan had.
+- 8:14:42) **JSTLK**: What?
+- 8:14:42) **H**: Told you. That's why I heard Hassan. He's like, Hassan's not live.
+- 8:14:47) **JSTLK**: Let'S go. I saw this guy.
+- 8:14:51) **H**: He has consultation courses.
+- 8:14:53) **JSTLK**: Oh, wait, wait, wait, wait, wait, wait. Consultations. He doesn't have consultations.
+- 8:14:59) **H**: I swear to God, he.
+- 8:15:01) **Kuihman**: Web archive. Web archive. Web archive.
+- 8:15:03) **H**: So I'm telling you, he took this down. This was used to be on the channel, and so he took this down. I think this is cooked. Oh, 2025 special.
+- 8:15:15) **JSTLK**: Oh, bad requests. Hold on. Three captures. Wait, I went to all this.
+- 8:15:23) **Kuihman**: Courses. Courses.
+- 8:15:25) **H**: What's on the screen right now, though?
+- 8:15:27) **Kuihman**: He does consultations. Like, he does do consultations. That was that oldest.
+- 8:15:31) **JSTLK**: Oldest for courses. May. Come on, show me something. It looks like it's gonna be coming soon again. Coming soon. Doesn't look like it ever got updated, unfortunately. Two casters on the team.
+- 8:15:46) **Kuihman**: Yeah. So go to consultations because there was, no, just on the main consultation page. It showed up. It loaded.
+- 8:15:54) **E**: Look.
+- 8:15:55) **JSTLK**: Oh, nice. Oh, yeah. Relocation consultation. Thailand only.
+- 8:16:02) **Kuihman**: Thailand only.
+- 8:16:07) **E**: Dude. Dude.
+- 8:16:09) **JSTLK**: Dude. This is a consultation on the necessary steps for relocation to Thailand, as well as quotes for relocation services and practical matters such as finding an apartment, setting up a bank account, arranging long-term mobile slash internet service, medical care, aesthetic services, or any other accommodations.
+- 8:16:30) **Kuihman**: What does aesthetic services mean? Wait, what does aesthetic services mean?
+- 8:16:34) **JSTLK**: I think that means like grooming and stuff technically, but also or any other accommodation needed upon moving to Thailand. I wonder what other could have possibly been. Dude, do you think Wes used this guy? Man, I feel like I want to know, did somebody use this guy's services? What did he provide? If you, if this guy put you in touch with a pimp, okay? I will give you a lot of money to come forward, okay? I will pay for that testimony right now. I won't pay- you- need proof though. You need proof. I don't know where the proof's coming from, but this is- this is crazy.
+- 8:17:15) **Kuihman**: Show the emails where this guy toyed out a couple of pimps, okay? Show the emails.
+- 8:17:21) **JSTLK**: It gives you a number, okay?
+- 8:17:23) **H**: What's the other one?
+- 8:17:24) **Kuihman**: Yeah, it's Shamoo's so right, being some kind of like rapist or pedophile, it's like- it's like a- Criteria required to hate Hasan. It's like only rapists and pedophiles hate Hasan at this point. It's like pretty crazy.
+- 8:17:39) **JSTLK**: Why? Why is it like this? I can't believe, bro.
+- 8:17:49) **Kuihman**: I can't believe he won. He won, unfortunately, by doing nothing.
+- 8:17:56) **JSTLK**: Get the fucking Denim's tweet again. Hold on. Where's the Denim's, X? Do nothing. Hold on, where is it? Do nothing win. God, I don't know where it is. Someone like me, one of the Denim's rapists.
+- 8:18:10) **Kuihman**: Rapists, pedophiles. Um, yeah, mainly those two, but like sex freaks, degenerates, and like, overweight men and ugly men.
+- 8:18:23) **E**: And.
+- 8:18:26) **Kuihman**: Neurotic Jewish women.
+- 8:18:29) **JSTLK**: Hassan POV. Hassan POV again. It's so up. Okay, wait. Which was the clip that. That Ethan talked about? I gotta know. are people clipping this? I have no idea. This is, like, not meant to be anything. Okay, we don't do our best work late night. I just want to know which video.
+- 8:19:01) **Kuihman**: Dude, we need. That's a legal Cameron F305 Tech time ladyboy mindset.
+- 8:19:06) **E**: The.
+- 8:19:07) **Kuihman**: Absolutely.
+- 8:19:08) **E**: The.
+- 8:19:09) **Kuihman**: The seven of Ethan Klein. Also, I saw this on discourse.
+- 8:19:16) **JSTLK**: Dude, Ethan picked this part, the passport bro part.
+- 8:19:20) **I**: Legal visas and legal residence long term in these countries because they appreciate the culture, the lifestyle, the quality of life, the peace, the safety, the tranquility. These are amazing things about living in Asia. And another amazing thing is that unlike America, and this may be surprising to Hassan, it is not as easy to get away with being an illegal migrant to these countries. So if you tried to illegally migrate to Japan or Korea, very good luck to you, sir, because likely you will end up in the... Wonder why he keeps highlighting Japan and Korea, Japan and.
+- 8:19:55) **JSTLK**: Korea, Japan and Korea. It's almost like he's trying to get away from something else, some other criticism.
+- 8:20:01) **I**: The cell next to Johnny Somali, A.K.A. Ramsey Khaled Ismail, if you try that in Korea. It's not gonna go well for you. So I would insist that perhaps the only person that perhaps between the two of us would be a passport bro is the individual who visited Berlin solely for the purpose of going to a brothel. But that's neither here nor there.
+- 8:20:24) **JSTLK**: Legal. This is Ethan Klein backing this guy up. Hasan should not beef with legal tubers. but the witness, the largest Hassan W we've ever seen in our lives. Again. Again. Oh, God. It just keeps happening. It just keeps happening. Solely for the purpose. Oh, yeah. Solely for the purpose. Hold on. TwitchCon.
+- 8:20:51) **Kuihman**: The thing is, this could all be avoided if it wasn't so safe and incentivized to just blindly, like, support Ethan, like. if there was a little bit of self-criticism or like, you know, self-policing of like, hey, I think, you know, while I'm on board, I think some people are going too far and I'm going to criticize people. I think going to, if there was any amount of that before now, this could all be avoided. But now it's just like, increasingly, it's like every week, it's like, oh, this, this sexual degenerate is fighting with Assad, and he correctly called them a sexual degenerate. Now they're crying about it. Oh, this rapist is fighting with the.
+- 8:21:30) **JSTLK**: Sun, and he correctly called them a rapist, and now they're crying about it.
+- 8:21:28) **Kuihman**: Why it's just like every fucking week.
+- 8:21:32) **JSTLK**: Dude. Like maybe just don't, you know, don't consider it's like genetic for them, right? And I say that like it's in the genes of the commentary community at least that like, oh youh're criticizing like one of the big names. No, no, no. You don't do that. You can't do that. You're being a snake right now. Like you just you see it in like how they bristle when there's some fucking when there's some Some criticism that happens, they close ranks and shit. It's wild. If you just allowed some free criticism, if you just let people when you were like a little wrong- I don't.
+- 8:22:03) **Kuihman**: Know if you saw the message from Nick's Discord, but he said that after speaking to Dan earlier, Dan redacted all the DMs.
+- 8:22:13) **JSTLK**: I did not see that. I would love to see that. Could I see that right now?
+- 8:22:16) **Kuihman**: No, I don't know if there was no my Discord or in Spicey, it's in Spicey. I'm saying nice and spicy. I'm saying nice and spicy.
+- 8:22:23) **JSTLK**: Okay.
+- 8:22:25) **E**: Yeah.
+- 8:22:35) **JSTLK**: Hope you guys liked the Dan and Dario podcast that never happened. He redacted our DMS following the call. LOL. Oof. Oof.
+- 8:22:45) **JSTLK**: Wasn't he saying he was gonna do one with Willie and Dan, right?
+- 8:22:49) **JSTLK**: He wasn't saying that. I think Dan was saying, I'm trying to get deorio and Willy to do a podcast with me. And then there was an announcement that Dan was doing a podcast with Willy.
+- 8:23:00) **JSTLK**: I think Willy's feeling, dude, it's so obvious. It's a trick question.
+- 8:23:05) **JSTLK**: Just, like, hated. Willy can't feel concerned. He doesn't understand the concept of, like.
+- 8:23:10) **Kuihman**: His positions being in danger. He's like. He's like a. It's like a dog. If there isn't, like, an immediate threat in. in his eyesight, then he's got no awareness of it. It's like there's no second order threat. It's just like, it's, it's, I have to be aware of it in the moment.
+- 8:23:23) **JSTLK**: Nicholas is literally on a call with him right now. And.
+- 8:23:28) **Kuihman**: Say, listen, Willie, sometimes when you take, when you take positions, okay, sometimes, Willie, things can happen down the line that make you look really stupid. And Willie's like, oh, what?
+- 8:23:42) **G**: You mean.
+- 8:23:42) **E**: What?
+- 8:23:43) **Kuihman**: But I don't look stupid now. I don't look stupid now. And I think that's how I imagine the conversation going. It's just like that for a while.
+- 8:23:51) **JSTLK**: Tell me about the bunnies again, Nicholas. Tell me about the bunnies. Oh, God.
+- 8:24:01) **JSTLK**: I wonder in a few years if they're just gonna be, like, openly pro Destiny, because, like, you cannot tell me that.
+- 8:24:06) **Kuihman**: Well, he's like. Well, he's, like, literally a day away from it. Well, he's, like, one.
+- 8:24:10) **C**: Like, didn't.
+- 8:24:11) **JSTLK**: Didn't he leave himself, like, a really convenient path in his video? He said something like, people are allowed to change, and if Destiny changes, I'll support him or something.
+- 8:24:20) **Kuihman**: Yeah. He's like, if he. If he showed Contrition and was, like, apologetic, then, I mean, of course I'd forgive the guy.
+- 8:24:28) **JSTLK**: Okay, you can forgive anyone.
+- 8:24:30) **E**: Yeah.
+- 8:24:30) **Kuihman**: Like, these. These people all. It was fine to have that position, but I just. Why? That's in your epic scathing commentary video where usually you would be saying that.
+- 8:24:39) **JSTLK**: Hassan needs to be schmanged for treason.
+- 8:24:37) **Kuihman**: You know?
+- 8:24:39) **E**: Yeah.
+- 8:24:40) **JSTLK**: I don't even understand. Why would you need to forgive Destiny? He'd like, well, who. Who cares? Why are you like, yeah, I agree. Why are you putting that in your video? That's, like, retarded.
+- 8:24:51) **JSTLK**: I mean, I'm fine. I'm. I'm kind of fine with that, but.
+- 8:24:55) **Kuihman**: Like, I'm fine with it in principle.
+- 8:24:57) **JSTLK**: But it's just. We're quote tweeting him. Like, when he's done nothing like that, it's like, just. Yeah, it's disingenuous in and of itself.
+- 8:25:05) **Kuihman**: It's just like, in none of his other videos, only with Destiny would he offer a path to redemption. He isn't going to say, Here's Voskh's path to redemption. Here's the song's path to redemption.
+- 8:25:18) **JSTLK**: Yeah.
+- 8:25:18) **Kuihman**: Here's the Dark Viper AUs path to redemption. I've never heard him say some fucking shit like that ever. Why the fuck you saying about Destiny?
+- 8:25:28) **JSTLK**: It's because you fucking love this guy. I was saying. Because you gay as hell. It's because you love this guy. I don't know. I don't know if you'd agree with this. I feel like probably even more disgusting.
+- 8:25:38) **Kuihman**: It's just the comparisons he does where.
+- 8:25:41) **JSTLK**: He'S like, But he said he basically says like, you know, I don't I don't love this guy, but this guy's really good at explaining stuff. This guy's really.
+- 8:25:40) **Kuihman**: And he goes, he's like, he's like, yeah, sure, Destiny did some bad stuff, but Hunter Biden just got pardoned.
+- 8:25:48) **JSTLK**: Like, that's.
+- 8:25:51) **Kuihman**: What they hunch by and do, by the way, lie on the firearms for him.
+- 8:25:57) **G**: He did.
+- 8:25:58) **JSTLK**: Well, you can tell, like, Hassan's always going to be the guy who brought on the fucking Houthi to Willie. no matter what Hassan does, he's always going to be like an evil fucked up bad guy.
+- 8:26:07) **JSTLK**: I don't even think, dude, the Houthi thing is like so low, I don't understand why everybody got so worked up about it. It's like, I don't even think it's that bad.
+- 8:26:17) **JSTLK**: Why are you not allowed to have people like that on your streams all of a sudden?
+- 8:26:21) **JSTLK**: I think the only thing that got me was Hassan. I think the only thing I could like get a little bit on there was when Hassan said, No, no, there's no, I didn't bring a terrorist on my stream when he was like, yes, a Houthi rebel, a Houthi pirate or whatever. He was like, no, there's no evidence.
+- 8:26:40) **Kuihman**: He'S part of the Houthies. I think that was what I had to focus on. The thing is that he did think he was a Houthi. That's the key point, right? Is that Hassan said he was a Houthi. There was not good evidence to suggest he was a Houthi. He does not seem to be a Houthi, but Hassan did believe he was. So for Hassan to just turn around to the criticism and say, well, there's evidence. He's a Houthi. It's not probably. It didn't matter to you, did it? So let's just, like, own it and say, I don't give a. If he was a Houthi. Just say that. I don't give a. If who's a Houthi. I don't give a. If you like the interview or not, I'll suck off whoever I want to suck off. You know, I just say, just, I basically be like that. Don't do this. Oh, I was doing journalism. I was doing journalism. And you can have anyone.
+- 8:27:24) **JSTLK**: Yeah, you can have anyone on, but some people are going to have criticisms of you know, whether you've pushed back.
+- 8:27:23) **Kuihman**: Enough or interrogated their beliefs or whatever.
+- 8:27:26) **JSTLK**: Right.
+- 8:27:26) **JSTLK**: I don't feel like most people's criticisms is that Hassan thought he brought on a terrorist. It's just like Hassan did bring on a terrorist.
+- 8:27:34) **Kuihman**: Yeah.
+- 8:27:34) **JSTLK**: Because I were told that. Why do I. Why would you care if Hassan brought on a terrorist?
+- 8:27:40) **Kuihman**: Is it so, like, why is it.
+- 8:27:42) **JSTLK**: Suddenly so taboo to talk to, like, people? Terrorism bad. We're all terrorists.
+- 8:27:47) **E**: Terrorists are bad. Okay, well, now that you put it that way, I think I might.
+- 8:27:52) **JSTLK**: I might see where you're coming from. Silver the first thing by far. Sorry, sorry. You can finish around. Then I'm gonna address.
+- 8:27:58) **JSTLK**: No, I. I. Now you can go ahead.
+- 8:27:59) **Kuihman**: People are saying it's about TOS in chat, but that's not very true. A lot of people make strong moral criticisms of a son on the terrorist thing.
+- 8:28:07) **E**: The.
+- 8:28:08) **C**: The thing.
+- 8:28:08) **JSTLK**: The worst thing he did by far is always just going to be the Galaxy leader video showing that to Nick and being like, isn't this awesome? you know, kidnap civilians, like, unrelated.
+- 8:28:16) **Kuihman**: Well, that in the Heads Up Music video, whatever it is, I feel like the Heads Up Music video is just like, why are you just airing? Like, I I understand the guy. The Galaxy Leader video was on, like, every news station. I understand kind of celebrating it is not great, but, I mean, it's like, I I I can give or take it.
+- 8:28:35) **G**: I think.
+- 8:28:36) **Kuihman**: I think just playing straight up, like, propaganda materials are just propaganda materials. and being like, that's awesome is like, I'd say it's like, worse.
+- 8:28:43) **JSTLK**: It's to me, it's not just in that the propaganda materials seem so, like, I don't know, they seem, like, way more obvious and not involving, like, human suffering. Like, the, the actually, like, but that.
+- 8:28:54) **Kuihman**: But that video was on, was on all the, it was on the news and, I don't know.
+- 8:28:59) **E**: Yeah.
+- 8:28:59) **Kuihman**: It's the response to the video, though.
+- 8:29:02) **JSTLK**: It's the, like, laughing and pointing and being like, this cool. Oh, my God. Is this. This is like rust. That was where I was at.
+- 8:29:09) **Kuihman**: It's like. It's like rust. It's like rust.
+- 8:29:12) **JSTLK**: It's an insane thing to say.
+- 8:29:14) **Kuihman**: How does it know like rust? He was right.
+- 8:29:16) **JSTLK**: Yeah, well, the September 11th was kind of like Battlefield 2. It's just weird thing to say. Okay. It's just, like, it's like true, but it's kind of a up thing to say. Okay.
+- 8:29:29) **Kuihman**: 9 11 was like. It was like Battlefield.
+- 8:29:33) **E**: Full.
+- 8:29:33) **Kuihman**: And they added the. The revolution mechanic where you could bring down the buildings. I've.
+- 8:29:38) **JSTLK**: I've never played a battlefield game, so I was out of my depth with that analogy anyway.
+- 8:29:43) **JSTLK**: Big. Big Tower falls over and one of the.
+- 8:29:46) **Kuihman**: Yeah, a big towel full down.
+- 8:29:47) **H**: You played any shooter game here? Is it real clear?
+- 8:29:50) **E**: Wow.
+- 8:29:51) **Kuihman**: Like an elevator.
+- 8:29:52) **C**: You can run.
+- 8:29:52) **JSTLK**: Kenny's mad about getting.
+- 8:29:54) **Kuihman**: I've been a lollycon earlier. Nice. We're like video games.
+- 8:29:59) **H**: Violent.
+- 8:30:00) **C**: Probably.
+- 8:29:59) **H**: Call the FBI.
+- 8:30:08) **JSTLK**: All right, well, I mean, that was an amazing end to the stream. God damn. Oh, what are we gonna do here? I don't necessarily have to end. I was gonna, like, I could keep streaming for a little bit because I'm not getting anywhere. I was gonna, like, spelunk through this VOD because somebody told me. I mean, it was referencing stuff. Let me just check this.
+- 8:30:27) **Kuihman**: Referencing what?
+- 8:30:30) **JSTLK**: Basically like, manipulative relationships and how they got really fucked up by somebody who had a fetish for having power over people and how there was a 10-year age gap in that relationship.
+- 8:30:48) **Kuihman**: That could be anything. That could really be anything.
+- 8:30:51) **JSTLK**: Impossible to say.
+- 8:30:52) **Kuihman**: She could be talking about. I think that's about Leafy. I think that's about Leafy, actually.
+- 8:30:55) **JSTLK**: It could be. Yeah, I think we thought about this.
+- 8:30:58) **Kuihman**: Leafy. Leafy. Can we get Leafy on the line? I think there's allegations against you.
+- 8:31:05) **JSTLK**: I just got to look around and see if I could find it.
+- 8:31:10) **J**: Stressed out anymore because I'm thinking about stuff from the past, and I'm like, oh, and then it feels nice. and it's like, maybe that's what I need to do.
+- 8:31:19) **JSTLK**: Thank you, Sherman, for the so true. Appreciate it.
+- 8:31:22) **J**: Thank you.
+- 8:31:24) **JSTLK**: Okay, hold on. There's more talking here. See if this is. Oh, she comes back. Why is there some candy right here?
+- 8:31:38) **J**: Whose emote is this?
+- 8:31:46) **JSTLK**: I'm just, I'm just, by the way guys, it's okay if you talk over this, I'm just looking around.
+- 8:31:53) **J**: Do I like light blue a lot?
+- 8:31:56) **JSTLK**: I kind of think this might have been it.
+- 8:31:58) **J**: It started to like bother me maybe like a couple of weeks ago. And I'm not sure.
+- 8:32:06) **Kuihman**: How awesome would it be if Melina actually just, you know, came out with it. But I know she won't because this nigga is just like the most unhinged freak and new episode has no shit over her.
+- 8:32:16) **JSTLK**: Like, realistically, anything he did that was bad, almost certainly she would have done some of the same things. She was like 18 when she met him and would have just been 19.
+- 8:32:25) **Kuihman**: It's just like, who the fuck is Mila? Who gives a fuck about... Exactly, that's the thing. Who is Mila? No one gives a fuck about Mila. Like, the idea that we would... chased down some, you know, now 20-something year old, but was 19 to whatever at the time. Girl who's basically quit streaming from what I'm aware of. I've literally never hear her name, so I don't. I don't think she's streaming a whole lot for indiscretions when there is, like, this total insane freak who is constantly still doing the exact same at 36 with massive backing, massive resources. It's like, why would you even dedicate your fucking... No, give us the information. Let's go. Come out publicly. Let's go.
+- 8:33:09) **JSTLK**: Uh, yeah. I would just love for her to, like, literally sue, but she is by far the best case. She would absolutely, like, get it paid out. She honestly, she should just send a demand letter. He would pay, he sent a reasonable demand letter.
+- 8:33:27) **H**: But I just want a Millino Festo. Yeah, she should come out just for my benefit. So Destiny just drops a divorce stream.
+- 8:33:34) **C**: Part two.
+- 8:33:36) **JSTLK**: And just openly threaten her again. So awesome.
+- 8:33:39) **C**: Yeah.
+- 8:33:39) **JSTLK**: Cool.
+- 8:33:40) **J**: Thank you.
+- 8:33:41) **H**: Yep.
+- 8:33:46) **J**: There's a lot of stuff going on all the time with me and, you know, a lot of things that I like, but I. I feel like I haven't been. been able to really look at the stuff that I've been doing, you know, and really think about it. One, two, wait, 1.2 K viewers and they don't chat. I think they just like to listen like a podcast. I would not. If I was watching Twitch, I would not be chatting.
+- 8:34:15) **Kuihman**: They straight Griffin. Be serious now.
+- 8:34:19) **J**: I'm working. I wouldn't be. So I get it. But lurkers rise up. See, they are here. They're. They're, like, engaged, but they're not listening.
+- 8:34:35) **JSTLK**: Sorry.
+- 8:34:35) **J**: They are listening, but they're not chatting.
+- 8:34:39) **JSTLK**: That's what I tell myself, too.
+- 8:34:43) **J**: Yo. Hello. Marta, how you doing? Not even really sure why. They're just stressed out. I think I've been doing like a lot, which has been good, but I haven't had time to process things.
+- 8:35:00) **C**: I don't think.
+- 8:35:01) **J**: Which makes me nervous and confused and stressed out because it's like, it's too much. I've been doing so much. Just look at my Instagram the past month. Or two months actually. No, to be honest. I did a radio show when I got, you know.
+- 8:35:18) **JSTLK**: I'm just looking. I thought maybe it was there. She talked about thinking about the whole thing.
+- 8:35:22) **J**: I think I'm really, I think I'm a big fan of thinking. I think I really like it. But I'm trying to navigate if it's good or not.
+- 8:35:32) **JSTLK**: She just say, I think I'm a big fan of thinking.
+- 8:35:39) **J**: I want to listen to what they have to say.
+- 8:35:41) **Kuihman**: This bitch so dumb.
+- 8:35:43) **E**: Oh.
+- 8:35:45) **JSTLK**: Rude.
+- 8:35:48) **J**: I prefer not thinking.
+- 8:35:49) **Kuihman**: It's gotta be sad.
+- 8:35:51) **J**: I think I'm a big fan of thinking. I think I really like it.
+- 8:35:54) **JSTLK**: Okay, I. That a little tongue in cheek comment to chat. A little bit tongue in cheek. Who's tongue in cheek? Okay. uh huh. Wasn't that bad? All I heard was I I'm thinking I like. I'm thinking I like thinking about thinking.
+- 8:36:08) **J**: I don't know if it's good or not.
+- 8:36:10) **JSTLK**: I think I like thinking. Oh, boy.
+- 8:36:13) **J**: It's almost done. I think it's actually turning out pretty. Thinking about it, reflecting and learning from it and moving on. But just forgetting about it.
+- 8:36:24) **JSTLK**: Possibly promising.
+- 8:36:32) **H**: How you're going through Destiny's the ex-wife stream, man. You're obsessed. I'm saying this is the Destiny right now.
+- 8:36:37) **JSTLK**: Yeah, I am. I am.
+- 8:36:39) **H**: Creep.
+- 8:36:40) **JSTLK**: Yeah, I am. This guy. This guy hates me. This guy wants me dead. If I can watch this. This clip and laugh at him a little bit, I would enjoy that very much. Thank you.
+- 8:36:49) **J**: I don't think drinking or learning from it.
+- 8:36:52) **JSTLK**: I I. Hold on. I think someone just sent me another. clip here. Is this, is this our clip we need? Let's watch this on stream.
+- 8:37:04) **I**: Passport, bro, is interesting because the definition of a passport bro is sent is to me, anybody could be a passport bro. As long as you're leaving the west for the east, I mean, you could be a passport bro. So if you're a guy listening to this channel and you leave the US, you could qualify for the definition.
+- 8:37:21) **JSTLK**: This is funny, but I think you want a little more long form. I think you want probably more of his criticism of Hasan, more of his passport bro is clap at Hasan. Right? You want his passive aggressive, well, I guess you're the passport bro because you need to go to Germany to go to Brothel because it's your only sole purpose. Also, you can throw in this tweet, right? Because I believe this is when he went to whatever it was called Artemis, right? So he was, I'll send you this tweet as well. I believe this is when he went to Artemis and 2019, it's on piker Artemis. 2021 controversy explored his Dan Seltman viral clip. 2019 after a clip wait hold on in 2010 you went in 2010. Okay never mind don't throw that tweet in do not throw that tweet in I knew I had to check it before I was like oh ax ax that tweet ax that tweet that is not a tweet we do our we do our due diligence before we tweet about stuff make a big spectacle Okay?
+- 8:38:42) **I**: Because the definition of a passport bro--.
+- 8:38:44) **JSTLK**: Oh, sorry, wrong one. Wrong one. Back to this guy. Back to this guy.
+- 8:38:49) **J**: They're just forgetting about it.
+- 8:38:53) **JSTLK**: Mm. Wait, Hasan really went when he was 18 to lose his virginity? Really? What? I feel like you made that up, Missy Elliot.
+- 8:39:09) **E**: You.
+- 8:39:10) **JSTLK**: Okay, I lied. Yeah. Yeah, you did.
+- 8:39:14) **J**: Also, if you feel like you need to drink, it's not good, right? I need to put away this a second.
+- 8:39:37) **JSTLK**: I don't know. Sourcing support still does anything with these guys if he's partnered with them at all. But, like, transcript search would be really good on this, unlike these twitch vods.
+- 8:39:46) **Kuihman**: Yeah, no idea.
+- 8:39:47) **JSTLK**: Because they. They have the transcript or whatever in the stream chat thing.
+- 8:39:55) **J**: Probably drink this now.
+- 8:39:56) **E**: Can you even see these ones?
+- 8:39:57) **J**: Chances. You thinking of the future? I was actually thinking about this today because today is a very deep day for me.
+- 8:40:09) **E**: Sorry.
+- 8:40:10) **H**: I'm gonna be that guy. Don't put the whole thing in your mouth and just eat it. Am I crazy? You guys just nibble on this?
+- 8:40:19) **JSTLK**: Girls who weigh 120 pounds usually nibble on most things.
+- 8:40:22) **C**: Yeah.
+- 8:40:24) **JSTLK**: I'm just saying.
+- 8:40:25) **J**: Oh, I already have the responsibility. I feel like I could, but I also feel like I'm not in a mental state to put on a bunch of heavy stuff on my shoulders, if that makes sense. If I can do it and it's not like a big thing, sure. But for me to, like, take. Take a bunch of heavy stuff on my shoulders at the moment is not ideal for me.
+- 8:40:52) **Kuihman**: No, we believe in Melina. She's a fighter. Melina, you're a fighter. Come on now.
+- 8:40:57) **J**: Also because I have been having a lot of stuff on my shoulders for many years, so.
+- 8:41:05) **JSTLK**: Oh, very promising. Okay, very promising.
+- 8:41:08) **E**: I.
+- 8:41:10) **J**: Do feel like making videos and stuff is fun. I enjoy doing that. It's probably the thing that I enjoy the most when it comes to social media. But I also feel at the same time of something deeper than just humor. I like humor, though, a lot. You do that. And I think so. That's the stuff that I'm focusing on. Sweden relationships, drug tea. How do you think your thoughts or priorities in life has changed the last year in terms of staying at home in Sweden. Relationships, drugs.
+- 8:41:43) **G**: Drugs?
+- 8:41:44) **J**: I don't.
+- 8:41:46) **JSTLK**: I don't take- Did this really just close? Seriously? I hope it saved my place.
+- 8:41:52) **J**: I don't take drugs at all.
+- 8:41:54) **JSTLK**: Really?
+- 8:41:54) **J**: The only thing I really do is like, oh, I drink alcohol sometimes and- oh wow. Coffee.
+- 8:42:01) **JSTLK**: How do I- I do not want to shit talk Molina. But I do think she basically just becomes like a copy of the other person, right? I think that's sort of her thing in a lot of ways.
+- 8:42:14) **E**: I-.
+- 8:42:17) **G**: Yeah.
+- 8:42:20) **JSTLK**: Did you say a lot of women or all women?
+- 8:42:23) **Kuihman**: I said a lot. I said a lot.
+- 8:42:25) **J**: Otherwise I don't.
+- 8:42:26) **Kuihman**: And say, oh, no, no, no, no, no.
+- 8:42:27) **JSTLK**: I think I'm like... Not lesbians.
+- 8:42:30) **J**: Had one of a cigarette once this year.
+- 8:42:35) **JSTLK**: That's a joke! That's a joke! Do not- How has things changed this past year? I'm sorry, okay? I did not see you there, I apologize profusely.
+- 8:42:48) **J**: Last year was a big- I did a lot of really big changes.
+- 8:42:52) **JSTLK**: I did- WHY? Okay, I need to- I'm taking my head off my mouse, it's very annoying.
+- 8:42:58) **J**: I did like a giant change. you know, I feel like I had a couple of weeks where I was just like, I gotta do something. Now we're doing something differently, you know? So I started doing that. So my focus this past year has been acting. Has been the main focus. Then there's been some incidents or stuff that's. happened that was not pleasant. That's affected me mentally probably.
+- 8:43:32) **G**: Okay.
+- 8:43:32) **J**: It's kinda annoying.
+- 8:43:33) **JSTLK**: There you go.
+- 8:43:34) **J**: It probably still is and I haven't really been able to really take care of that yet because I've been so busy. I have changed.
+- 8:43:45) **JSTLK**: Let's go.
+- 8:43:46) **J**: Friend groups almost completely. I'm working too much though, I think. I think I'm really, I really am working too much. I think that's also why I lose identity a little bit is because I, I'm just like a machine trying to, you know, here's the next video and here's this and that, and it's like. But also at the same time, you time to process what's going on. I'm getting back to my roots, sister. But also at the same time you realize when you like I was in Sweden, I lived in Sweden, I had my thoughts and my feelings and my opinions on my life eight years ago, ten years ago and then I left and then I felt stuff there differently. And then towards the end of that, I started to miss certain things, and I was like, you know what? I kind of appreciate these things that I don't have here, like being in the US and far away from everything.
+- 8:44:54) **E**: And.
+- 8:44:56) **J**: No one really knows you, and you. You're struggling a lot with a lot of things.
+- 8:45:03) **Kuihman**: Huh?
+- 8:45:04) **JSTLK**: Oh, boy. Yeah.
+- 8:45:06) **J**: You start. You start missing things and you start viewing things. from a different perspective at home. And then you come home and you have that and you're so happy. But then also at the same time, you have a lot of problems that you had when you were here first. So it's like, well, there's good and bad, but the good thing is when I'm here, I can always have the good things from my childhood, which is amazing. And now I can.
+- 8:45:36) **H**: Didn't think of this before you left your country.
+- 8:45:38) **J**: I guess you should not really be regretting things, but there's stuff that I feel like that you feel like me. A lot of the things that I. That was my Persona online years ago, I feel like was never me.
+- 8:45:55) **E**: And.
+- 8:45:57) **J**: It was influenced by other people.
+- 8:45:59) **E**: What?
+- 8:46:01) **J**: And those are things that I'm definitely not proud of. And I feel like, oh, that was so far away from the truth of who I am. You know, it's a good thing as a friend, but I could also be taken advantage of. It's important to also give some time to please yourself.
+- 8:46:16) **Kuihman**: Yeah.
+- 8:46:17) **J**: Time to yourself is the point of them. I think you can consider short films would be awesome. I would really like that. I've been considering it. Yes. I just don't really know how to start doing that yet and also finding the time. Coffee is a dark truth, it is. Occupied with events in your life and put- I've been so- I feel like my brain has been trapped by other people almost my entire life and I didn't start living until last year to be honest.
+- 8:46:51) **JSTLK**: Otherwise it's been... You think she feels like she was trapped in the basement of somebody's mind?
+- 8:46:58) **J**: People controlling my brain so hard. Do you ever think about is this video gonna be bad? Yeah of course sometimes I'm like oh this is something different, they feel better about themselves because they're... Yeah and I think something that oh this really makes me upset people love to criticize other people.
+- 8:47:24) **JSTLK**: Who dat? Oh, what's up, STV Philly? How's it going?
+- 8:47:31) **H**: What's going on? What's up, Jay St. What's up, man?
+- 8:47:34) **C**: We're.
+- 8:47:35) **JSTLK**: I think stream was over, so we just decided to watch this Molina VOD. How's it going?
+- 8:47:39) **H**: Oh, is the stream over? I didn't know.
+- 8:47:41) **JSTLK**: No, no, it's live. Sorry. Like, the time ended. I just wasn't chilling. that time I did. Oh, over time, just having fun.
+- 8:47:50) **JSTLK**: I was like, the guy who killed Doomer media, right?
+- 8:47:54) **H**: That does. That's what they say. I don't know.
+- 8:47:57) **JSTLK**: He.
+- 8:47:57) **H**: Did he. I don't. Did he ever come back? I know he didn't.
+- 8:47:59) **JSTLK**: Oh, you, like, killed him.
+- 8:48:00) **H**: I've never seen him again.
+- 8:48:02) **JSTLK**: I don't think he came back.
+- 8:48:02) **H**: Oh, yeah, that's what he gets. That's what. That's what he gets. What a. That was crazy. I mean, like. Do you remember that whole fucking stupid ass argument where it was like, oh, SDV Philly, it's not fair. You came out early, like you didn't even give him a chance to pay it. And I'm like, guys, he's not gonna pay it. Like he's a fucking weasel, a coward.
+- 8:48:28) **JSTLK**: And everything. I think it was a valid point, but even if you were right, I.
+- 8:48:31) **H**: Think it's a valid point. But it's fine. Right, but at the end of the.
+- 8:48:35) **Kuihman**: Day, what did it change?
+- 8:48:36) **JSTLK**: Nothing, right? He didn't pay.
+- 8:48:38) **H**: I think his Hasan video would even have been good. It would have been the run of the mill. The Marshall was good.
+- 8:48:44) **JSTLK**: No, he was good at writing scripts. He is actually good at writing.
+- 8:48:47) **JSTLK**: I don't know. I kind of, I remember watching recent.
+- 8:48:49) **JSTLK**: Willie Mack didn't seem retarded a lot of the time for like a six month period.
+- 8:48:54) **H**: I think so, yeah. He was writing for Willie Mack for a while for at least like three or four videos. I think. I don't know. I was a little bit behind. So if you guys are like vibing and joking, I didn't wanna, I don't wanna come in here and, and ruin it, but I was I was listening.
+- 8:49:12) **JSTLK**: All right, so you're a topic, man. Go for it.
+- 8:49:15) **H**: I got this burning question, right? So I just real quick, I am not some sort of, like, you know.
+- 8:49:22) **Kuihman**: Predict where you're gonna go with this.
+- 8:49:25) **C**: Oh, sure.
+- 8:49:26) **H**: Take a crack at it.
+- 8:49:28) **Kuihman**: I thought you were coming in for a victory lap on defending a song before everyone else and saying that a song gets so much hate to, like, Tom and Willy Vach and all these people back in the day.
+- 8:49:36) **E**: Huh? You.
+- 8:49:37) **H**: Well, you would be right, but that's not why I came in here. But you are right about that. Came in here to call up MRAU.
+- 8:49:43) **JSTLK**: For his insane race play DMS.
+- 8:49:45) **G**: Right.
+- 8:49:45) **JSTLK**: Well, we don't have to talk about it with Philly.
+- 8:49:48) **JSTLK**: He killed you in the media. Let's get a cracking.
+- 8:49:51) **H**: Yeah, let's get it. Well, look, no. So here's what I don't. Like, Phil, I'm not racist.
+- 8:49:58) **JSTLK**: I just wanna.
+- 8:49:59) **JSTLK**: I got you.
+- 8:49:59) **H**: I got you. It's not. That's not even my question. I'm not a. Like, are you racist? no, here's the question. Listen, I listen to say. I love Sam. I love Sam. That's weird. I get Sam Hyde, right? I get race jokes. It's all funny. It's all good. So we. I got the cream of the crop of, you know, the N-word dmers in here.
+- 8:50:19) **JSTLK**: I got Queenan, J-Stark and.
+- 8:50:22) **H**: Don't DM people the n-word okay.
+- 8:50:25) **JSTLK**: All right, all right, all right. Do not.
+- 8:50:27) **H**: Do not search DMS right now. so the question is, and I just, guys, listen, do I, you don't have to worry about offending me. Just be real with me. Be real with a nigga. You feel me? Listen, what is so funny about that word? What is it? Like, 'cause there's slurs that I technically can't say, like the F word, right? And like, you know, but just saying it doesn't give me some sort of, like, like, innate pleasure. Like, just. Just be real. What is it about the word?
+- 8:50:59) **Kuihman**: You don't worry about it.
+- 8:51:00) **C**: I'm gonna be.
+- 8:51:01) **Kuihman**: Well, you don't get pleasure from it because you're. You're allowed to say it, and we.
+- 8:51:06) **H**: Have pleasure because we're not meant to say it.
+- 8:51:09) **G**: Right?
+- 8:51:09) **H**: But you can say. You can say, right? And that's funny. Like, I get you. Like, when you said it earlier in the stream, Queenman, like, I laughed. It was funny, but, like. And I'm not even saying, like, explain the joke, but, like. Is there anything, is there nothing deeper than that? It's just like a taboo word.
+- 8:51:26) **Kuihman**: It's like using rape for everything. Like anytime someone, like you always say someone's raped or they got raped. The reason you're saying rape is just because it's like, it's the most evocative, edgy way of saying that rape. And people don't like caring about rape generally. So you say rape, it's like the same with the N-word. They don't like hearing white people say the N-word sometimes.
+- 8:51:46) **H**: So these guys grew up on 4chan.
+- 8:51:48) **Kuihman**: And within the nature.
+- 8:51:51) **H**: Yeah, but you guys are not 17 year olds, right?
+- 8:51:55) **C**: Huh?
+- 8:51:56) **H**: You think it rolls off the tongue.
+- 8:51:59) **Kuihman**: And actually, everyone is a 17 year old, sacredly. Okay.
+- 8:52:04) **H**: I'm not in here.
+- 8:52:05) **G**: I feel like.
+- 8:52:05) **JSTLK**: I feel like any sentence or any.
+- 8:52:07) **JSTLK**: Insult is, like, funnier with the n-word behind it.
+- 8:52:10) **H**: Sure. I mean, all right, so, like, you're looking gen chat.
+- 8:52:13) **JSTLK**: I'll do, like, a. I'll do, like, a.
+- 8:52:14) **Kuihman**: Like, there is also just the whole thing of, like, you know, it is. sort of.
+- 8:52:19) **E**: Yeah.
+- 8:52:19) **Kuihman**: Like, like that GTA line. You do hear it used a lot in, like, funny ways and, like, media and. And then you want to use it. You know, you think of funny applications for the n-word and it's like, it makes it even funnier that you're not meant to say it, you know?
+- 8:52:32) **JSTLK**: So you feel like, well, one of those is substantially more funny than the.
+- 8:52:35) **H**: Other one because I'm trying to think of a word that I can't say that I, like, that would just, like, I would bust out laughing saying it. to be fair, we laughing because Mau.
+- 8:52:47) **JSTLK**: Is out of his mind. The context for that stuff is way different than, like, just saying, like, a. A hero there. Yeah, it's not like if you just say it, everyone's gonna bust out laughing.
+- 8:52:57) **Kuihman**: But this is in the context of Mau talking to a black girl online and having her write the end. When hard are on her tits for him, which is just like, she thought that was. Well, allegedly, I don't know.
+- 8:53:07) **H**: I mean, to be.
+- 8:53:08) **JSTLK**: To be fairly, I just want. I'm. I'm a longtime fan. You killed different. I like, I like you. I just wanna, like, allegedly, I didn't, it's not confirmed that that happened.
+- 8:53:17) **Kuihman**: Nobody is, it's pretty confirmed.
+- 8:53:19) **JSTLK**: Well, I just wanna like, like me and you, I just wanna like, we have a good standing. I don't wanna, you know.
+- 8:53:25) **H**: Yeah, no, trust me, I'm not even like in here to even question any of that. I do not care at all. It was more just of, I like what Queenman said, like he attempted to give me a, you know, a well thought out answer. And I appreciate that because it. Yeah, it's not like it offends me, right? I'm not sitting here like, oh, God, like, these guys are racist for saying that word. It's just like. Like, I get all your humor, Queenman, J-Stark, I get a lot of your humor. I don't watch you as much, but I'm sure you, you, you know, I'm.
+- 8:53:57) **C**: Not interested in me at all sometimes.
+- 8:54:00) **H**: But you cover topics that I'm not really interested in, like. and, like, Lolly's.
+- 8:54:08) **JSTLK**: Legal mindset.
+- 8:54:10) **H**: No, the.
+- 8:54:12) **JSTLK**: Oh, Japanese mindset. Oh, yeah.
+- 8:54:15) **Kuihman**: Same rap model covers a little stuff. Yeah.
+- 8:54:19) **H**: Oh, the pedophile.
+- 8:54:21) **E**: Yeah.
+- 8:54:22) **H**: But anyways, but. So I get the sense of humor for. For everybody, but it just. I don't get it when, you know, I think.
+- 8:54:28) **JSTLK**: I think what you need to do, you need to go on, like, Wikipedia and look up, like, a list of. like slurs. You need to find like a really obscure one that nobody even knows is a slur. And start like using that. Okay.
+- 8:54:40) **G**: Like repeat.
+- 8:54:41) **H**: It's not about a security.
+- 8:54:42) **JSTLK**: It's not about a security. There is like, I think it's not a security. Stop it. There is, hold on, there is one that always makes me laugh that won't make me laugh in this case, but I would need the right to say it. Okay.
+- 8:54:54) **H**: It's just always funny. I give you a green light to.
+- 8:54:57) **JSTLK**: Say whatever you want. Okay, it's moon cricket. That one I don't understand. And it is just always funny no matter when I, if I ever hear it used like casually in conversation, conversation. I'm like, I, like, I actually just burst out laughing.
+- 8:55:10) **E**: Yeah.
+- 8:55:10) **JSTLK**: I didn't realize the porch monkey was a slur until recently. I grew up around a lot of people that said porch.
+- 8:55:16) **Kuihman**: I play the clutches too, but.
+- 8:55:18) **H**: Yeah, that's the classic one.
+- 8:55:19) **E**: Yeah. Yeah.
+- 8:55:21) **H**: Like, Snow Roach, you know, I mean, obviously, like, yeah, there are.
+- 8:55:27) **JSTLK**: I didn't realize Honky was a slur either. Honky's apparently, like, a white slur or.
+- 8:55:32) **H**: That'S like the lightest of light slurs, though. That's like calling somebody a negro or something.
+- 8:55:38) **Kuihman**: I think.
+- 8:55:38) **JSTLK**: I don't even know.
+- 8:55:40) **Kuihman**: I would call a black person a negro personally.
+- 8:55:43) **H**: Is it?
+- 8:55:46) **JSTLK**: Why not, Queen Man?
+- 8:55:48) **Kuihman**: That just. That's got, like. I think I would honestly rather go the hard R than negro. I feel like that. Like, I'm willing to say it just because it is. I know it isn't as quite off limits. But it's just got such an old-timey head to it that it's just like you actually think of these people as like subhuman, you know?
+- 8:56:02) **JSTLK**: It's like you can just like, yeah, exactly. It's like they are other and it's like a casual other. It's not like a I hate you, I'm gonna fuck with you other.
+- 8:56:11) **Kuihman**: It's like a, no, you are clearly lower than me. It's like, yeah, you're like below me.
+- 8:56:17) **H**: Yeah, I'm looking at it. Yeah, yeah, it's just got that tinge to it or it's like, hey, that's a little bit uncomfortable. I hate you so much. I'm gonna reach back 70 years for a word that nobody has said forever. wasn't even a slur back then, but you'll get it when I say it. Yeah, no, you're right. Like, because why would somebody call somebody a nigger?
+- 8:56:36) **Kuihman**: Something.
+- 8:56:36) **JSTLK**: Sorry.
+- 8:56:37) **H**: She was out of. She's out of pocket. Tree of logic.
+- 8:56:40) **E**: Yeah.
+- 8:56:42) **H**: Minnie's monster. That's. I mean, that's a little funny, right?
+- 8:56:45) **Kuihman**: I say, you call him white people like mayonnaise. Monster. Like snow monkey. That shit's funny as.
+- 8:56:50) **G**: Like.
+- 8:56:53) **JSTLK**: It is always funny.
+- 8:56:55) **H**: All right, all right, all right, guys, so I I got you. I I just really wanted to kind of get what you, your opinion on that, because I just never get it when you guys bust out laughing over there.
+- 8:57:07) **Kuihman**: Oh, those are. Have you ever seen the old Garzi codzo videos where, where he's, like, talking about cave beckies. He's still like cave beckies and awesome.
+- 8:57:21) **H**: Oh, all right, all right. I'm gonna just mosey on out of here. Chuck and Jive on out there. What were you saying earlier?
+- 8:57:30) **JSTLK**: Okay, dude. Well, thank you for. Thank you for coming on.
+- 8:57:37) **H**: All right, y'all be safe.
+- 8:57:38) **Kuihman**: All right, catch you later.
+- 8:57:39) **JSTLK**: You too. See ya.
+- 8:57:40) **JSTLK**: Black people are stuff.
+- 8:57:41) **H**: Hey, listen.
+- 8:57:42) **Kuihman**: Okay.
+- 8:57:42) **JSTLK**: Your wife is white, so we're gonna.
+- 8:57:44) **H**: Stop the black talk right there.
+- 8:57:45) **Kuihman**: Stop the black talk right there. if she got a weave, she will be asked to leave. If she gotta weave, she will be asked to leave.
+- 8:58:01) **JSTLK**: I think I told this on. I think I told this on stream before.
+- 8:58:03) **JSTLK**: I said a snow dummy. Sorry, I said a really racist.
+- 8:58:09) **JSTLK**: I said a really racist joke in front of, like, two black girls at school one time. When I was in, in high school, I didn't realize it was racist until my friend had to take me aside and explain to me what I had done. I, you know, you know, when you put, like, a cup on your mouth and you, like, suck in and when you take it off, like, your lips are all bigger.
+- 8:58:28) **Kuihman**: Oh, my God.
+- 8:58:31) **JSTLK**: So my friend at lunch did that, and I was like, dude, you look black.
+- 8:58:35) **Kuihman**: Or, like, you.
+- 8:58:35) **JSTLK**: Your lips look like a black person's or whatever. And we were sitting right next to this pair of black girls. and they heard it and they looked at me and they're like, they gave me this like look of disgust and the rest of the year they like looked at me like they hated me. It's very unfortunate. I didn't realize the implications until it was explained to me. I didn't understand that it was actually-.
+- 8:58:53) **H**: But you were in high school.
+- 8:58:55) **JSTLK**: I just- oh, sorry.
+- 8:58:59) **Kuihman**: Brain dead.
+- 8:59:00) **JSTLK**: How old are you in seventh grade?
+- 8:59:01) **C**: Like, 11?
+- 8:59:03) **H**: School, but even then you're still brain dead, you're like 12. in seventh grade.
+- 8:59:07) **JSTLK**: Hold on.
+- 8:59:09) **JSTLK**: 12.
+- 8:59:09) **JSTLK**: Don't do that math in my head.
+- 8:59:15) **JSTLK**: Like, yeah, 12 or 13. Yeah, I guess.
+- 8:59:18) **E**: But.
+- 8:59:21) **JSTLK**: It just never crossed my mind because I. I didn't grow up, like, thinking.
+- 8:59:26) **H**: Here you go.
+- 8:59:28) **C**: What?
+- 8:59:30) **JSTLK**: Come on, man.
+- 8:59:31) **JSTLK**: I think he doesn't like thinking. what?
+- 8:59:35) **JSTLK**: I like thinking. I'm a big fan of thinking. Recently, I found out.
+- 8:59:40) **JSTLK**: Yeah, dude, the legal mindset. The legal mindset conundrum. I can't. Dude, there's no way he got so uppity. It's still, like, mind-blowing he got so uppity when Hassan calls him a passport, bro. He's got this entire Channel. His entire fucking website on the white women are too hard to date. They're all sugar. They're all sugar babies. I don't want to date these white women. Go East, boys. Go East. Books, events, courses, consulting, books. Ain't no way he wrote a book.
+- 9:00:19) **E**: What?
+- 9:00:20) **JSTLK**: Books.
+- 9:00:21) **Kuihman**: Are you getting the rest of the Malena stuff?
+- 9:00:23) **JSTLK**: Coming soon. Yeah, we're getting the rest of the Melina stuff after this. I I open my streamable, so I last Friday night, contractually obligated epic song. Epic. Last Friday night, Adolf Hitler.
+- 9:00:45) **I**: If you can hear me, please sing.
+- 9:00:50) **G**: Hit.
+- 9:01:01) **E**: One.
+- 9:01:04) **JSTLK**: This is just like the kind of that. Yeah, dude.
+- 9:01:10) **Kuihman**: Oh, you see all your tweet. Someone said some to him and he was like, I'm Hitler. Something like that.
+- 9:01:18) **E**: No.
+- 9:01:19) **JSTLK**: Ah, good shit.
+- 9:01:21) **JSTLK**: I really wish Auggie streamed more.
+- 9:01:25) **JSTLK**: Dude, this guy's the gayest Jew hater I've ever seen. Are Jew haters, like, infamously straight or? That's interesting. That was an interesting comment. Okay, okay. All right, we're back to the Molina stuff. Wait, what did you ask Marow? Sorry.
+- 9:01:48) **JSTLK**: I don't think I asked anything.
+- 9:01:50) **J**: Probably because it makes them feel better about themselves because they're probably criticizing themselves a lot too. But really when it comes to people and people doing bad things in the past or doing things that they're not proud of, I think it's perfectly okay for people to move on, you know, and be be a different person. I don't think you should be like, oh, this is who you are because you were this 15 years ago, you know? I don't think so. I think we need to make, like, because everyone has something in the past that they're like, it's legit every single one and probably something pretty heavy for everyone, too. And I. Yeah.
+- 9:02:31) **Kuihman**: Very intelligent young woman. I can see why Destiny said she was so smart for so long.
+- 9:02:35) **C**: It's kind of like saying like your.
+- 9:02:37) **E**: Seven year old like kid is smart.
+- 9:02:39) **JSTLK**: Like you pick him up. It's just like I feel like it has to be pointed out that this.
+- 9:02:43) **Kuihman**: Disgusting pervert was like lying constantly when he told his audience. Oh, I know he said that 19 year olds are essentially 15 year olds and they're all like children. I would never fuck them because that would be like insane and it would be like a really weird manipulative relationship in my view because I know I would just manipulate some fucking teenager. I could just like completely subsume the personality. Actually, the thing is that she's really smart and worldly. It's like, I don't personally think that you could never date a 19-year-old. But when you've laid out exactly how it would go, and then it seems to go that way, it's like, okay, well, it seems like you did kind of just pick up this girl who could barely talk English who was hot, who you could have around as like a subservient. Dude, the toddler housewife.
+- 9:03:27) **JSTLK**: Let me tell you, this is when he's in the red door, he's like criticizing. Passport bros or people who get like mail-order brides and you like go through the actual circumstances of him bringing Melina to America and it's like wait on paper you write this out. It does not seem that good, right? Met this girl super young in another country. She couldn't speak English very well. You brought her there. She's dependent on you for a green card and all of her income. You get her to do a job that depends on you entirely to maintain that job, right? Like it's like, oh, this is wait.
+- 9:03:57) **Kuihman**: There's some weird shit going on here, isn't there?
+- 9:04:00) **JSTLK**: There's some red flags being thrown up here.
+- 9:03:59) **Kuihman**: That's interesting.
+- 9:04:02) **J**: If they understand that this is bad or this is something you want to change, it's like good. But I don't think people should be, you know, captured as this is you when you're trying to be a better person. You're trying to change for the better. keeping slang. Oh, thank you. Appreciate it. I'll see you later.
+- 9:04:36) **Kuihman**: Yeah. I don't remember having English issues, bro. Okay. Did you just, like, not watch the streams? You first, like, showing up. I was. I was a pretty regular viewer back then. I feel like she did not speak great English when she first started.
+- 9:04:47) **H**: We're not all super fans like you.
+- 9:04:49) **JSTLK**: I thought she literally used to say that, that she didn't speak good English when she came to the states, and that was what was challenging. I thought she said, yeah, I feel.
+- 9:04:56) **Kuihman**: Like that was a point. That was like a point of issue in that relationship.
+- 9:05:02) **H**: Guys were super fans. Not everyone was there.
+- 9:05:06) **JSTLK**: I wasn't there.
+- 9:05:07) **H**: This guy was your father.
+- 9:05:08) **JSTLK**: When did you first start watching Destiny? Queen. I know you said.
+- 9:05:11) **Kuihman**: When did I first saw watching Destiny? I saw it. Why? Why? Why? I can't. I literally. I always forget whether I saw the naked ape video or the Jon Tron debate first.
+- 9:05:22) **E**: But.
+- 9:05:24) **Kuihman**: I remember watching the naked ape video and being like, oh, it's funny that he does these incest debates and. And. And he owns people in them. That was basically it.
+- 9:05:33) **JSTLK**: I feel like the naked ape video makes Destiny seem like. Like, a little bit.
+- 9:05:37) **G**: Like, yeah.
+- 9:05:38) **Kuihman**: If you don't go and, like, watch the material behind it, like, a lot of it is bad for him, regardless. But if you don't go watch material.
+- 9:05:43) **JSTLK**: Behind it, then it's the guy.
+- 9:05:45) **Kuihman**: It looks absolutely retarded.
+- 9:05:48) **H**: This guy takes us on a tour.
+- 9:05:49) **Kuihman**: Let me go watch him. Let me go watch him. Yo, this guy ignored my DM and.
+- 9:05:54) **G**: Did not even, did not even go live.
+- 9:05:56) **Kuihman**: It's crazy. I'm going live next week.
+- 9:05:59) **G**: Yeah, you've been saying that for three weeks, bro. I probably won't fucking say it. Listen, I've been busy, man. I've been busy. But no, this, here's the thing. I get too bored of commenter shit.
+- 9:06:11) **JSTLK**: Too easily, you know what I mean?
+- 9:06:08) **G**: Yeah, it's like, it's, it's.
+- 9:06:10) **JSTLK**: I think you need to kill Nicholas.
+- 9:06:12) **G**: Diorio, and then maybe he'll be. No, he's based now. He's based now.
+- 9:06:18) **JSTLK**: Did you see what you see his new stream tonight? He, like, he's, like, in the carrier. He's like, oh, Dan.
+- 9:06:25) **G**: Dan redacted my DMs. He's, like, crying and himself.
+- 9:06:28) **JSTLK**: Dude, you read that as insecure. He's exposed.
+- 9:06:32) **JSTLK**: He's, like, freaking out.
+- 9:06:34) **G**: He's, like, freaking out and crying, like, going into his little Discord hug box and, like, freaking out. Right now, I was just trolling. see, I see that it's just he's exposing Dan. Dan's, like, freaking out. Dan's mad at how that debate went. Dan's mad. This is my cabal sweep. Dan's mad. Deorio's exposing him. Deorio is.
+- 9:06:48) **Kuihman**: Wait, but there is no exposing Dan. You realize that, right? Dan will always say, I'm saying what.
+- 9:06:53) **JSTLK**: I need to say.
+- 9:06:54) **Kuihman**: Win, bro.
+- 9:06:55) **G**: I I don't know.
+- 9:06:57) **JSTLK**: This is how you lie about people. I know nothing.
+- 9:07:00) **C**: Does he really say that?
+- 9:07:01) **G**: I know nothing about Dan.
+- 9:07:02) **Kuihman**: Yeah, Dan is an open, outright, sides-cocked liar. He is just like, he will say what he has to say to win. So an open liar.
+- 9:07:09) **G**: That implies that he goes on stream and he's like, I'm lying. I know that I am, but I don't care.
+- 9:07:15) **Kuihman**: I've had conversation with him on JS's stream where he literally says that he.
+- 9:07:20) **G**: Doesn'T really care about truth he cares about winning.
+- 9:07:23) **JSTLK**: Winning? Yeah. He literally said, I'll say whatever I have to.
+- 9:07:26) **G**: What is he fighting for?
+- 9:07:27) **Kuihman**: For the Jews in Israel and against Hassan.
+- 9:07:30) **G**: Unironically for the Jews, for his children.
+- 9:07:32) **Kuihman**: It's like a mix of personal. Yeah, it's personal vendetta against Hassan and the Jews. Okay.
+- 9:07:40) **G**: What is this personal vendetta? Okay, is it really like about- Sliding.
+- 9:07:44) **Kuihman**: Destiny, sliding their group, whatever.
+- 9:07:47) **G**: This feels like I'm walking to like some like anti-Semitic trap. I don't know.
+- 9:07:51) **Kuihman**: No, you're not legit.
+- 9:07:52) **JSTLK**: Dan, he said- There's no proof in the picture.
+- 9:07:55) **E**: Yeah.
+- 9:07:55) **Kuihman**: Yeah. For real.
+- 9:07:58) **G**: Well, he's Jewish. He can get away with it. I'm not.
+- 9:08:01) **JSTLK**: I know. I know. I play this game, too. I know that.
+- 9:08:05) **Kuihman**: That will say, like that. They're saying crazy about my people. They're saying crazy about my people. Pay against my people is allowed on this platform. We should stop it. He'll say this.
+- 9:08:14) **G**: I did see this screenshot. I'll send it to J stock. This is like Dan from diario's chat tonight. and I just take this stuff as, like, jokes, but, like, you guys are telling me this is, like, legit. This is so funny to me. This is when Diorio was watching, I think, a legal mindset.
+- 9:08:34) **JSTLK**: Oh, my God. You want to watch some awesome legal mindset stuff?
+- 9:08:38) **Kuihman**: No.
+- 9:08:39) **JSTLK**: Wait, hold on. Do you know which video Dario watched? Did he watch the defamation?
+- 9:08:44) **Kuihman**: It was the doxing one. It was the doxing one.
+- 9:08:46) **JSTLK**: Oh. Lucky.
+- 9:08:47) **G**: You know who was telling me a lot about legal mindset last night? Hey, my boy, Ethan Ralph. Me and Ethan Ralph were dming a lot last night.
+- 9:08:55) **E**: Yeah.
+- 9:08:55) **G**: And he.
+- 9:08:56) **Kuihman**: He told me some people both drunk on Twitter on Fourth of July.
+- 9:09:00) **G**: Yeah, he told me some crazy stuff about legal mindset.
+- 9:09:06) **JSTLK**: Did he tell you that he's, like, runs a website that sells consultations to move people to Thailand? and explicitly like says you need to flee the West because white women are all whores who go on Sugar Daddy websites.
+- 9:09:20) **G**: He did, he did point me in that direction. He didn't go into that much detail though. That's crazy. He told me, he says he helps other expats in the area with their immigration. No other reason to go to Asia permanently, let's be honest. And then Ethan Ralph was talking about some other stuff like pandering and receding drama and stuff like that. I don't really know that stuff. But yeah, he told me, He's not a big fan. Legal dick sucker is what he calls them.
+- 9:09:42) **Kuihman**: We got a ladyboy mindset.
+- 9:09:46) **G**: Thailand only?
+- 9:09:47) **JSTLK**: Yeah, relocation consultation. This is one of the services he offers. Tells you how to set up your apartment, bank account, internet, phone, medical care, aesthetic services, like haircut and shit, or any other accommodation needed upon moving to Thailand. I feel like this guy definitely hooks people up with massage therapist hookers and shit.
+- 9:10:08) **G**: I almost, like, low-key, when Ralph sent me that DM, I thought there was, like, some hyperbole going on there, some trolling, I don't know. But I didn't know that this is literally on his fucking website.
+- 9:10:21) **Kuihman**: Yeah, he is using Hassan of defamation for saying that he's a passport, bro.
+- 9:10:25) **JSTLK**: Okay, I don't know. I don't know if this clip is.
+- 9:10:29) **G**: Cut together exact, but here, I'll throw this clip up and see if- okay.
+- 9:10:33) **Kuihman**: Well, Hassan had to have gone harder than that, right? Didn't- did Hassan say that he's a fake lawyer?
+- 9:10:40) **G**: He said he's a fake lawyer was.
+- 9:10:42) **Kuihman**: Probably the hardest he went. Okay, that's probably the worst thing he.
+- 9:10:39) **G**: Said was fake lawyer. Not that he's some like pedophile fucking.
+- 9:10:43) **JSTLK**: Underage lady boy in Thailand.
+- 9:10:45) **Kuihman**: He's held back from the Elon Musk criticism. He didn't go that way. Yeah, he said he's a passport bro. He said he does like right wing, like rumble lawyer streams or whatever the.
+- 9:10:56) **E**: Fuck and he's a fake lawyer. That's basically it.
+- 9:11:00) **G**: Wow.
+- 9:11:00) **JSTLK**: Trying to get this clip cut together right now. Let's see if this, let's see if.
+- 9:11:05) **I**: This delivers it correctly. Hassan has slandered me, committed some defamation in response to my reaction to what was going on with Twitch and the situation with Twitch. So today I'm going to respond to that publicly, clear up some of that misinformation, and also talk about some hot water that Hassan may be in legally in the state of California. Of course, I'm Andrew Esquibier, American attorney, and this is the legal mindset we teach you to be your Your own judge.
+- 9:11:31) **JSTLK**: Offers fucking courses on becoming a passport.
+- 9:11:34) **C**: Bro who primarily fucking streams on Rumble.
+- 9:11:38) **I**: Neither one of those things are true. I do not have a single course on becoming a passport bro, and I do not primarily stream on Rumble. I only stream on YouTube. So yeah, there we go. Passport bro is interesting because the definition.
+- 9:11:51) **JSTLK**: Of a passport bro is sent is to me. So this is another video. I think you need to get let him do his whole definition there. Fox. You let him do his whole definition for the end. I didn't realize it's a nice smash cut, but trust me. Anyway, this is another video he did. So basically he says definition of a passport bro, somebody who's like going here to like get sex only or something and temporarily and like I'm a permanent I can actually probably pull it up.
+- 9:12:15) **I**: But do I have it here? I do have it here. And I do not primarily stream on Rumble.
+- 9:12:21) **C**: I only stream on YouTube. So yeah, there we go. Why do you guys come in here? and ask for this stuff.
+- 9:12:25) **I**: It's interesting because the definition of a passport bro is sent is typically someone that would visit a location for a short period purely for sexual purposes. And for anybody who knows anything about me, I'm a long term resident of several countries in Asia. I've been a resident of the Republic of South Korea, the Kingdom of Thailand, the Philippines and Japan. These are all wonderful amazing countries.
+- 9:12:50) **JSTLK**: And I do help.
+- 9:12:50) **E**: What is bro doing?
+- 9:12:51) **JSTLK**: What is he doing? Yeah. Like, why?
+- 9:12:54) **Kuihman**: Why have you been arrested in all those countries?
+- 9:12:56) **JSTLK**: That's why. So that's, that's what he does. And then he's like, but I'm not a passport, bro, because I'm a permanent resident. And then we go over to his, go back to this clip here where I threw the clip up right here.
+- 9:13:09) **I**: This is anybody a passport, bro. As long as you're leaving the west for the east, I mean, you can be a passport, bro, so. If you're a guy listening to this channel and you leave the U.S., you could qualify into the definition.
+- 9:13:21) **G**: Amazing. He literally says the phrase, like, right there.
+- 9:13:26) **E**: Yeah.
+- 9:13:27) **JSTLK**: Yeah. And it's like anybody who leaves the West for the East could be a passport, bro.
+- 9:13:31) **Kuihman**: Any guy watching that channel who leaves the West for the East could be a passport, bro.
+- 9:13:37) **JSTLK**: The entire tagline for the channel is helping the everyday person escape the collapsing West for the East. We will have information on visas, relocation, housing, businesses, and more with unfiltered no BS explanations offering practical advice for those.
+- 9:13:50) **Kuihman**: Looking to make a permanent change.
+- 9:13:52) **G**: So, did he deny being right wing in his video? Yes. Because he doesn't play any politics in his videos.
+- 9:13:58) **Kuihman**: Yeah, it's so retarded.
+- 9:14:00) **G**: But then his language is like escaping the collapsing West.
+- 9:14:04) **Kuihman**: I mean, that's obviously right wing. Yeah, yeah. And there's a bunch of videos about, Who's ruining anime with wokeness and shit like that? It's all just like the most like, he does like right wing law slop content. And he says he doesn't do drama as well. He claims he doesn't cover drama as well, but he literally covers dramas that don't even have a lawsuit involved. He would just like try and put a legal analysis on it.
+- 9:14:28) **G**: Yeah, speaking of another guy that doesn't cover drama anymore, I saw Destiny's video on you, you put out yesterday.
+- 9:14:35) **Kuihman**: Oh yeah.
+- 9:14:36) **G**: Yeah, he said that mentally ill girls, when they get fucked, they're getting raped or something like that.
+- 9:14:44) **JSTLK**: Yeah, which is an obviously retarded position that he's just maliciously lying to try to put on me. And, you've got only the lowest IQ individuals on the planet could possibly believe that, right?
+- 9:14:56) **E**: Yeah.
+- 9:14:56) **G**: If somebody has a clip of you making that claim, you're cooked. But I haven't seen that yet.
+- 9:15:02) **JSTLK**: So I know somebody believes it.
+- 9:15:07) **G**: What is this here?
+- 9:15:08) **JSTLK**: Not Willie, I know somebody who loves throating Destiny's cost.
+- 9:15:11) **G**: Oh my God.
+- 9:15:12) **JSTLK**: It's nobody in any leaks.
+- 9:15:14) **G**: Everything Destiny is saying is true and this is the same guy Drew Sokal who spent the last year saying having sex with mentally ill people equals rape. Yeah, see, I'm waiting for that clip to be produced because I've never heard you say that claim. I thought like calling Destiny rapist is because And again, calling him a rapist is hyperbole, I assume, at least from you guys, right?
+- 9:15:34) **JSTLK**: Like, we're talking, he's not literally a rapist. I don't think we literally accused him of rape. We would say the term e-rapist, and.
+- 9:15:42) **G**: Then we'd say, like, explicitly it means violence. Because he... He hates electronic hate. Yeah, he doesn't care about girls consent. He'll share their nude imagery with any random person on Discord. I thought that's where the rapist thing.
+- 9:15:56) **Kuihman**: Came from, not like the, he goes after BPD girls.
+- 9:15:56) **JSTLK**: It wasn't even that.
+- 9:15:57) **Kuihman**: It was specifically about the audio recording thing. It was like you're using an electronic device to violate someone's consent in a way that they would completely reject the interaction if they knew you were doing.
+- 9:16:08) **E**: Right?
+- 9:16:08) **Kuihman**: So, like, it's sort of like we think of, like, I think most people think of, like, any kind of rape by deception as, like, it only Rises quite to that level if they would, like, completely reject the situation and have, like, some kind of trauma or something because of it, if they found out the truth. And that absolutely applies to situation. And then electronic means was used. So you could, you can easily make an argument. E rapist applies. Obviously, it's a tongue in cheek hyperbole, but it's like a very specific argument that isn't just, well, you've, you've mentally ill women. So you're a rapist, actually.
+- 9:16:46) **G**: Like, that's not what anyone was saying.
+- 9:16:49) **JSTLK**: Right.
+- 9:16:49) **G**: Well, the criticism about him mentally ill women, I thought, was just more so, like, you can't really feel sorry for him when they explode on him because he knows what he's getting into by engaging with people that are, you know, like that, right? It's like you can't feel bad. It's like, oh, this woman's, like, exploding on him and exposing all of his stuff and going crazy and nuts or whatever.
+- 9:17:08) **E**: Right.
+- 9:17:08) **G**: But it's like he knew what he was getting into, so who. Who cares?
+- 9:17:12) **Kuihman**: I thought that's kind of. Maliciously uses that mental illness against them as well, right?
+- 9:17:18) **JSTLK**: Yeah.
+- 9:17:20) **G**: Maliciously. Yeah, I guess so.
+- 9:17:22) **E**: Yeah.
+- 9:17:25) **G**: I don't know. Yeah, I saw that. I was just like, I. I mean, if somebody has a clip of you making that argument, obviously, again, they've got you dead to rights, you know, but. But I just haven't.
+- 9:17:35) **JSTLK**: I feel like if somebody had a clip of me making that argument, wouldn't that just be a clip that constantly get thrown in my face is me saying something totally and it prevents me from actually. Correcting on the issue.
+- 9:17:44) **Kuihman**: Doesn't this testing guy always say, if someone says something about me, just ask for a clip or just ask, you know, show me that actually happened. Doesn't he always say shit like that?
+- 9:17:53) **E**: Yeah.
+- 9:17:54) **Kuihman**: He doesn't do it for anyone else.
+- 9:17:56) **G**: Very curious. Interesting.
+- 9:17:57) **JSTLK**: I'm waiting for it, but we'll see. Yeah, he like actually, like unironically, I realize you had to take my word on this. He actually just maliciously lies about like everybody who walked away from him, who like was around, yeah, like everybody. He just maliciously lies constantly. Like knowingly, like he will youl could have had a conversation with him about a topic. He will know your feelings, know that something annoys you, know that it's not the truth, and he will use that against you intentionally. Just consistently.
+- 9:18:23) **G**: Oh, I know for a fact he maliciously- Destiny is a guy who's very comfortable lying about anything if he knows he can get away with it. Like I've heard him debate with Nick Fuentes before. and Fuentes will bring up how Destiny tried to get his Twitch account flagged. And I've heard like three different Destiny Nick Fuentes debates where that situation is brought up. And Destiny literally has a different story every single time and all of them are incorrect where he's talking about like, because I was there, I was a Destiny watcher around 2019, around that time that this whole situation happened. I remember what happened, you know, they did that whole debate with Trainwrecks TV. Moderated by Asmongold and after that debate Destiny was like hey like Nick says some stuff like here's here's the way to flag his Twitch channel and stuff like that and then a day after that it was banned and anytime Nick presses him on that you know Destiny will give like a different story of like either that never happened or he did it first context is totally different or yeah, exactly like that so it's like I know for a fact just watching Destiny myself that he does Feel comfortable, very comfortable lying, when I know what he's saying is just completely fucking wrong. So, yeah.
+- 9:19:38) **E**: Yeah.
+- 9:19:39) **JSTLK**: He, he does this quite a bit, which, like, is weird. Like, honestly, there's, like, a lot of probably reasonable criticisms you could have of me, but I I don't know why he would just, like, make things up. Kind of goofy.
+- 9:19:54) **G**: I mean, to me, like, the biggest thing that you got owned on yeah. I mean, are we allowed to talk about the recent drama and stuff? I don't know if you've come.
+- 9:20:01) **JSTLK**: I'll let you talk about it right now, for sure.
+- 9:20:04) **G**: Yeah, I I think, like, the biggest thing that, like, looked bad, I think, was the screenshot where you're like, oh, I'd never somebody from the internet or somebody from this community, blah, blah, blah.
+- 9:20:16) **Kuihman**: Like, okay, January or whatever.
+- 9:20:19) **JSTLK**: Right.
+- 9:20:19) **G**: Bookless and cancel me if I ever do.
+- 9:20:21) **JSTLK**: Yeah, yeah.
+- 9:20:22) **G**: So me, that, that's, that's the, that's the part that I saw where I.
+- 9:20:26) **JSTLK**: Was like, okay, you kind of got.
+- 9:20:24) **G**: You fucking owned there or whatever.
+- 9:20:27) **JSTLK**: Okay. Realistic, I realize it looks like I'm virtue signaling on Desi there. I'm needling somebody who has multiple e-relationships who's in my Discord, unfortunately. Yeah, the hating. I'm like, needling them, and I'm like, this is so fucking cringe. Check this out, cancel me. Um, there's some nuance there, but realistically it's like hypocrisy on e-dating and how cringe it is, which I realize I look super fucking cringe now. It's not like a moral statement, like, it's totally wrong to do this.
+- 9:20:57) **G**: Wasn't meant to be.
+- 9:20:58) **JSTLK**: Right.
+- 9:20:59) **G**: Well, it just is like one of those situations where it just looks, like, it makes me think, like, whenever people say they'll never do something, it's kind of like when people say, like, oh, I'm done covering this guy, which is something I'm guilty of all the time where I'm like, All right, I'm done covering Bob Black. Yeah, yeah.
+- 9:21:15) **Kuihman**: I'll never cover Bob Black's again.
+- 9:21:18) **G**: And then it's like next week, you know, you end up covering Bob Black's on the internet, and you have to do it.
+- 9:21:24) **JSTLK**: Whenever a fucking content creator says never.
+- 9:21:20) **G**: It's just it's always just like the biggest mistake they ever make because.
+- 9:21:23) **JSTLK**: Oh, really? So would you ever fuck a child?
+- 9:21:27) **G**: Oh, never.
+- 9:21:29) **JSTLK**: Okay. I was just confirming.
+- 9:21:31) **G**: Just to be clear.
+- 9:21:33) **C**: Good.
+- 9:21:33) **JSTLK**: We got that on stream.
+- 9:21:34) **Kuihman**: This is awesome at Taikyomi.
+- 9:21:36) **C**: See.
+- 9:21:38) **G**: These are these debate pedophile tactics I've heard about, you know, apparently, yeah, literally.
+- 9:21:45) **JSTLK**: Um, but not, Not jokingly, if, if you look at that as a moral statement, and you don't trust me when I say it's not, and you actually are concerned I'm totally fine with somebody saying, yeah, I don't wanna watch you anymore. If that's I don't think that's fair, but I just think, like, I don't.
+- 9:22:03) **G**: Think you look great in that situation. All I see that is a situation where it's like, if I ever see you make a declarative statement about yourself, where it's like, oh, I'll never do X, Y, or Z. I'm just gonna take that infinitely less seriously, because it's like, OK, are you really Are you, are you sir? Like, you know, that's kind of like the only situation I saw from the recent drama where I thought you looked like bad per se, but, you know, I didn't think it was like that big of a deal in the grand scheme of things because, I mean, I don't know.
+- 9:22:29) **JSTLK**: I certainly wouldn't go and say that it makes Destiny look good or it somehow like makes Destiny, I don't know. Oh, no.
+- 9:22:36) **G**: Well, I think a lot of people are quick to like be like, oh, Destiny vindicated Destiny one.
+- 9:22:41) **JSTLK**: And I'm like, no, no, no, no, no, no. Hold on. Like, rather, like there's all there's evidence for that. Real quick, before Aiden says anything, I needed to let you know, Augie, he said it in chat, and then he mentioned me on Twitter as well to let you know that you're gay.
+- 9:22:54) **G**: Tipster says you are gay. Yeah, I see him tweeting at me.
+- 9:22:58) **Kuihman**: He says, Tell AugieFC I said he's fucking gay. That's rude. So we are getting the Willie Mc update. What's happening? Oh, is he reached out?
+- 9:23:08) **G**: I assume he's messaged you and said he's accepted. Yeah, I don't know.
+- 9:23:13) **JSTLK**: I talked to Willie or whatever.
+- 9:23:10) **G**: I don't know if he's down for that, but, you know, Will is a good guy.
+- 9:23:14) **JSTLK**: He's a good guy.
+- 9:23:15) **G**: Of course you wouldn't do it. He's a good guy. You're sweeping right now.
+- 9:23:20) **Kuihman**: You're sweeping so hard.
+- 9:23:22) **G**: I do sweep.
+- 9:23:23) **Kuihman**: I sweep.
+- 9:23:25) **G**: We love Willie. We love Willie.
+- 9:23:27) **JSTLK**: Yeah.
+- 9:23:27) **Kuihman**: You guys don't. I do.
+- 9:23:29) **G**: Sweep for your friends. Yeah, I do. The same problem this community's had year after year. Ah, cry about. Look, I reached out. I I put it. I put it out there on public bounty.
+- 9:23:38) **JSTLK**: Okay.
+- 9:23:39) **G**: I risked my standing in the by throwing that invitation out there.
+- 9:23:38) **Kuihman**: Will you denounce Tommy C live on the air?
+- 9:23:42) **G**: Tommy C? Tommy C is a great guy, man.
+- 9:23:45) **Kuihman**: Can't engage with the question and ask about his age.
+- 9:23:48) **G**: How about you ask me about something Tommy C said specifically, motherfucker, instead of just, will you denounce this person as a whole? Yes, will you denounce his existence on the platform? Okay, that's no. Ask me something that he said about, like, Chud logic or something like that specifically.
+- 9:24:05) **Kuihman**: Tommy, see, a merching off his wife.
+- 9:24:08) **G**: He does a merch off his wife.
+- 9:24:10) **Kuihman**: How does he make money, then?
+- 9:24:11) **G**: On sftp. He's been making money for, like, a decade now. He's an internet. He's an internet OG. You know, Tommy, see, invented YouTube streaming. I don't know if you guys knew that. And.
+- 9:24:26) **Kuihman**: I thought you're gonna be based. Still cock.
+- 9:24:28) **G**: What are you talking about? What are you talking about? Ada, you put out this cringe. Can we talk about. cringe tweet. I might be in a minority here in this call, but Aiden put out this tweet today.
+- 9:24:38) **Kuihman**: Yeah, I knew it.
+- 9:24:39) **JSTLK**: Aiden tweets a lot of cringe.
+- 9:24:42) **Kuihman**: You're probably not going to be in the minority. Aiden, you know that awesome tweet about.
+- 9:24:47) **G**: The IDF got taken down. That is pathetic.
+- 9:24:49) **JSTLK**: J-Stark citing a popular opinion, as always. I'm saying you literally, I've been in Discord calls where you're like figuring out.
+- 9:24:58) **Kuihman**: Ways to rage bait most effectively. Yeah, which tweet is this?
+- 9:24:59) **JSTLK**: This one here.
+- 9:25:00) **G**: This one.
+- 9:25:00) **Kuihman**: Why is it.
+- 9:25:01) **JSTLK**: Why is it that despite being proven to be a verifiable liar who is completely exposed, who has completely exposed himself as a snake and someone unwilling to handle criticism or confrontation, large members of the commentary Community continue to stand by.
+- 9:25:15) **G**: Tommy C. Very disheartening stuff. Okay, here's the problem I have with this tweet is you're demanding of other people to not talk to somebody you don't like. Okay.
+- 9:25:25) **Kuihman**: Yes. Yeah, I am.
+- 9:25:26) **JSTLK**: Um, I feel like, why are you- wait, why did you say yes? Oh, go ahead. I don't know why you just said yes.
+- 9:25:35) **Kuihman**: Well, because, well, because this guy's only friends are online because he moved to a country where he hasn't learned the.
+- 9:25:40) **G**: Language despite living there for like a decade.
+- 9:25:46) **JSTLK**: So I know, so I know that.
+- 9:25:48) **Kuihman**: If I can get his online friends to stop talking to him, I know his wife already doesn't talk to him.
+- 9:25:52) **G**: This is his wife. because his wife is out working.
+- 9:25:59) **Kuihman**: So if I get the people online to stop talking to him, it will.
+- 9:26:01) **G**: Be, like, solitary confinement.
+- 9:26:02) **Kuihman**: It's gonna be so funny.
+- 9:26:04) **G**: Oh, my God. You actually want this guy to starve?
+- 9:26:07) **JSTLK**: That's evil. Problem. Are you gonna destroy you?
+- 9:26:11) **H**: Debates.
+- 9:26:12) **JSTLK**: I think I'll be fine.
+- 9:26:14) **E**: What?
+- 9:26:15) **G**: You want this guy dead?
+- 9:26:18) **Kuihman**: I won't confirm or deny.
+- 9:26:20) **E**: Wow.
+- 9:26:21) **G**: So it's gotten that serious. I haven't followed any of this stuff. I actually, unlike you, I actually have a life. No, I'm just- oh, really? Yeah, like Willie Mack, you're just like.
+- 9:26:31) **JSTLK**: A real life guy.
+- 9:26:32) **G**: Oh, no.
+- 9:26:32) **Kuihman**: Real life stuff. No, no, no, no, no, no, no.
+- 9:26:36) **G**: Hey, I thought you liked Willie. Why would you say that? No, you want to be like Willie, right? You want to be like Willie, right? Listen, I'm not gonna- no, no, no, no. I was joking there. I was joking there. Hey, listen. I just don't like the call to.
+- 9:26:51) **Kuihman**: Arms of like, oh, you have to not talk to Tommy C anymore.
+- 9:26:48) **G**: Listen, I. Yeah, I'm telling you, you have to not talk to Tommy C anymore. Okay.
+- 9:26:55) **Kuihman**: Replacing sanctions on Tommy C. Yes.
+- 9:26:59) **G**: I have to pick Aiden or Tommy.
+- 9:27:02) **JSTLK**: C.
+- 9:27:05) **Kuihman**: It's an easy choice.
+- 9:27:10) **G**: What if we bring Tommy stand hooked to confront him?
+- 9:27:14) **Kuihman**: He's not going to show up because he can't handle any.
+- 9:27:16) **C**: Like, I won't.
+- 9:27:17) **JSTLK**: I won't handle any. He can't handle any.
+- 9:27:20) **G**: This fat, this fat fucking wife mooching fucking piece of shit, smoking inside, giving.
+- 9:27:26) **JSTLK**: His entire family second-hand cancer.
+- 9:27:28) **G**: Okay, this guy, okay, this guy is cool. Will never, ever, ever go in a.
+- 9:27:35) **Kuihman**: Hostile environment where he does not have.
+- 9:27:37) **G**: Complete control because he's a pussy. He needs to know that he can.
+- 9:27:40) **Kuihman**: Kick you at any time and like.
+- 9:27:42) **G**: Play his little nuke effect so he could like, I think he looks cool to like the two like artists in.
+- 9:27:47) **Kuihman**: Chat that actually did that's so cool. He did the nuke on Aiden. He did that.
+- 9:27:51) **H**: Did he?
+- 9:27:51) **G**: I thought he hasn't done that bit in years.
+- 9:27:53) **Kuihman**: No, he did it. He was like, he goes, get the fuck out of my life. And then does the nuke.
+- 9:27:59) **Parry**: That's the thing.
+- 9:28:01) **G**: Do you know how many times I've wanted to tell Aiden, get the fuck out of my life and then nuke him? That's just based. Hello, Jakey Boo.
+- 9:28:10) **H**: I hope you'll.
+- 9:28:15) **G**: Are you good?
+- 9:28:16) **C**: What the hell are you doing?
+- 9:28:18) **G**: What the is that?
+- 9:28:19) **H**: J stocks your files.
+- 9:28:27) **G**: That's great.
+- 9:28:31) **Kuihman**: Huge things happening here. Clearly.
+- 9:28:35) **H**: We mean, you know, this jscat guy is in love with you, right? what do you have a gift for you doing that?
+- 9:28:39) **E**: Yeah.
+- 9:28:39) **Kuihman**: Honest guys. Free as hell.
+- 9:28:46) **G**: By the way, I like how I have art on the stream, but Aiden doesn't. He's such an irrelevant caller that nobody even bothers. Who are you? Him art on the stream. Who are you?
+- 9:28:58) **JSTLK**: Oh, my mic was muted for all of that. That seems way weirder now that you didn't have any of my.
+- 9:29:02) **G**: I thought you were just going in.
+- 9:29:04) **JSTLK**: No, now that seems way weirder. I was like, oh shit, I don't know why the audio is on. I was just showing off like new tech, big, big new tech coming out, okay? We've got new tech animations, custom animations for people.
+- 9:29:17) **G**: I was like talking through the whole thing and you guys were just letting.
+- 9:29:20) **JSTLK**: It play what the fuck? I thought you were just like zand the fuck out. I actually knew it was muted. I just didn't say anything.
+- 9:29:26) **C**: That's where we- But I'm- We did.
+- 9:29:29) **G**: Like the Kelly one as well.
+- 9:29:30) **JSTLK**: What else we got here? Ugly as fuck. Kelly owns you, Aiden. Kelly completely owns you.
+- 9:29:35) **Kuihman**: Kelly told him to log you that one time. I I will have my day of reckoning. I actually never recovered from that. That was crazy.
+- 9:29:45) **JSTLK**: You guys. You guys mentioned tipster. He, like, maybe two months ago, he added me on Discord. I accepted. I said, hi, tipster. No, you didn't. Another about a Minecraft story. He added me as a friend. I said, hi, Tipster. And he said, you,'re an F slur. He just typed out the F slur. I don't want to say it.
+- 9:30:05) **C**: And then he unfriended me after.
+- 9:30:07) **Kuihman**: And I was like, what the fuck?
+- 9:30:09) **JSTLK**: I don't- Tipster, that's- yeah, I think- I- well, he says slurs. I tried to get him to play Pokemon with me on stream. I thought it'd be good. I don't think he liked that.
+- 9:30:20) **E**: I think that made him mad.
+- 9:30:21) **H**: Are you better, Pokemon?
+- 9:30:25) **JSTLK**: I don't know. Probably.
+- 9:30:27) **G**: Which Pokemon?
+- 9:30:30) **JSTLK**: I was gonna get him to play Poke MMO, which you can just play, like, Gen one through five, but, like, with your, like, online with other people.
+- 9:30:38) **E**: Damn.
+- 9:30:40) **JSTLK**: It pissed him off, though. Made him real mad.
+- 9:30:43) **G**: I think a tipster can say that word because he's pansexual. You know, he's got the.
+- 9:30:48) **JSTLK**: That is true. That is true. It's not evil for him to say that.
+- 9:30:52) **JSTLK**: Right. Jesus. Sorry.
+- 9:31:02) **Kuihman**: Oh, okay. You're on the tech on hate train. I'm saying you're on the tech on hate train.
+- 9:31:07) **G**: Yeah, I. So I don't really know who he was. I had a bad take on him originally.
+- 9:31:11) **JSTLK**: Yeah.
+- 9:31:12) **Kuihman**: Yeah.
+- 9:31:12) **G**: And I schooled you on it.
+- 9:31:13) **Kuihman**: You conceded to me in private.
+- 9:31:15) **G**: So we. By the time I talked to you about tech done, I'd already changed my mind.
+- 9:31:20) **Kuihman**: No, you didn't.
+- 9:31:20) **JSTLK**: This is total.
+- 9:31:21) **Kuihman**: You just can't give me a double.
+- 9:31:22) **JSTLK**: You to save. my life.
+- 9:31:23) **Kuihman**: I own it.
+- 9:31:24) **G**: No, I. I remember, like, originally, like, it was, like, a couple months ago, I saw Hassan was just, like, ripping into him, and I hadn't even seen any of the context. Why? And I just assumed, like, Hassan was just, like, going into, like, his family or something for no reason. But I didn't realize he put out this tweet or something where he was talking about, like, my military dad.
+- 9:31:45) **Kuihman**: My father didn't.
+- 9:31:47) **G**: Didn't fight her.
+- 9:31:48) **Kuihman**: Yeah, yeah, exactly.
+- 9:31:49) **G**: He just pushed terrorist propaganda on Twitch. yeah, because I put up my tweet, everyone was like, what the. And so I was. I was like, wait, what's going on here? But, yeah, no, I. I think he's pretty fake. I also never watches content. To be honest, I don't even care about, like, the rape stuff. I just watch his content. He comes across very fake and disgusting to me. Yeah. Wait, you didn't hear what a Cheeto said? What did Cheeto say? He said, like, when tecton talks, it, like, motive.
+- 9:32:15) **Kuihman**: Wait. J star, can you like march in the streets?
+- 9:32:21) **JSTLK**: Yeah, I will pull this up right now.
+- 9:32:23) **G**: I need to listen to this.
+- 9:32:26) **JSTLK**: Let's get this up on the screen immediately. Are you putting in chat?
+- 9:32:30) **Kuihman**: It's actually ready to. I'm sending it to your DMs. Attack time, it's crazy.
+- 9:32:34) **E**: All right.
+- 9:32:35) **Kuihman**: Wait, okay, so I didn't have the original, but I had this version. You can play this one on stream.
+- 9:32:42) **JSTLK**: Okay, my DMs with you are not loading. The fuck's happening. Discord. Oh, there we go. There we go. I got it. Oh, it's a dot move file, though. Gonna have to put it on streamable. Hold on. I don't know why Chrome can't play dot move files. That seems retarded, but. he gets me fired up when he talks. He's just like, I don't know. He's got, like, a political delivery to what he's saying. It's where I feel like I gotta get up in March. I have a dream. Okay, so.
+- 9:33:20) **Kuihman**: So the original was. Okay, so this is a good version.
+- 9:33:23) **JSTLK**: I like that.
+- 9:33:25) **Kuihman**: The original was Tech Town. The original was Tech Town. I had someone edit Hitler on there.
+- 9:33:29) **G**: Instead because I thought it was just words. I wasn't even looking at that part of the. scream. What the.
+- 9:33:38) **JSTLK**: Oh, man.
+- 9:33:40) **G**: That is crazy.
+- 9:33:42) **JSTLK**: Okay, Aiden, Aiden, which. Which takedown clip was it? What are you. That he's talking over?
+- 9:33:48) **G**: It was just takedown saying some random. But I think I know who tweeted it.
+- 9:33:52) **Kuihman**: Oh, I think I get the original clip.
+- 9:33:53) **G**: I see, like, jerking him off. He's just like, when he talks, I feel so motivated because this guy, like, this guy's like, you're, like, average, like, Centri, righty Centrist, bro. Knows nothing about politics, just like.
+- 9:34:07) **Kuihman**: Likes asthma and gold. Hold on.
+- 9:34:09) **G**: This is not about politics, dude. I'm. I'm apolitical, you know?
+- 9:34:13) **JSTLK**: Oh, oh, my.
+- 9:34:14) **H**: Just kidding.
+- 9:34:16) **G**: Oh, the.
+- 9:34:16) **JSTLK**: Listen, this guy had a Ethan Klein video recently. This guy. We might need to get this guy in the Discord. Okay. The chleapy guy.
+- 9:34:25) **C**: Yeah, we may need.
+- 9:34:26) **JSTLK**: He is the straw.
+- 9:34:27) **G**: He is the strongest jawline I've ever seen.
+- 9:34:30) **JSTLK**: Yeah, we need the. We need the Easter Island statue on the Stream, okay? We need him. Dude, he gets me fired up when he talks. He's just like, okay. I don't know, he's got like a political delivery to what he's saying. It's where I feel like I gotta get up and march.
+- 9:34:48) **G**: He gets me, imagine telling another man, you can be fired up when you talk.
+- 9:34:54) **JSTLK**: Hold on, can we, what other political leader got people to stand up and march? Like, is he not clearly thinking of Hitler? Is he not clearly actually thinking like.
+- 9:35:03) **Kuihman**: Got to be thinking of Hitler. What's worse is their Hitler is second rate asman gold. If it was. If it was between asman, gold and Hitler, I'm going Hitler every time. Oh, God. No, of course.
+- 9:35:17) **C**: What do you mean?
+- 9:35:20) **G**: Can you play one more time? I just. Last.
+- 9:35:27) **JSTLK**: Right, right. That's our choice. that's our choice. Between Asmongold and every time between Tectone and Hitler. Okay, every time.
+- 9:35:35) **Kuihman**: There's a bit in one of his videos as well where he's talking about his recent ban where he's like, he's like seething and he's like, oh, yeah, I'm sure someone's quote tweeted this with Hitler dead. Oh, yep, there it is.
+- 9:35:48) **G**: You should be honored.
+- 9:35:49) **JSTLK**: It clearly already looked at the thread, too. Oh, God. he's the worst. All right, one more time. One more time. Dude, he gets me fired up when he talks. He's just like, I don't know, he's got, like, a political delivery to what he's saying. It's where I feel like I gotta get up and march.
+- 9:36:08) **C**: I have a dream.
+- 9:36:09) **G**: OS enforce it.
+- 9:36:11) **C**: Thank you for giving me 1 million subs on YouTube.
+- 9:36:14) **JSTLK**: I'm gonna go get a golden retriever. I feel like the I have a dream is like, I guys, I was.
+- 9:36:20) **G**: Totally thinking of Martin Luther King and not the other guy you're thinking of.
+- 9:36:24) **JSTLK**: I promise.
+- 9:36:25) **G**: It's impossible. I'm okay.
+- 9:36:28) **Kuihman**: I'm okay.
+- 9:36:24) **G**: Dude, this guy is like so pathetic. I like had to stop making fun of him.
+- 9:36:29) **Kuihman**: It's like, it's so bad.
+- 9:36:32) **JSTLK**: You made fun of him.
+- 9:36:33) **Kuihman**: The Nox Israel debate was the craziest fucking thing when this guy had Nox come on and teach him about Israel Palestine.
+- 9:36:41) **G**: And Cheeto had Nox on to teach.
+- 9:36:43) **JSTLK**: Him about-.
+- 9:36:45) **Kuihman**: Oh my god, this was so good. You need to see this. at some point, man. Not just because I was involved, but I'm an narcissist. But Cheto basically goes on to Nuxx stream and talks about Israel Palestine. Oh, no. Nuxx goes on to Cheto stream and just like basically spits like Israeli propaganda for like a full hour. And Cheto does push back in a couple of places, but he clearly isn't quite good to do it. And then Cheto came on my stream like the next day and spoke about it. It was just like so funny. He was just like, yeah, I'm trying.
+- 9:37:17) **G**: To like, I'm trying to like learn more about politics. I mean, like, everyone goes to in politics now and I can't do the same thing. It's like oh no, okay, so this is what's happening, right? So Asmongold is like blown up as a political commentator and now you've got all these fucking shitty clones. It's like the moist critical politics you got like Nux, tectone, I guess now a Chido is trying to position himself in that like direction.
+- 9:37:36) **E**: Yeah.
+- 9:37:37) **G**: Yeah. Oh no.
+- 9:37:38) **Kuihman**: He's gonna be, he's gonna be, skin walking Asmongold so, I just.
+- 9:37:42) **G**: Sorry. I had a seizure, bro.
+- 9:37:45) **Kuihman**: My bad. My bad.
+- 9:37:47) **E**: Sorry. Sorry.
+- 9:37:48) **G**: You know, the problem is, is, like, I feel like. So, asmid gold, like, the reason why he's popular is because he does fence said he's, like, middle of the road.
+- 9:37:57) **E**: He.
+- 9:37:57) **G**: He tries to come across this very, like, level-headed you know, for dumbass. He just doesn't say anything.
+- 9:38:03) **Kuihman**: He just never takes a position on anything. Right. And whatever he does, it blows up in his face. Massive.
+- 9:38:09) **JSTLK**: Totally understand why this guy would say what he's saying right now. Is his.
+- 9:38:13) **G**: Yeah, I I just feel like the problem is with the people that try to clone him the hardest, like, Knux and Tectone, they come off, like, way too aggressively, but with the most positions possible. Like, they don't try to fence it as much. I could be wrong in this, but this is just from what I've noticed very briefly.
+- 9:38:31) **JSTLK**: Tectone, for sure. I would.
+- 9:38:33) **Kuihman**: Yeah.
+- 9:38:33) **JSTLK**: I don't want to, like, Tectone 100.
+- 9:38:37) **G**: They go hard, but they just don't know where what they're doing, you know, they all run from the debate. I don't know. It seems like they don't understand what makes asman gold popular, and so they just. They copy his personality, but they don't copy his strategy, and they end up getting into way more trouble than asman gold does. Does asman gold have, like, a strategy?
+- 9:39:02) **Kuihman**: He just, like.
+- 9:39:04) **G**: Clearly calculated in the sense of, like, he knows, like, just how not to, like, get himself. I mean, with exception, obviously, to when he was, like, Palestinians or animals or whatever, when he said that, but, yeah.
+- 9:39:17) **JSTLK**: I feel like after that, you can be genocided.
+- 9:39:20) **G**: I feel like Asperger's like a Mr. Beast type of Creator where he's just very calculated in everything that he does or says to, like, avoid controversy.
+- 9:39:30) **E**: Is that not true?
+- 9:39:30) **G**: I don't think to avoid controversy.
+- 9:39:33) **JSTLK**: I think he leans into controversy, but he. He is calculated in that he hasn't really taken a position that's like, that he can't fall back from and, like, make more reasonable. I I'd say he says things that are controversial, like his whole, like, oh, I'd love to go. I'd love to get some Pokeballs and dress up, like, do an Ash Ketchum cosplay and go to the Border and catch some illegals. It's like, like, to a Yeah, yeah, yeah. At a walk on, like a fucking tour with Border Patrol, right? Like, that was pretty, like, that was incendiary to some people, but he's, like, pissing off the right people, so he can't even really be criticized, right? He's pissing off, like, Hasson people, so.
+- 9:40:12) **G**: Nobody'S really gonna criticize him. Well, that's the beauty of politics, is like, you can just demonize any of.
+- 9:40:19) **Kuihman**: Your critics as, oh, they're on the left, and, you know. Yeah, it's a Jason Robbless, a NOX clip I just sent you. This is like, this guy is, like, so retarded, it's unbelievable. this guy's like next level.
+- 9:40:36) **JSTLK**: Oh, God. This. The file name is nuxtaku is an F slur. But it's nuxtaku is an F slur bracket one bracket. So Queen's already sent me this clip before to see the about it. This is second.
+- 9:40:46) **G**: Mandela was against the murder of civilians. Civilians did die in his attacks, but he was against. Just the murder of civilians vehemently. That said, that said, there's some crazy shit going on. Nelson Mandela would slap the fuck out of this guy.
+- 9:41:04) **JSTLK**: What?
+- 9:41:05) **Kuihman**: So this guy, this guy was literally like, he was like the second in command basically of the ANC. He was like, he's like, Nelson Mandela's top guy. and he's saying Mandela would slap the out of this guy.
+- 9:41:22) **G**: Yeah, he was, like, one of the top guys.
+- 9:41:24) **JSTLK**: And this.
+- 9:41:25) **Kuihman**: Nux is just, like, confidently saying, yeah, Mandela. We hate this guy just because Trump. Trump awesome. Trump. Trump so based.
+- 9:41:34) **JSTLK**: It's just, like, so ridiculous. I think Mandela chose him to run the ANC either when he was imprisoned or, like, after he died, like, he was, like, the guy who's basically being groomed to be the leader of the ANC.
+- 9:41:47) **G**: Why is Nux talking and making political content?
+- 9:41:50) **H**: I don't know. I don't know.
+- 9:41:52) **C**: Yeah.
+- 9:41:52) **Kuihman**: I have no idea why that happened.
+- 9:41:54) **C**: Yeah.
+- 9:41:54) **Kuihman**: Well, yeah.
+- 9:41:56) **JSTLK**: That'S like, literally. He went from, like, 300 average viewers on Kick to, like, 2, 000 average viewers on Kick. He literally just grifted towards Asmongold and Tectone, knowing, like, both of them. It's.
+- 9:42:08) **G**: Does it have any relation to the lolicon drama, or is this just, like, the natural. Arc, he would have gone on anyway. Like, I. I always wonder, like, did he just become, like, hyper political and, like, super on the right to deflect from the criticism that he got from everyone calling him?
+- 9:42:24) **Kuihman**: It's already kind of. He was already well in that trajectory by the time that happened.
+- 9:42:28) **G**: Yeah.
+- 9:42:31) **Kuihman**: I think more. I mean, he says his cousin died in October 7th, right? His cousin was in the IDF and died in October 7th or some. so he rides very hard for Israel and Trump.
+- 9:42:47) **G**: Yeah, I just. He's just some dumbass who makes, like, anime content, you know? Like, all of his content has always been, like, the most low IQ slop, you know, of all.
+- 9:42:59) **Kuihman**: You know, like, a twitch's hentai song.
+- 9:43:02) **G**: Oh, man, I think I've listened to, like, a hundred.
+- 9:43:04) **Kuihman**: Times. That shit's fire. That shit's fire. It's so funny how it ends with twitch. Why did you ban Dr. Disrespect? That's awesome. He's really well, man.
+- 9:43:16) **G**: I wonder if he. He probably still agrees to that.
+- 9:43:34) **JSTLK**: Some people are saying the guy is, like, pretty corrupt. The zero Ramaphosa guy is actually, like, pretty corrupt. Has had, like, some corruption investigations now. Probably not as principled as he once was. So there is.
+- 9:43:47) **Kuihman**: Yeah, but that's not what, you know, sucks is referring to that. That was about the meeting where Trump's saying that white South Africans being genocided.
+- 9:43:56) **JSTLK**: This guy's like, no.
+- 9:43:58) **E**: Yeah.
+- 9:43:59) **Kuihman**: This guy's like, what are you talking about? What are you talking about?
+- 9:44:06) **JSTLK**: Can you do that accent a little harder? Can you go one more time?
+- 9:44:11) **E**: No.
+- 9:44:12) **Kuihman**: No, I can't. No, I can't do it on demand.
+- 9:44:15) **JSTLK**: Okay. All right. Oh, it's the tweet.
+- 9:44:23) **G**: I have everyone who wrote me, I've had like hundreds of fucking tweets sent to me yesterday and today talking about how I am just like a fallen off lol cow and stuff like this for all of the takes that I'm saying in Ethan Klein. Meanwhile, DeOrio goes live tonight, says all of the takes that I said and all of a sudden the tweets stopped. All of a sudden the machine that was turned on against me was shut off.
+- 9:44:50) **Kuihman**: It's almost like they're all total bots of following someone who is essentially totally willing to ride the wave as far as it will go until he starts getting significant pushback from people he can't ignore.
+- 9:45:01) **JSTLK**: Yeah.
+- 9:45:02) **G**: It's just been fucking nuts. Like, my Twitter has just been a fucking landmine. And it's not the, I mean, I tweeted about Ethan Klein probably like a week or two ago, and it was the same thing where it's like everybody was just on my Fucking ass. Except the difference is now it's like, you know, Dior goes live, gives the sensible take of like, this is not doxing, blah, blah, blah. Hasan did not dox anyone. And now people who were like, you don't fucking get it. You know what the worst part is? Everyone was coping so hard by saying like, well, you don't understand. The main point is about how hypocritical Twitch is. And I'm like, bullshit. Because if it was about Twitch's hypocrisy, they wouldn't be mad at Hasan directly.
+- 9:45:44) **E**: Right?
+- 9:45:45) **JSTLK**: Like... Well, and they'd be trying to burn down YouTube over the Snyper Wolf thing still, right? I think people just basically...
+- 9:45:52) **G**: It's like, this is not just fuck Twitch. Like, I think a part of it is definitely fuck Twitch, but a lot of it is fuck Hasan. A lot of it is people looking at what Hasan did and saying, this is like horribly unethical.
+- 9:46:06) **Kuihman**: This is doxing. He needs to be banned.
+- 9:46:08) **G**: A lot of it is thinly veiled political motivations.
+- 9:46:11) **JSTLK**: Let's be serious.
+- 9:46:13) **H**: Yes. I wish there was like, like a.
+- 9:46:14) **JSTLK**: Large streamer that could stream and like, you know, compete with, you know, these, these, these freaks. I wish there was, like, some sort of streamer that could do that. I don't know.
+- 9:46:24) **G**: That's just me.
+- 9:46:25) **JSTLK**: I don't know. How do you feel about COVID white nationalism, Ra?
+- 9:46:31) **JSTLK**: As long as Nick diorio stops being the top guy of commentary, I could give two a five. Listen, Hitler. Resurrect that guy. Give him a fucking GoPro.
+- 9:46:40) **G**: We'll be fine. Hey, we bow to the dawn. The dawn had a stunning performance tonight.
+- 9:46:45) **JSTLK**: We need to bow to the dude. He can't even fucking look down at.
+- 9:46:49) **Kuihman**: Us when we bow. Okay, he's fucking. Well, no, I don't think he did. He not did a long to a legal mindset video about doxing, and that video is pretty retarded because it implies he legal mindset tries to make the case that basically people would have a course of action, legal course of action against Twitch on the grounds of, unfair enforcement of the TOS. But so many people have been banned for unfair enforcement of the TOS on many platforms. I know for instance, Mr. Girl spoke to lawyers about this and was planning it. He was trying to seek out a war seat if he could. So people have seeked this out before and no one's come out with anything. You can't seem to hold these platforms to their TOS and say like, oh, you're being inconsistent because they all say.
+- 9:47:26) **JSTLK**: Well, they don't need you for any reason.
+- 9:47:28) **Kuihman**: Yeah, they all put in their TOS that we get to make all decisions. And that's, and that's totally legitimate. And they're allowed to do that. It seems to be, that seems to be the case. They're allowed to do that. So you're completely raped on that. But for some reason, a ladyboy mindset, this complete dipshit, lazy eyed loser goes out on his Channel every day. He's like, oh, actually, I think there's a legal course of action against twitch on the grounds of unfair, unfair termination.
+- 9:47:53) **JSTLK**: I think Nathan bottle should sue twitch.
+- 9:47:55) **Kuihman**: He's on already saying that right now. And then Nick yori is just sitting there. Nick yori is sitting there nodding. long to his gay retarded video on this. So absolutely. It's not just. No, it's not. I agree. Nick absolutely pressed Dan and did a good job pressing Dan. He did a good job pressing Dan the other day as well. But Dan is an open, already discredited liar. The only people who are buying into what Dan says are the absolute Mindless drones who will follow the last thing they heard and people who have a motivation to believe what Dan's saying. It's completely worthless to push it back against Dan when Nick is still and I'll just, you know, it's just the reality. He is riding the wave as far as he can possibly take it and then taking the tiniest steps back when he feels like, okay, maybe. Maybe this is too far now. Maybe this is too far now. There is no principle guiding it. And it's so blatantly obvious to anyone watching, even when he's talking about a non-disparagement agreement in the context of the lawsuit, he says he wouldn't want that to happen. That makes his job hard. That would be gay. but he stopped short of saying, this is against my principles. I think that would be an infringement on these people's free speech or anything significant that actually lays down a belief like that. And he absolutely refuses to do this.
+- 9:49:03) **G**: Where can I find your conversation with Dan? I want to watch this. Like, the one where he's, like, openly.
+- 9:49:10) **Kuihman**: I think, that's gonna be a Jay Stovall somewhere. But he will say the quote is, I believe he says, I don't say what's or he says, I care about winning or I say what I need to to win. It's like he says that like repeatedly again and again.
+- 9:49:23) **G**: Yeah.
+- 9:49:24) **Kuihman**: Whenever he's whenever he's pressed about stuff. And he said it to Nick as much, you know, tonight he like he went on the extreme and while we impressed, he just says to Nick, yeah, I'm sides cocked. Yeah, I'm trying to win. It's like he just says this. It's like the only people that are.
+- 9:49:41) **G**: Believing at this point are what is like beef with Hassan. Is it just because he's friends with Destiny or is it deeper than friends with Destiny?
+- 9:49:46) **Kuihman**: Destiny got seemingly from their perspective, unfairly banned, though I don't know how true that is. That Destiny, that Hassan has shouted them for so long and he sort of cut down off without speaking to him. So they just ate Hassan. And then also Dan believes to some extent, I think he does actually believe there is anti-Semitism there to some extent.
+- 9:50:08) **G**: Yeah.
+- 9:50:08) **Kuihman**: And you know, he loves the Jews and loves Israel.
+- 9:50:11) **G**: And the sounds like the leading force against that. Yeah.
+- 9:50:14) **E**: Yeah. Because I'd like to watch that and.
+- 9:50:16) **G**: Get caught up here because I don't know too much. Hold on.
+- 9:50:19) **H**: Then.
+- 9:50:19) **JSTLK**: No, no. I forgot he said this was really on the stream, too. I forgot he also. He was super zansed out. He had way too many sleeping beds before he said this. He comes back, I think, later in this stream and, like, corrects this. But this is, like, an opinion. I feel like he stated more than once.
+- 9:50:35) **C**: You know, it's sad because I've dedicated.
+- 9:50:38) **JSTLK**: The last, like, two weeks of my life basically to Steve's cause.
+- 9:50:42) **E**: What?
+- 9:50:42) **JSTLK**: So one, not like anti-Semitism but to with twitch because they banned Destiny.
+- 9:50:47) **G**: Which one?
+- 9:50:48) **I**: You're talking about the twitch thing?
+- 9:50:50) **E**: Yeah.
+- 9:50:50) **H**: Destroying twitch.
+- 9:50:52) **Kuihman**: I thought it was more of your thing than. Why the do I care about twitch?
+- 9:50:56) **C**: I'm not banned there.
+- 9:50:58) **G**: I thought you care because they were.
+- 9:50:59) **JSTLK**: Like, anti-semitic and being weird.
+- 9:51:01) **E**: No.
+- 9:51:03) **JSTLK**: It'S just fun.
+- 9:51:05) **Kuihman**: Okay.
+- 9:51:07) **E**: Yeah.
+- 9:51:08) **Kuihman**: So. Okay, so this is actually true.
+- 9:51:10) **JSTLK**: This is. I mean, that's how we're talking about. He had an experience.
+- 9:51:14) **Kuihman**: This is true. This is separate thing. Dan, really? The thing that is actually driving him at his core is he just wants to be a leader of, like, a raid online. He just likes, like, doing raids and brigading.
+- 9:51:26) **JSTLK**: Rust.
+- 9:51:26) **Kuihman**: He just like, he just. He just wants to be that guy. He just wants to go around rallying the troops and attacking people and feeling like he's on top. That's just like a cool. It's like pure animalistic. Like, he is just like an old.
+- 9:51:40) **G**: He's like a.
+- 9:51:41) **Kuihman**: He's around on the internet and trying to feel cool. No, it's like an old dude who, like, gets off on feeling cool online.
+- 9:51:48) **G**: Wow. I like him in that case. I have no issues with him.
+- 9:51:56) **Kuihman**: He's cool. Yeah, I I always say, like, I don't mind Dan because he is just an open liar. And so I don't have to even. It's like, there's no point even, like, condemning him because it's like, I mean, what do you say? Like, he's an open liar.
+- 9:52:10) **H**: You know what Tommy said about you? Your specs are open.
+- 9:52:14) **Kuihman**: Yeah, but I don't. But I'm actually like that. I'm actually a liar. And I don't actually go around saying, yeah, I just lie. Yeah, I lie and does. And that's like, there's no point even combating him at that point, right?
+- 9:52:29) **E**: Yeah.
+- 9:52:29) **G**: It's just kind of a waste of time. He's just. Well, he's basically meaning he's a troll, you know?
+- 9:52:33) **JSTLK**: Yeah.
+- 9:52:34) **Kuihman**: It's like if you engage, you're retarded.
+- 9:52:36) **JSTLK**: Yeah.
+- 9:52:37) **Kuihman**: You have to engage with people that are paying the shit he's saying.
+- 9:52:42) **G**: I'm curious to see his show with Willie Mack. because I know they're doing that in weekly now.
+- 9:52:48) **JSTLK**: I wonder if Willie Mack does he do him?
+- 9:52:50) **G**: Have him and Dan interacted at all or when he went to Destiny's house, they would have interacted a lot.
+- 9:52:56) **JSTLK**: Well, yeah, I guess personally or whatever IRL. I'm just curious, like, on the internet.
+- 9:53:01) **G**: Like, have they done much? It seems like he's pretty desperate to get out of the Destiny Circle because he's trying to do the show with Willie. He's trying to do a show with Nick. it seems like he's. He does. He does a show with tectone and Knux, doesn't he? Or is that.
+- 9:53:17) **Kuihman**: Well, he did, like, one episode, I think.
+- 9:53:19) **H**: One.
+- 9:53:20) **Kuihman**: One show.
+- 9:53:20) **G**: Okay.
+- 9:53:21) **JSTLK**: Yeah. Yeah. I could think of a disturbing pattern that's coming out, Augie, of how the falls. Everybody who needs to oppose Hassan.
+- 9:53:30) **G**: Yeah.
+- 9:53:31) **JSTLK**: All the pedophiles, rapists, sexual deviants being against Hassan. Okay, we got tectone, we got. Ladyboy my camera F305 camera F305 Tectone. It's a prolific Destiny. It's a prolific group we've got.
+- 9:53:46) **E**: Yeah.
+- 9:53:47) **G**: I'm waiting for Dr. Disrespect to jump in.
+- 9:53:49) **Kuihman**: Did he chat then? Did he chat then?
+- 9:53:54) **G**: Yeah, it seems like the Hassan Griffs is like, I've been making videos just hating Hassan since, like, 2019. I've been making as many videos hating on Hassan as I've had. videos hating on Ethan Klein. Like, Hasan has always been like the number one, one of the biggest targets, not just amongst the commentor community, but just like a lot of people just that are cool, like understand that Hasan is terrible and now it just feels too cheap.
+- 9:54:22) **Kuihman**: It's just like, it's fun when it's like, this guy's like a piece of shit, Nepo baby, and nobody's calling him out. Yeah, and no one's calling him out. It's like, the criticisms are like, Yeah, they're like pretty scathing to like credibility and stuff, but they're not like, this guy needs to be put in jail. This guy's harming over at speeds. Like, destroying something like that, you know? But now it's at the point where everything is like, he's like a terrorist. People call it, we'll just call him a terrorist.
+- 9:54:52) **G**: They would just do that.
+- 9:54:53) **Kuihman**: Well, they make him sound cool when they do. Well, yeah, that's nothing that happens. This loose mic being cool. And you start, you can start editing him dancing to like, NHH. And it's, like, funny as. And it's like, okay, this guy's, like.
+- 9:55:05) **G**: A base, like, leftist Nazi. That was awesome.
+- 9:55:08) **Kuihman**: Yeah.
+- 9:55:09) **G**: It's like they're missing the target. It's like, you know, except because before the criticism was that he's gay, he lies, he's insecure as, you know, like, Destiny exposes insecurity, like, how poor he performs in debates and stuff like that. It was all, like, just, like, biting criticisms that were. Not many people were making and it was kind of like a fun thing to shit on him over. And now he still is that. Yeah, I'm not saying he's not still that, you know? Don't get me wrong. He's not as cool as what people make him out to be today, right? He obviously is still like a complete nutcase, at least from what I've seen. But yeah, the whole campaign against him, it just seems like too easy of a grift for people, especially creators like Mudahar. you know, or a knox who have been kind of, like, disgraced in a major way. It's just kind of easy for them to jump on to this whole Brigade and make all these, like, moralizing, stupid arguments that also serve, like, some, like, the worst, like, types of areas of the internet, like the ADL.
+- 9:56:08) **E**: Yeah.
+- 9:56:09) **G**: Yeah, exactly.
+- 9:56:10) **Kuihman**: It's like, oh, when you're, like, literally getting on people who are getting on stream every day and they're making the exact arguments the ADL are making, saying it's anti-Semitic and harmful. for what Hassan's doing. And then saying, oh, what? Oh, I don't support the ADL. I don't support the ADL. So, Hey, you're an anti-semite for saying out my side. Everyone right up to you've been walking people right up to the line, walked right up to the line of Hassan needs to be completely wiped out off face of fucking earth and to be put in prison for being anti-Semitic, but just dropped at the end and you're saying, I don't support the ADL. Well, I don't you support the ADL.
+- 9:56:46) **JSTLK**: You've made the entire fucking argument. All the premises are there.
+- 9:56:44) **Kuihman**: The conclusion would seem to follow, why do you not just support the ADL?
+- 9:56:47) **JSTLK**: Like, keep screaming that this guy's a fucking harmful anti-semite that needs to be put in jail.
+- 9:56:54) **G**: That's how the ADL literally is. It has to be like, I don't like the ADL, but I agree with them on Hasan. But it's like, well then when you question it, well why do you agree with them on Hasan? You agree with them on Hasan because of their reasoning and their logic that you claim to be against in the first place, right? It's not just like, oh, I think Hassan's gay, and the ATL thinks he's gay, and I'd like the. I like their take on his. It's like, no, no, no, nobody can have that position, you know? So, yeah, they repeat the talking points, but I don't know. I I it's just a situation where I'm still, like, I'm not, like, pro Hasan by any means whatsoever. I I'm anti everyone. I'm sick of these. I'm sick. I'm sick of this stupid War dictating all the content. You know what I mean? Everyone's just lost their Minds. Why can't you just be a hater? Why can't you just be against them all? What's wrong with, like, political nihilism? You know, what's wrong with just. Not even political. What's wrong with just hating people, right? Can't you just hate them all? Can't you just be. And I said this before, like, a few weeks ago when I called in this stream, but it's like. Isn't that the most fun position when everybody involved is a fuck up and you can just go at them all? Why does it have to be a team?
+- 9:58:13) **JSTLK**: It can be, but I think probably, I mean, that is the most fun. But also if one of them is worse, you probably should be able to perceive that and call it out as worse, right?
+- 9:58:22) **G**: I honestly can't tell which one's worse.
+- 9:58:25) **JSTLK**: I don't know. Do you guys, well, between Ethan and and Hassan, you mean?
+- 9:58:29) **G**: Yeah, I I really can't tell.
+- 9:58:32) **JSTLK**: As an individual. I would probably still say Hasan, but as, like, a sister, I think it's. It started. The Ethan side started to get up there. Like, it's like the. The system that's.
+- 9:58:43) **G**: I feel like it started off so well. Like. Like, you know, I watched continent nuke. I agreed with it. You know, I didn't see anything wrong there or whatever.
+- 9:58:52) **JSTLK**: I.
+- 9:58:52) **G**: A lot of, like. H3, the H3 podcast segments on Hasan I thought were fire, but in the last few months, it's like they got tired of winning and they just decided to become fucking retarded, you know, and they decided to just up the ante like 10 million degrees. And now, or maybe they're just exposing themselves for being part of like a political machine, not necessarily just people that have like a problem with what Hasan does. but rather, like, people that are serving a devious system. But I don't know. I don't know what it is, but, you know, I can't sit here and say that I'm going to, like, necessarily disagree with everything Ethan says about Hasan in the future. You know what I mean? He might say plenty of base about his. I don't know. You know, Hassan's a Maniac, but I'm just saying it's like they're both. they both got something wrong with them. I don't know if that's, like, Finn City or if that's too much of a cuck take, but they both got something wrong with them. And I think it's just fun to hate on them both. I think that's where most people should be.
+- 10:00:10) **JSTLK**: Check.
+- 10:00:23) **E**: Oh.
+- 10:00:26) **JSTLK**: I just had my. I was literally responding. I was responding to Augie. Totally. I was responding to Augie. Totally there. And I, like, everybody was silent. Everybody was silent, so I just assumed people were listening. I just assumed people were listening because everybody was silent. God damn it.
+- 10:00:44) **G**: Nice.
+- 10:00:44) **JSTLK**: Fuck me. Okay. Uh, what was I saying? Oh, I totally agree that Hassan is... He's retarded, but it's so weird when people are like, oh, he's a threat to the Democratic Party. He's gonna actually give us, like, the Trump dynasty. Literally the Trump family dynasty. We're gonna get every Trump for, like, the next 30 years. We're just gonna have a Trump as president of the United States. Because of Hasan Piker. It's like, no, we're not. No, no. He's not that threatening. He's not that scary. I don't know. It's shocking shit. I was also trying to see to find this clip right here for us. This was the podcast we were talking about. And Dan goes on to talk about why he basically kind of-- like, how he basically kind of justifies, you know, not being totally honest. I think he says, I'm honest about my dishonesty. I think that's what this is, but I was also trying to read the transcript. I would say also... Sorry, man. I muted my mic for two seconds and left it muted. Tried to mute it for two seconds. Obviously you do it for longer. You know, another important thing is like.
+- 10:01:41) **C**: I saw Hasan go on a rant.
+- 10:01:42) **JSTLK**: Last night where he was going on and on about context and how he was so dishonest, and if he did.
+- 10:01:47) **C**: Anything that was dishonest, his audience would.
+- 10:01:49) **JSTLK**: Hold this feet to the fire. That's not true.
+- 10:01:52) **C**: Of course not.
+- 10:01:53) **JSTLK**: But that's part of the game, Hasan.
+- 10:01:55) **C**: I expect you to say, so the difference is that I think people give.
+- 10:01:58) **JSTLK**: Me a lot of shit for this because I say it, whereas other people lie about it. I will make you look as bad as possible because you're a bad person and there's enough source material to do it.
+- 10:02:02) **C**: I don't feel bad about taking a.
+- 10:02:04) **JSTLK**: Screenshot of the homepage and putting it on my Twitter feed because you are doing the same thing. You're more cagey about it, right? You want to talk about shit that happened in 2009 when one of my 30 investors, this is insane.
+- 10:02:21) **C**: You went to a ditty party. like, I'm fine.
+- 10:02:24) **JSTLK**: So, okay. It's like. It's, like, transparently, like, oh, your people make fun of me for tiny chat being, like, a pedophile grooming ground. And you make fun of me for getting money from Diddy for tiny chat, and so I'm gonna try to destroy you and by any means necessary.
+- 10:02:41) **G**: There's, like, the general idea he's going with here. So the Diddy party thing, it. I'm assuming that didn't happen. Like, I missed one.
+- 10:02:49) **JSTLK**: So Hasan was at Coachella high on mushrooms, and apparently he walked into a tent or he went to-- he was planning to go to a tent where there's a ditty, like, party, right, at Coachella. And then I think he says, like, I saw a girl dancing in a video that looked, like, way too young, and he basically implies it weirded him out and he left.
+- 10:03:09) **G**: Okay. What's the problem there?
+- 10:03:13) **JSTLK**: There is no problem, but if you just say Hasan went to a ditty party, yeah, basically.
+- 10:03:17) **G**: It's like, right?
+- 10:03:18) **JSTLK**: Yeah.
+- 10:03:18) **G**: It's like one of those lot where it's like, well, technically, that I guess did happen, sort of, but he left out of disgust. I I don't know. Unless you're saying that he lied.
+- 10:03:28) **Kuihman**: And there is a whole thing of, like, the Diddy party at Coachella that's in the tent. Isn't like the Diddy party freak off lawsuit. Like, there's crazy sex trafficking happening everywhere. Like, that's not.
+- 10:03:42) **JSTLK**: Yeah.
+- 10:03:42) **Kuihman**: The same thing. Like, this is, like, a relatively public thing that people can wander into.
+- 10:03:46) **JSTLK**: Yeah.
+- 10:03:46) **Kuihman**: Yeah, exactly.
+- 10:03:46) **G**: It's not like he walked in and there's, like, sex trafficking happening.
+- 10:03:50) **Kuihman**: Yeah, exactly.
+- 10:03:50) **G**: Obviously in front of him. And it's like, oh, there's all these celebrities are here. Like, Epstein's there or whatever. Like, yeah, you know.
+- 10:04:04) **E**: Yeah.
+- 10:04:04) **G**: I mean, I guess it is a. I guess it is a fun point, though, to just say that, because you can. It's like one of those things you say where it's like, it's, you know, it's like a half lie.
+- 10:04:12) **E**: It's like, yeah, it's just a problem.
+- 10:04:15) **JSTLK**: When you start, like, seriously defending it.
+- 10:04:17) **Kuihman**: It's like, it's like, it's funny when.
+- 10:04:20) **JSTLK**: You just say it as, like, a.
+- 10:04:21) **Kuihman**: Kind of a joke, like tongue in cheek. You're like, oh, someone you into a dirty.
+- 10:04:27) **G**: Well, yeah.
+- 10:04:28) **Kuihman**: Like, Destiny's an e-rapist or a rapist or something. Yeah, exactly. But it's when you're like, no, no, this. Let's go to a dirty party.
+- 10:04:37) **G**: This guy's doing weird shit with kids.
+- 10:04:39) **E**: And shit like that.
+- 10:04:35) **Kuihman**: It's like, okay, well now you're actually arguing him.
+- 10:04:39) **E**: Right.
+- 10:04:39) **G**: Yeah, it'd be like if Jay Stuck was responding to Destiny's but he's like, this guy who's literally a fucking rapist.
+- 10:04:47) **E**: Is now saying that... Yeah.
+- 10:04:49) **JSTLK**: Yeah, you just, I mean, yeah, basically if somebody presses you on something in some way and you like just double down on it, like that's your position and you can't really get away from like holding that as a position and Dan will double down on how bad these things are. He literally did this one, the Diddy Party one with DaOrIo. on not the past stream, but the one before that. And Nick, like, called him out. I was like, this is just totally disingenuous. I don't know why you're doing this right now.
+- 10:05:13) **E**: Yeah. Yeah.
+- 10:05:18) **G**: It's just stupid. It's just giving Hassan ammunition to just be like, these people are just dishonestly trying to ruin my life, blah, blah, blah. And then when he lays out, like, what they're doing, like, lying that he's like, a Diddy party attender or a doxer or something like that. It just is so meaningless.
+- 10:05:37) **JSTLK**: Like, why?
+- 10:05:37) **Kuihman**: Especially when you do this. Look who he's on the podcast with. Look who he's on the podcast with. Like, it's Knox, the lollycon and Tectone, the alleged rapist and abuser. So what's the Optics here? What are the Optics here?
+- 10:05:54) **JSTLK**: Yeah.
+- 10:05:55) **Kuihman**: That and the guy I received funding from Diddy. the lolly con and the alleged rapists around talking about how Hassan's terrible for going to a relatively public party at Coachella. Yeah.
+- 10:06:10) **JSTLK**: I mean, the funny thing about this is that I think Dan, like, trying to kids is one of the only banned memes ever for, like, an orbiter and Destiny's Community where, like, they just outright banned.
+- 10:06:23) **E**: People.
+- 10:06:23) **JSTLK**: You know why this from making this.
+- 10:06:25) **Kuihman**: Do you know why?
+- 10:06:26) **JSTLK**: Are we gonna do Dan went to. Dan had a weird incident in Hawaii.
+- 10:06:30) **Kuihman**: And as a long time Destiny Watcher, as a long time Destiny viewer, I recall the Hawaii holiday, the Hawaii vacation with Dan Saltman, Mr. Muton and Destiny and Molina, where they went to Hawaii and there was something that happened that I don't know whether it was ever disclosed. to the public where they all started joking that Dan was a pedophile, basically. And then Dan started insensitive about it.
+- 10:06:57) **E**: And it became banned.
+- 10:06:58) **G**: Is that why people call them a pedophiles or something? No, I mean, there's a lot of reasons.
+- 10:07:03) **Kuihman**: You can like on to a lot of things. Cool anyone in a pedophile, really?
+- 10:07:07) **E**: But yeah, his.
+- 10:07:08) **JSTLK**: He did start a company that took seed funding from a comp, from, like, a fund that took money from Diddy yourself. Like, he actually got money from Diddy. Not directly. Like, he didn't go seek it out. But his company did get funded by Diddy. Um, the guy wasn't a massive funder either. And then that platform was then used. I think there's a clip of Diddy hitting on an underage girl on the platform or a young girl on the platform. And it was just generally there are stories of people getting kind of groomed on that platform as well. He ran a social media platform or whatever. Yeah, he ran like a chat roulette to kind of that.
+- 10:07:42) **Kuihman**: Tiny chat.
+- 10:07:44) **G**: Tiny chat. Wow. Okay. Interesting.
+- 10:07:53) **JSTLK**: I think the truth of that. I think the truth of that Hawaii story is, like, kind of out there. Apparently got discussed on a phone call. I can't remember. It's, like, fairly innocuous, I think. Like, I don't know if it was.
+- 10:08:05) **Kuihman**: I think it's funny. It was very ambiguous.
+- 10:08:08) **JSTLK**: I know.
+- 10:08:09) **Kuihman**: I think that screws himself by allowing it to be ambiguous, kind of, so. yeah, that's funny.
+- 10:08:15) **JSTLK**: I think it was kind of innocuous. Yeah, but should leave it ambiguous because he wants to leave Hassan going to a brothel that got raided by the government or something. Or, you know, the. This whole thing. Hassan went to a ditty party, then leaves it ambiguous. Right.
+- 10:08:30) **Kuihman**: Well, I've heard Hassan say that, you know, say essentially that he left. He said, yeah, it was like, weirdest park or whatever. I've never. I've never heard Dan explain this story. So I can be more sure of one than the other.
+- 10:08:46) **JSTLK**: Dan has to explain what happened in Hawaii.
+- 10:08:49) **Kuihman**: Beat the alligators right now.
+- 10:08:55) **G**: What do you guys think of Dan?
+- 10:08:57) **JSTLK**: Like, do you hate him?
+- 10:08:58) **G**: Do you like him? Like, what is.
+- 10:08:59) **Kuihman**: I like him. I like him.
+- 10:09:01) **JSTLK**: It's hard to hate him because he is transparent that he is going to do whatever he can. Like, if you go against him. He's gonna do whatever he can to destroy you, and he'll be, like, as underhanded as he has to. And he'll tell that to your face. He'll tell that to you to your face.
+- 10:09:15) **G**: I mean, is it hard to hate a guy that's that openly malicious? I feel like it's pretty easy to hate somebody that's like that. Is it just because he's, like, funny or something? Because, again, I don't really know too much about him.
+- 10:09:29) **JSTLK**: I think for Quaman, it, like, I can't really speak for myself. because I don't want to. But for Quimby, I think he's just generally, like, scared that this guy will.
+- 10:09:38) **Kuihman**: Dox and try to kill him.
+- 10:09:40) **G**: And so, I mean, that's reasonable.
+- 10:09:42) **JSTLK**: That's.
+- 10:09:42) **G**: That's. You know, you're right. I I like Dan, too.
+- 10:09:45) **H**: No, it's DGG brain rot. Like, literally, Dan never shows up in the server. Once the j-stock allegations dropped, this guy.
+- 10:09:54) **JSTLK**: Was in the server in VC. I don't know why j-stock still likes this guy. I went into that VC and started.
+- 10:10:00) **Kuihman**: Asking him why he won't talk to Bisca. I like that. I like that. I think that's cool.
+- 10:10:03) **E**: Yeah.
+- 10:10:03) **JSTLK**: Okay.
+- 10:10:05) **G**: I do, too. And I am Pro.
+- 10:10:07) **Kuihman**: He has an endearing, you know, lovable old, old man personality, if you know what I mean. Like. Yeah, it's like a. Like a uncle. Like, really desperate to be cool, you know?
+- 10:10:21) **G**: So he's like Jewish successful.
+- 10:10:24) **JSTLK**: That wasn't cool in high school.
+- 10:10:25) **E**: Yeah.
+- 10:10:26) **Kuihman**: Eactly.
+- 10:10:27) **C**: Yes.
+- 10:10:28) **G**: He's Jewish successful, Tommy C, that's what you're saying.
+- 10:10:32) **JSTLK**: U was it If he didn't make the money he does, he his wife could take care of him, yes. His wife could support him.
+- 10:10:38) **G**: He's Jewish successful Sober, Tommy C is what you're saying. No,ba, no, Sobba, Not sober. Okay.
+- 10:10:47) **JSTLK**: Now this is lially a this is lially like a custom made bar back here that keeps his alcohol cold. Yeah.
+- 10:10:54) **Kuihman**: This is his version of the arcade cabinets and pinball machines. Okay.
+- 10:10:57) **G**: That's awesome.
+- 10:11:00) **JSTLK**: It is pretty cool. This room is pretty cool. Dan does some pretty cool things. Yeah.
+- 10:11:05) **E**: Yeah.
+- 10:11:06) **G**: I'll sit here and say, you know, I actually am Pro Israel in the war.
+- 10:11:10) **Kuihman**: So.
+- 10:11:12) **JSTLK**: You support ethno nationalist. You support ethno nationalist pursuing their agendas.
+- 10:11:17) **E**: Yeah.
+- 10:11:18) **JSTLK**: I get it. I understand.
+- 10:11:20) **G**: Exactly.
+- 10:11:21) **JSTLK**: Hold on. That actually just reminded me. Oh, hold on. Where was it? Hold on. I'll find it. I don't want to give it away. I swear to God, it's a clip from yesterday. Fuentes. Oh, here it is. Here it is.
+- 10:11:43) **G**: You're gonna play the him siding with the Jews clip. Yes, yes, yes, yes, yes, yes.
+- 10:11:48) **C**: The attack was necessary because they can't death to America I sent your clips and Timothy Gorden clips on Zionism.
+- 10:11:55) **G**: What should I do at my dad? Benny Johnson is gay. Enjoy your Fourth of July. Why, why, why are we here?
+- 10:12:02) **JSTLK**: Is it just to suffer?
+- 10:12:04) **G**: Is it just so that we can.
+- 10:12:05) **Kuihman**: Be tortured to death by idiots?
+- 10:12:07) **G**: So we could just be tortured to.
+- 10:12:09) **JSTLK**: Death by the goyim? Why?
+- 10:12:11) **G**: Okay, I'm like two seconds out from.
+- 10:12:13) **JSTLK**: Just joining the Jews at this point.
+- 10:12:11) **G**: Like, I want to oppress you with them at this point.
+- 10:12:14) **JSTLK**: It's like I started out like the.
+- 10:12:15) **G**: Jews are oppressing us, then it's like.
+- 10:12:18) **Kuihman**: No, no, the Jews are oppressing all of you.
+- 10:12:21) **JSTLK**: Maybe I need to help them. Maybe I need to enhance that.
+- 10:12:25) **G**: Maybe just how like the kings of Europe used to hire the Jews to torture their own people.
+- 10:12:29) **JSTLK**: Maybe the Jews will hire me to torture all of you.
+- 10:12:33) **C**: Wouldn't that be something?
+- 10:12:34) **G**: It's still an option. It's always an option. Let's just say, Put that on the bag burner. Let's just say that's Plan B.
+- 10:12:40) **JSTLK**: He's like Buffalo Ranch clip, his like barbecue clip, really just rants about barbecue food. If anybody could find that one, that is the one I want next. Okay, if somebody finds it, I'll play it.
+- 10:12:54) **H**: The no talk talk from Hamas.
+- 10:12:58) **G**: No more talk from Hamas.
+- 10:13:03) **JSTLK**: You die. Israel rapes you. You do nothing. I have it. So good. Jesus. Closing up some of these tabs.
+- 10:13:29) **E**: Never mind.
+- 10:13:29) **JSTLK**: Don't need. to close that tab. That tab can stay open. Oh, I'm probably not gonna splug through this VOD anymore right now with so many people here, but. Oh, boy. Where did Aiden go? Why did Aiden just peace out? What is he doing?
+- 10:13:49) **G**: Aiden just joins these calls and just dips in, like, two minutes. He doesn't stay for the Long Haul.
+- 10:13:55) **JSTLK**: Yeah, I don't know. I don't know what that is. What the heck, man?
+- 10:13:59) **Kuihman**: He likes to listen to what's being said so he can copy a take for later.
+- 10:14:05) **JSTLK**: True, true.
+- 10:14:12) **G**: Yeah, it is kind of a piece of. I'm not gonna lie. I'm not even joking, dude. Like, I've been friends with this guy since, like, 2018. his streams for the last year have just been Augie, his community, everything about RFC, I hope RFC burns, I hope RFC dies. And for years he's always told me how I saved his life and how I was like an amazing figure to him and how my community gave him a purpose and a home. And yet on stream he acts like you know, I am, like, just, like, the biggest piece of all time. It really does make me violently angry towards those people.
+- 10:14:55) **Kuihman**: Is that why he was gay as a teenager?
+- 10:14:57) **E**: Yeah.
+- 10:14:57) **JSTLK**: Is that.
+- 10:14:59) **Kuihman**: No, no.
+- 10:15:01) **G**: He was a. No, I can't say.
+- 10:15:04) **JSTLK**: I could. I could understand where the hatred would come from. Probably.
+- 10:15:07) **G**: No, no, no, no. That was not from my community. We actually were working on getting him fixed. I was in contact with Milo Yanopoulos. We were gonna get him sent. he was going to be the first person sent to Milo's conversion camp.
+- 10:15:18) **Kuihman**: He was gonna have a male mentorship with Milo. Without Milo.
+- 10:15:23) **JSTLK**: Right.
+- 10:15:23) **G**: Milo's like a straight conversion therapy camp. We were gonna get him sent to that.
+- 10:15:29) **JSTLK**: Milo would be kind of like a priest and he would be a young boy.
+- 10:15:32) **G**: Well, I actually had Aiden going to Catholic church. Like he was actually like in the process of converting and then he abandoned all of that to turn on me. so it was a sad thing. We were trying to get them fixed, but.
+- 10:15:47) **JSTLK**: Unlucky.
+- 10:15:49) **G**: Yeah. I just think he needs to stop disrespecting me so much. It's kind of disgusting.
+- 10:15:58) **E**: Yeah.
+- 10:15:59) **JSTLK**: Whatever Tyrone did to him, like, back in 2016, was really.
+- 10:16:06) **JSTLK**: This guy's name, really? Tyrone.
+- 10:16:11) **G**: All right?
+- 10:16:11) **JSTLK**: I mean, Augie, if you wanna.
+- 10:16:13) **Kuihman**: Fill in the gaps like this.
+- 10:16:15) **G**: Listen, I know I'm not gonna. Despite what Aiden says about me, I'm not gonna reveal any private information about him like that. You know, he's welcome to tell his own story.
+- 10:16:34) **Kuihman**: So have you not looked into any of the Tommy C stuff still? Okay. Or you just.
+- 10:16:38) **G**: I know the basics of it.
+- 10:16:40) **JSTLK**: I.
+- 10:16:40) **G**: It got into, like, a lot of, like, Convoluted. I saw the first video and, like, the first stream and a bit of chat logic response, but, like, the 8 billion streams after that, I didn't look at. And then Aiden's calling and stuff like that. It just seems like.
+- 10:16:56) **Kuihman**: I don't really know what.
+- 10:16:57) **G**: Just seems like a disaster. Chief yeah, I don't really know either to be honest with you.
+- 10:17:03) **Kuihman**: I.
+- 10:17:06) **G**: I think he I mean he.
+- 10:17:07) **Kuihman**: Probably so you didn't see her when Willie was on there the other day.
+- 10:17:11) **G**: About the J-Sock stuff no, I didn't watch that at all.
+- 10:17:14) **Kuihman**: Oh, dude, it's so bad It's so they are just doing like a victory lap of like. Oh, yeah, this makes Destiny look so good like that's that's were they really.
+- 10:17:24) **G**: Saying that come on on. I just talked to Willie the other night.
+- 10:17:27) **JSTLK**: I I don't want to. Give me a time stamp.
+- 10:17:30) **G**: I'll throw it up right now. I don't have time.
+- 10:17:33) **Kuihman**: Let me, let me analyze this. Yeah, yeah. He did, like, all stream.
+- 10:17:37) **JSTLK**: He did, like, all stream.
+- 10:17:38) **G**: Pull up the Tommy C stream. Pull up the Tommy C stream. Let's do it. Let's do it.
+- 10:17:45) **Kuihman**: Well, look, if they're just clowning on you, that's base. But it's like if they're saying Destiny.
+- 10:17:52) **E**: Yeah.
+- 10:17:52) **Kuihman**: If they're saying Destiny vindicated, I take an issue. I don't, I don't know if vindicated. It's not gonna be, like, vindicated.
+- 10:18:00) **G**: I think they said this must definitely looks so good. Like, you know, it's basically being, like.
+- 10:17:52) **Kuihman**: It's doing the gay shit where you talk about optics all the time and you say, this makes this person look so good, you know, but don't, don't you say like, oh, what it is.
+- 10:18:00) **G**: Still really, really terrible. I fucking hate him. Listen, I need to hear from their words. You guys are all dishonest actors who are looking to destroy all of my.
+- 10:18:10) **H**: Friends, to be honest with you.
+- 10:18:11) **G**: And so I need to destroy. They want to kill him. They want him dead. Exactly. Adam was in here talking about how he wants Tommy to see his friends shitting on him and pissing on him in the streets. It was disgusting to hear that. So I need to hear from their words. This is a pretty funny.
+- 10:18:24) **Kuihman**: Yeah, anyway, the main reason I brought this up, I just started finishing this, was, the Willy Mctt comes on and basically says, there's like chatters antagonizing them about the chud stuff.
+- 10:18:36) **E**: Yeah.
+- 10:18:36) **Kuihman**: And, Willy basically starts, he starts lashing out. He seems a bit, he seems a bit touchy. And, he starts going in this chatter, he's like, why do you think Tommy's saying all that stuff about what people are saying behind the scenes? She's just making it up. No, obviously people saying that stuff, like, basically just like going, no, charge really is a piece of. Wait, just backing it all up and. Yeah, it's very, very cringe.
+- 10:18:58) **G**: Interesting. Queenman fan is a big donator here.
+- 10:19:05) **JSTLK**: I'm just looking. You just scan through the VOD. I'm guessing is Willie gonna show up on stream? Is he gonna show up, like, in a Discord call or something?
+- 10:19:12) **Kuihman**: No, I don't know if he's showing on screen.
+- 10:19:15) **E**: Okay.
+- 10:19:16) **G**: This is a pretty funny meme. You gotta admit the thumbnail is pretty good, right?
+- 10:19:21) **JSTLK**: What was the thumbnail?
+- 10:19:22) **G**: I didn't see it. Or not the thumbnail, but just the.
+- 10:19:26) **JSTLK**: Little image, the meme that he has of you. Just like Destiny. Uh... No, I genuinely really care about this person. I don't find that shit funny. But I don't criticize anybody's ability to, you know, it's like a personal thing. I don't criticize anybody's like you want to make your jokes. I get it. It's fine. I'm not gonna like get mad at you. It's like a personal thing, but it's fine.
+- 10:19:48) **G**: I just thought it was ridiculous and and very out there.
+- 10:19:53) **JSTLK**: It's yeah, it's honestly I've got no I would never be like angry at Tommy for it is fine It's on.
+- 10:20:00) **C**: Twitter laughing my ass off. Jay stock was fucking dated eating cherry to get.
+- 10:20:06) **JSTLK**: I'm gonna. I'm gonna go ahead and find where this Willy call is. You got any idea, Queenie, where it is?
+- 10:20:12) **Kuihman**: All of the problems tuned in, in and out live. So I thought I haven't marked out any time.
+- 10:20:17) **JSTLK**: So let's see. Crashing. Crashing out.
+- 10:20:22) **G**: If you search.
+- 10:20:23) **C**: All right, now we're crashing.
+- 10:20:27) **Kuihman**: So search.
+- 10:20:30) **C**: Time you see was.
+- 10:20:31) **JSTLK**: What's about?
+- 10:20:31) **Kuihman**: Crash got molding pop or something like that.
+- 10:20:35) **JSTLK**: Making stuff.
+- 10:20:38) **Kuihman**: Making.
+- 10:20:39) **JSTLK**: Making that up. Destiny's making that up entirely. And the thing you did reach out to me, too. I basically said, Destiny's making.
+- 10:20:44) **Kuihman**: No, no. Oh, sorry. I'm talking about the chud stuff. I'm talking about the chud. So I don't if you're looking for the Destiny stuff.
+- 10:20:52) **JSTLK**: I'm just looking for. Yeah, sorry. Chud wasn't fair to him.
+- 10:20:59) **C**: Situation.
+- 10:21:02) **JSTLK**: Oh, 148-21 thank you.
+- 10:21:07) **C**: He says, what are you talking? Oh, Jesus Christ. You walk with a YouTuber in the UK. Think, dude.
+- 10:21:15) **JSTLK**: I thought I was irrelevant. First of all, second of all, if.
+- 10:21:17) **C**: You had a friend, you wouldn't be here.
+- 10:21:19) **JSTLK**: You would be doing. do something else. You know why? Because you have a friend.
+- 10:21:23) **C**: So have a good day, Hulk dog.
+- 10:21:28) **JSTLK**: They're, like, yelling, saying that, like, Willy supports the chud.
+- 10:21:32) **G**: Dude, does Willy support the chud hate?
+- 10:21:35) **JSTLK**: Look, dude, if you. When Tommy's stating these positions where he.
+- 10:21:39) **C**: Goes, Willy was annoyed at this, or.
+- 10:21:41) **Parry**: Tom was annoyed at this, or Nick.
+- 10:21:43) **JSTLK**: Was annoyed with this, you think he's just making it up or. I think people have said that.
+- 10:21:47) **H**: Come on, boys.
+- 10:21:48) **G**: Think you got this.
+- 10:21:49) **Kuihman**: I got full faith in you.
+- 10:21:51) **C**: I don't know everything, Tommy.
+- 10:21:53) **I**: Hold on.
+- 10:21:53) **C**: No, no, okay. I know everything, Tommy said. All right, so I don't.
+- 10:21:58) **Kuihman**: I won't want to say I support.
+- 10:22:00) **C**: Everything, because I don't know.
+- 10:22:01) **JSTLK**: The stuff he said related to me. Yeah, he's heard it from me. Just like he's heard from other things. I know.
+- 10:22:07) **Kuihman**: From other people, you.
+- 10:22:08) **JSTLK**: I'm not talking to anybody.
+- 10:22:10) **Kuihman**: Like, I was talking.
+- 10:22:11) **G**: I mean, are we serious?
+- 10:22:13) **C**: They think I'm not talking to anybody. They think I just came out of.
+- 10:22:16) **G**: This out of nowhere. Like.
+- 10:22:19) **Kuihman**: This is a name.
+- 10:22:21) **H**: Just revealed this guy is, like, sharing, like, details of your private chat on stream, and you just. But it took you this long to co-sign it. Isn't this just weird Behavior?
+- 10:22:33) **JSTLK**: I think, yeah, it's weird that they are just where their opinions, like, I think it's.
+- 10:22:36) **Kuihman**: I think it's totally embarrassing that Tommy S. Did this gay bit in one of his live streams. He's like, oh, Queen is like, Charles bad empanada. And it's like he. Tommy is literally, like, total shabas goy attack dog for Nick, Willie and Tom right now. Like, just total, like, literally doing the work going to make himself look stupid on retarded complaints they shouldn't even be upset about in the first place if they weren't total thin skin.
+- 10:23:03) **G**: To.
+- 10:23:03) **Kuihman**: To go and cry about this in public because they don't want to torture them their own reputations doing it. They don't want to look retarded.
+- 10:23:10) **G**: They don't want to go against Sean. So you think like they're ordering Tommy to go on the attack?
+- 10:23:14) **Kuihman**: No.
+- 10:23:15) **G**: This is like something Tommy's doing in the background.
+- 10:23:18) **JSTLK**: They're venting to him.
+- 10:23:19) **Kuihman**: They know Tommy's retarded enough to go do it. Yeah, they're venting to him and then Tommy goes out and does it. Nick's not saying, oh yeah, Tommy's being fucking retarded here. Obviously I had an issue with this, but it's not that fat, it's not that big of a deal. Like Tommy's being fucking retarded and blowing that proportion. Tom's not saying that and Willie is explicitly supporting it. so he's doing the exact, like, thing that, that he accused me of doing for child, which is going out and saying the opinion that the other people are too scared to say that are going out and, you know, going extreme and snaking his friends so that he doesn't have to. That's literally what Tommy's doing.
+- 10:23:51) **G**: Yeah.
+- 10:23:52) **E**: Yeah.
+- 10:23:53) **G**: Tommy's sort of like the battery ram in this community, I guess, is that he, like, goes live with, like, because, like, I feel like Tommy's in a position right now where he doesn't really super care about his channel or moving forward. I mean, he's made probably, like, 20 different streams talk about wanting to quit YouTube and stuff like this, and, you know, so he's at a point where his. He doesn't really care anymore, so he's willing to sort of be, like, this, like, battle Ram of, like, where he just has the takes of, like, whatever the. I want to say, like, I'll just throw him out there, no matter how.
+- 10:24:24) **Kuihman**: But it's not just what he wants to say. Maybe one thing is what he wants to say, but he's doing the bitch.
+- 10:24:33) **E**: Work for other people.
+- 10:24:33) **G**: Well, I think he shares their opinions greatly because, like, let's be honest, I think out of all of the guys that, you know, y'all have given Willie a lot of shit. Y'all given Tommy a lot of shit. Y'all have been giving Nick some some amount of shit.
+- 10:24:50) **E**: Right.
+- 10:24:50) **G**: I think y'all have gone to Tommy C the hardest, right? So he probably has the most anger. Towards you guys out of everyone. Is that fair to say?
+- 10:24:58) **JSTLK**: I've literally never mentioned- But why- okay.
+- 10:25:01) **Kuihman**: Before he- Then why is that anger at Chudd, right?
+- 10:25:04) **G**: It's like this is about Chudd, right? I don't understand why it was about Chudd. I feel like this his war should have been focused on you because you think so. In the most- well, just because you've been like the most vocally against him. I don't think Chudd has barely said.
+- 10:25:17) **Kuihman**: Shit about Tommy C, at least from what I've seen.
+- 10:25:21) **G**: Well, he did responses to the streams, but yeah. well, yeah, he did, like, a couple, like, coverages of Tommy, but even then, like, I. I never saw chud, like, going at Tommy, whereas you were going at Tommy, like, every day for, like, a month. So I feel like if Tommy was to wage this style of War, it would make more sense to go at you.
+- 10:25:40) **Kuihman**: Yeah, but I think it's, like, a. because I feel like it is about me, but it's like, it's definitely about you. You've betrayed. You've betrayed us by letting this guy do this.
+- 10:25:54) **JSTLK**: And it is the actual betrayal here.
+- 10:25:58) **G**: Yeah.
+- 10:25:59) **E**: Yeah.
+- 10:25:59) **G**: I I I don't. I really don't understand that side of his argument because it's like, to me, just go after the person that if you believe somebody is dishonestly attacking you, go after that person. Like, I guess. It's like, what is the expectation on Chud to DM you every day and be like, Stop doing that, you know? That's the part of the argument that I don't understand. So... Yeah.
+- 10:26:29) **Kuihman**: Aside from, like, Chud blacklisting me, like, cutting me off of coming on stream and raids and all that shit, it's like Chud says, I think you're going too far there. It's like, I might consider it as, like, a thing, but it's not gonna, like, make me stop, you know? If Charlie said, I think you should.
+- 10:26:46) **G**: Stop going off to Tommy C. I probably was.
+- 10:26:48) **Kuihman**: I'm waiting on dangerous Waters here right now. I can feel the pressure. Yeah, you are.
+- 10:26:53) **JSTLK**: Yeah.
+- 10:26:54) **Kuihman**: Tread lightly, Augie. Okay, man. You haven't streamed a while. You're. You're.
+- 10:27:00) **G**: You're not really in a position to be talking this way. Okay.
+- 10:27:03) **JSTLK**: If they pull my support, I'm.
+- 10:27:05) **H**: You guys know this, right? Like. Next time we see stream, Augie's been dming me some things and he hate.
+- 10:27:09) **G**: The screaming guy too.
+- 10:27:10) **C**: Oh no.
+- 10:27:11) **G**: It's over.
+- 10:27:12) **Kuihman**: You know, I think all the equipment suddenly started launching a bunch of vicious attacks on Nick while Augie was sitting there was, I think I was really out of line. I think Augie is kind of betraying.
+- 10:27:23) **G**: Nick by not standing up to him there. Actually, that's Tommy say, that's Tommy say like next time. Oh shit, I stand by, I am, I kill, rape and die for the Adon. Okay. I am loyal to DeOrio and the cabal, but no, I mean, seriously, though, like, yeah, I I just. I I feel like when it came to Thomas's original points against chud, I guess the points that I do agree with is that, like, when it comes, like, the audience captured point, that's probably true. Although I would say I think everyone is audience captured to some extent. I mean, I think we're all influenced by our chats. to like a much larger degree than we would like to admit. You know, nobody wants to go live and have the whole chat just full of people calling you a fuckhead and a retard and somebody who's just missing the point and stuff like that.
+- 10:28:08) **E**: Right.
+- 10:28:09) **G**: It feels uncomfortable. I think as a streamer, you want everybody on your side, so you're obviously going to want to maintain that, you know? So I think everyone's audience captured to some extent, maybe you could make that argument shudd because I think the problem is that there's a large community, yalls community. I say yalls community, I'm just grouping everybody into this giant category. Who knows if they actually agree with each other or not. But like the whole like idea of like the spicy chat community. I think there's a lot of people in yells chat that want blood. They want commentary and you guys to go at each other. They want war. They want, they demand daily a locking of DeOrio. they demand, you know, a fight. And I don't necessarily see you guys wanting to do that. I see you guys, like, I'm talking, like, to you, J. Stock and Queenan. I don't really see you guys as, like, super wanting to do that, but you are willing to be critical. And there is a different. There is a different culture when it comes to, like, because we come from, like, an older generation of YouTube where it's like, It's so it is a click, you know what I mean? It is sort of like if you are going hard on your buddy that is seen as like almost like a declaration of war, you know? And I feel like it's like an old whereas with you guys you guys are just brutal to each other like you know, I've seen shudd go into you, Queen, and I've seen you guys go into each other and stuff like that yout guys are a lot more brutal each other. You come from this sort of like destiny community where it's like everyone it is like that is the constant is everyone fighting each other or Whereas in the commentary community, it is seen as like, you know, it is a much more friendlier place until you are seen as like just like an irredeemable piece of shit like Boba Fett or tipster or flamenco or somebody like that. So it's a clash. Yeah, it's a clash of cultures. It's a clash. It's two different communities of the internet. It's two different times of the internet that are all coming at each other's throats.
+- 10:30:09) **JSTLK**: Right.
+- 10:30:10) **G**: And there's a lot of that going on there. And I think everyone just needs to calm the fuck down just a little bit and recognize, like, when I was doing RC mania, you know, Chud was like ripping into me, you know what I mean? But I didn't fucking care about that. You know what I mean? Like, did it piss me off a little bit?
+- 10:30:28) **JSTLK**: Sure, right?
+- 10:30:29) **G**: But it's like we were we we took what Chud was saying and we turned it on him. We were shitting on him and stuff like that. and it was just content at the end of the day, you know what I mean? I still like Chud. I think he's great. I think he does a great show. And I didn't view what Chud was saying about me as like indicative that, oh, he's my enemy now.
+- 10:30:47) **Kuihman**: Oh, he hates me.
+- 10:30:49) **G**: He doesn't like me anymore. Or like, oh, he's looking for a.
+- 10:30:53) **Kuihman**: Chance to really get me.
+- 10:30:54) **G**: This was just, he wants me to lose my audience. He wants me to lose my career. Yeah, yeah, exactly. It's like, I just looked at it as just he was fucking, he was busting my balls and we busted his balls back. And that's just how content is done. That's what makes content interesting is people see, like, this little, like, beef or whatever, right? But it's not really that serious. People see chud throw shots at me. They see me throw shots back at him. But it's not like this big deal where it's like, oh, this is, you know, this is now a war. And chud is looking to kill me and stuff like that. I feel like everyone needs to just calm the down. But the problem is, is that, you know, there is a lot of paranoia going on. a lot of money.
+- 10:31:33) **JSTLK**: Yes.
+- 10:31:33) **G**: Everyone's making too much money, and it's made people a little bit sensitive, I think.
+- 10:31:39) **Kuihman**: A little bit.
+- 10:31:40) **JSTLK**: Yeah.
+- 10:31:40) **Kuihman**: On edge.
+- 10:31:42) **E**: Yeah.
+- 10:31:43) **JSTLK**: Those comments from, like, chud, those are, like, actually really important, by the way, because that's what prevents you from riding away for too long.
+- 10:31:48) **E**: Right.
+- 10:31:49) **JSTLK**: If somebody can, like, feel criticism and feel comfortable going like, oh, Nicholas diorios, like, right, it just as a jab. that's what makes you kind of click in, be a little self-conscious and go, oh, wait, maybe I'm going a little too far here. And when you don't have that at all, like, that's what causes you to.
+- 10:32:06) **G**: Go, like, way off the rails sometimes. I think you guys are, like, not necessarily. I think, look, I'm gonna do a little bit of old-fashioned sweeping. I think you guys are a little bit too. You guys think Nick DiOrio. And when I say you guys, I'm talking mostly to the chat, but I think, like, a lot of you guys think Nick DiOrio has a lot more cucked and sold on his positions than he really is. Like, when he goes live tonight and shits on the doxing narrative, I was like, yes. Here we fucking go, right? But I think a lot of people were surprised to hear him say that. And to me, it would be genuinely shocking if DeOrio was buying up Bitcoin.
+- 10:32:35) **Kuihman**: No, but we are so far past that because it's been, it's so blatant when people are buying in wholesale. Nick, like, it's not even, Nick said, Ethan is my attack dog. I like Ethan when he's just fighting my enemies. Nick said this CPS call will justify everything Ethan does for months. Ethan can go so far because of this CPS call. And then every time something's brought up, my CPS, my snark, my skulls, from him, every time. Blaming, attributing bad empanada and denims and snark as all one entity and blaming the CPS call on them with no evidence. A standard that would never have been held with kefels, You know, bad and kiwi farms.
+- 10:33:20) **G**: But like those names you brought up, like bad empanada was the guy that made the video with the narrative that.
+- 10:33:26) **Kuihman**: Ethan's like abusing his children basically. Yeah, but you can't, yes, yes, but we would usually, so bad empanada, you can say bad empanada made a bad faith malicious video that spins Ethan as someone who has a shit covered house.
+- 10:33:40) **E**: Fair enough.
+- 10:33:41) **Kuihman**: Reasonable criticism. You can say, Denims, did not, sufficiently push back when she, when she watched the video. Which is like, reasonable. Reasonable criticism, totally reasonable criticism. And you can say someone seemingly maliciously called CPS on Ethan and it's probably as a result of what they saw online. Okay, this is, these points are all reasonable. Now when it becomes unreasonable is when you start saying, yeah, fuck all these people. They got the CPS called on Ethan. Dennis didn't get the CPS called, Dennis didn't get CPS called on Ethan. She doesn't bear responsibility. for some fucking idiot going and doing that. We would never hold that standard in any other drama ever. Keefles, fucking Brownlow, Game of Thrones, whatever it is, whatever it is, we would never, ever, ever have held that standard. And Nick has full throatedly pushed that shit the whole time. And he was sitting there pulling up a drawing of Ethan holding skulls that was on the H3Snark subreddit. and he's sitting there looking at this going, oh, this is disgusting. These people are insane. This is disgusting. These people are insane. There's the Nazi sword where he's saying it's a dog whistle. It's an intentional dog whistle. It's like Ethan only started pushing that after Nick bought into it. Ethan's crew walked him back on the initial episode. Nick acknowledges that Ethan is watching his show and that Ethan, he's like, I think I'm getting messages to Ethan. He says this show on stream. It the, there is an open co-ordination that is happening where standards have been completely dropped, principles have been completely dropped, and insane shit has been pushed through. So we are so far past the point of, oh, Nick had a base take tonight. No, I agree, it's not like a fucking, Nick, you've got to die for this. But holy fuck, you have to acknowledge, I've let my principles slip. I can't, you know what, if I could do some of that coverage again, I probably should have done it better. I was kind of blinded. So there's got to be something because it's fucking crazy. Like it is so blatant. And like, I feel like, you know, I'm sitting here ranting a little bit, but it, it, it, I can lay out very clearly, I feel like how this, the standards have changed, where the points of difference are, where the sudden contradictions are. But all that is done is CPS, snark skulls, they would do it to us. They would do it to us. At that point, that's just no bad.
+- 10:36:02) **JSTLK**: Tactics, only bad targets. And no criticism of Ethan either. Like when Ethan says Denims did CPS, I don't know where the- where was like the threads of people just being like, what the fuck are you talking about? Right? It's not just like allowing attacks back on Denims. It's like there's no criticism of Ethan at all.
+- 10:36:20) **G**: Anyway, I just want to add that in right at the end. Yeah, I mean, I feel like, you know, with Denims or whatever, she watched the video. She was very uncritical. I don't even know how much commentary she gave over it. She might have given a lot. I didn't watch her coverage of the bad empanada video, but, you know, she played that video. Her whole chat. Well, maybe it's just on to say whole chat, but, like, a lot of her chat was saying, like, holy, this is crazy. Somebody used to call CPS or whatever, right? If I was watching a video and for some reason my whole shab is spamming, like, we need to dox the sky or something like that, right? I feel like I would at some.
+- 10:36:54) **Kuihman**: Point notice, like, the fact that my entire chat is waiting. But that's not the case. That's not the case. That's the total. But Not the case. That's a complete lie that they've all pushed, Augie. That is a complete lie they have all pushed. Denim's literally did a response video that completely debunks this entire fucking thing where she shows literally the percentage of chat messages that were mentioning CPS within a certain time. The way that video was made is it was not just a cut out of her chat that is slowed down and slowly scrolled. It is specifically filtered to only include the CPS and kids messages. It has been pushed as, oh, so you should just filter a Twitch chat.
+- 10:37:27) **G**: To only show the logs have been.
+- 10:37:29) **Kuihman**: Exported and someone has transcribed it. Yeah. And I think someone just built like.
+- 10:37:33) **JSTLK**: An HTML thing that would take the transcript and like scroll it so it still looks like a transcript.
+- 10:37:39) **G**: Okay, that's fucking evil then if that happened.
+- 10:37:42) **Kuihman**: Do you know what Nick said? You know what Nick said about that Denim's video? He said, yeah, I took a quick look at it and it seemed like.
+- 10:37:50) **G**: It was nothing bargain-boring. Wow. So just to be clear, that screenshot, because I've seen the video of her chat moving, right? It's not just that they clipped like 10 seconds of it, right? They showed specifically the chat moving where almost everyone was like, holy fuck, call CPS, whatever, right? But that was just like an edited version where it only shows the people that typed CPS in there. I feel like I watched this Denim's video, though. Like, how would I not have noticed this?
+- 10:38:25) **JSTLK**: Yeah.
+- 10:38:25) **Kuihman**: So, yeah, it was only, it was only, like, mentions of, like, CPS kids, Jody or something like that. It was a couple of keywords that were filtered down. But the way, so obviously, initially it's, it's brought up on the H3 podcast. And basically they, they say about, they say about it, like, I mean, we probably watch Clips here, but they They're like, oh, it's edited. And Ethan's like, yeah, yeah, but it's just like, it's just like pulled up and slowed down. It's just like pulled up and so it's just like pulled from the chat and slowed down. And that's what's been around with the whole time is, yeah, it's obviously an edited video. You can see it's edited. Look, the chat has just been pulled.
+- 10:39:06) **JSTLK**: Out from the top and they've made it bigger and slowed it down. But that's not the only way it's been edited. The logs are edited. It's filtered. Yeah, I don't know how they did this. The logs are edited is crazy. This is edited down to only show, yeah, kids, Giardia, a couple different things. And it still looks like the Twitch chat, right?
+- 10:39:19) **G**: Because I was under the impression that while she was watching this, literally, like, everyone in the chat was like, Fuck, like, call CPS, like, he's abusing kids, blah, blah, blah. So... Huh.
+- 10:39:31) **Kuihman**: Where's the data analysis she does where it shows the percentage of messages that were mentioning CPS for the time frame?
+- 10:39:37) **JSTLK**: 28% in that time frame.
+- 10:39:40) **E**: Yeah.
+- 10:39:40) **Kuihman**: So from the first message to the last message that's shown in that scroll, it's 956 messages, but only 65 of them are shown.
+- 10:39:57) **E**: Yeah.
+- 10:39:57) **G**: So time frame is like totally 6.8%.
+- 10:40:00) **E**: Yeah.
+- 10:40:00) **Kuihman**: I mean, and Ethan's out there. Ethan's out there saying, Denims did CPS. Denims did CPS. People are going, oh, these guys, these people called CPS on him. They can. He can do whatever the he wants. That is the line. That is the line constantly. And it is like all that. It's built on so many lies, first of all, like this. And second of all, people just ditching their principles, just saying it. Well, I mean, they would do it to us, so we're gonna do it.
+- 10:40:27) **G**: It's like, well, no, then you just.
+- 10:40:29) **Kuihman**: Yeah, exactly.
+- 10:40:30) **C**: I.
+- 10:40:30) **Kuihman**: For an eye, to whole all blind. It's just like, okay, so we just. Everyone's raped now. So we just, like, we just completely rape everything. It's. Everything is censored and we shut down.
+- 10:40:38) **G**: I mean, by all websites, literally any unethical behavior to anyone because.
+- 10:40:44) **Kuihman**: Yeah.
+- 10:40:55) **JSTLK**: Oh, people do want to point out that Nick. Covered this.
+- 10:40:59) **Kuihman**: I didn't think that covered this. I was pretty sure he said this video is a boring.
+- 10:41:03) **JSTLK**: He covered it and said it was like edited, but I want to say, fuck, we should just find the tweet. He covered it and said it was edited for sure. Um, but I want to say it's like, I think he basically said it's like not that big a deal. Am I incorrect in remembering that, guys? That's my remembrance, but I will not stand on that. I need to see a clip or need to see a tweet. I thought he tweeted about it.
+- 10:41:30) **G**: Whatever. Nick is anti-denims he, for sure. Like, he definitely has an issue with, like, denim's coverage.
+- 10:41:42) **JSTLK**: He streamed it. I thought he tweeted about it as well because denims brought this up, and I thought he answered a tweet about denims.
+- 10:41:51) **E**: Right.
+- 10:41:51) **G**: Okay.
+- 10:41:52) **Kuihman**: Nick did not cover this video from what I can see, so Nick did not cover all this. So I was saying that. It's just not true.
+- 10:42:00) **JSTLK**: Well, it wouldn't have covered her arguments directly, but probably would have covered the snark thread. I'm guessing there was a snark thread saying, would this have been, would this have been the original clip? And then, Venom's, oh, maybe not. I know it is, right? Yeah, it is the original clip. So I think the argument is basically like, oh, nobody would have possibly, Nobody could have possibly thought that this was the real chat because in the top right you can see the real chat. So you know that this isn't the real chat because in the top right you can see the real chat.
+- 10:42:32) **Kuihman**: I want to say that's the argument that's been made. Okay, okay, one minute. I don't cringe on main. Did Nick cut him addressing this edit into a video or is this purely on stream, his streams that are hidden where oftentimes he'll do things like say explicitly you know, guys, in this next segment, I'm not going to take a position on the free speech aspect of this defamation lawsuit because I kind of hate these people. And then.
+- 10:42:56) **E**: So.
+- 10:42:57) **Kuihman**: So in which situation does this occur? Is it something that happens in, in the cut out things or something happens in the videos?
+- 10:43:16) **JSTLK**: I'll try to find. Find the tweet here that I remember.
+- 10:43:26) **E**: Yeah.
+- 10:43:27) **Kuihman**: Look, dude, he's doing this disgusting dude. Look, bro, look at this tweet.
+- 10:43:33) **JSTLK**: Here's Nick tweets. Nick sweet about Denims. Yeah, hold on. Let's see it. I like the snarker narrative that Ethan claims Denims. Let her live chat scroll up randomly and block the entire stream. Anyone with half a brain knows that these chats don't match the order of the ones shown on screen in the top corner. There is no context manipulation at all.
+- 10:43:53) **Kuihman**: Yeah, that's what I- yeah, okay, so I did have it right. Okay, perfect.
+- 10:43:58) **JSTLK**: There's no context manipulation at all. Dude, that's a complete fucking lie. Well, no, it's awesome because Augie just.
+- 10:44:06) **G**: Showed up here and was like, wait, I thought everybody was saying this. see, this is why a debate. I do agree. Debate needs to happen.
+- 10:44:10) **JSTLK**: You know.
+- 10:44:13) **G**: I feel like we need to see, like, these ideas Clash because I only hear one side or the other. I need to see them Clash so that, you know, all the opinions can be filtered and I can see what. What's really going on here.
+- 10:44:25) **E**: But.
+- 10:44:25) **G**: And I'm willing to host it, just to be clear, you know, whether it's with Willie Mac or diorio. or Queenman or J-Stalk whoever has, like, the opposing view and wants to run it. But, I mean, I, I do want to see a debate like this happen desperately because I feel like they're both sides, like, just have, they have Merit, and I need to see them Clash so I can just, you know, see what's really going on here, but, and I think it would just be good for the content. I just feel like the, the chat demands it. The chat wants it. and, you know, I'm anti-chaf for the most part, but sometimes I want to give them a little treat, you know, give them something good. And this debate, I think, would be amazing.
+- 10:45:16) **JSTLK**: It would be interesting. I, like, honestly, man, I just wish there was, like, more. I wish people just hop on more informally. I don't know why. It seems like a lot of the people who have come from commentary on YouTube, like, do not like being seen as, like, wrong on anything. And I feel like we hop on streams and we make calls, like, really fast, and I'm just expecting to be wrong on things. So when I debate people, if I'm wrong, that's fine.
+- 10:45:41) **G**: Well, conversation is how I figure shit out for the most part. You know, I can do my own research. I'm capable of that, but, like, usually it's just through talking to people that I figure out my own opinions on shit and I don't mind looking like a dumbass for temporarily if in the long term I have more informed opinions. So.
+- 10:45:58) **Kuihman**: Dude, okay, pull up this clip, Jay, still pull up this timestamp. Let's watch the Oreo talk about this. Let's watch the Oreo talk about this.
+- 10:46:07) **G**: Briefly from the 14th of May.
+- 10:46:09) **JSTLK**: He sounds way too excited. It gets concerning when he's this excited.
+- 10:46:13) **Kuihman**: Let's have a look. Let's just, let's just see how he's dressed. I want August to tell me if he thinks this is a good way.
+- 10:46:20) **G**: Of addressing this point. all right, let's hear it.
+- 10:46:22) **JSTLK**: Let's.
+- 10:46:22) **G**: BS line, not defamation. She endorsed this because she's not moderating her chat, not defamation. That's literally actually provable.
+- 10:46:31) **JSTLK**: True.
+- 10:46:32) **H**: Just look at the video.
+- 10:46:33) **JSTLK**: Oh, my God.
+- 10:46:34) **G**: And.
+- 10:46:34) **E**: And. And.
+- 10:46:35) **G**: No, Ethan, you don't understand.
+- 10:46:37) **JSTLK**: You manipulated it.
+- 10:46:38) **G**: You manipulated it by showing messages on the screen alongside. It's so stupid, dude. The Narrative behind that video is. so funny to me. Yeah, she has the putz book now to send me.
+- 10:46:50) **Kuihman**: Oh, that was a very intelligent commentary, Nick. I've got to say, you totally debunked that one, Nick. Well done.
+- 10:46:57) **E**: Very.
+- 10:46:58) **Kuihman**: What a smart guy. This guy's sharp.
+- 10:47:00) **JSTLK**: Either it's the most retarded man alive or he's dishonest. He's definitely not retarded. I don't think anyone's ever accused Nicholas.
+- 10:47:10) **JSTLK**: Of being an actual. Not seriously. I do think augie's right when it comes to. there's just too much money in this stuff now. Like, he's like Nick, like last year, I think he got like a thousand concurrent viewers and now he's like rivaling Destiny with like 8K concurrent viewers. And he does say like, I have an IRL job. I don't do this for my main thing. But like, that's just it's such an insane amount of money he's making. He probably is just terrified.
+- 10:47:34) **Kuihman**: I didn't actually say I want all of you to give an opinion. I didn't let him give an opinion before I gave mine, but I would like Tara's opinion on that short clip.
+- 10:47:42) **G**: And the context around it. Yeah, yeah. Well, he's basically saying that, like, the video, like what? Like Ethan editing, even if he edits the chat, just so I'm understanding this correctly, Ethan editing the chat to only show the CPS messages is not bad because it's still showing that these messages existed in the first place, even though the implication is, is that all the chat was like this.
+- 10:48:04) **E**: Right.
+- 10:48:05) **JSTLK**: So in the top right corner of the video, there is actually the real chat. So when you hit play on the video, the real chat runs, right?
+- 10:48:13) **E**: Yeah.
+- 10:48:13) **Kuihman**: Nick says, it's like moving image is.
+- 10:48:16) **G**: Just like this spliced together compilation of everyone saying anything related to kids, right? And what DiOrio is saying is that this doesn't matter because.
+- 10:48:28) **Kuihman**: This is quite important. He's not saying, anything. He doesn't finish the thought. He just goes, no, you don't understand. You manipulate it because there's chat on the screen and then stops talking. He doesn't take a position. He doesn't explain the argument to his audience. He is the only goal there is to spoiler any potential criticism of that video. When the narrative broadly, and he knows this, the narrative broadly is that Denim's whole chat was spamming cool CPS.
+- 10:48:59) **G**: Yeah. Which is what I literally just thought happened.
+- 10:49:03) **Kuihman**: Yes.
+- 10:49:05) **Parry**: Yeah.
+- 10:49:05) **Kuihman**: So everyone thought, anyone that's not paying, like, super close attention thinks that happened.
+- 10:49:13) **E**: Yeah.
+- 10:49:13) **G**: I mean, that I I think, yeah, that's definitely something that should be clarified more, because I didn't know that, you know, and that's kind of major. I thought that the whole chat was. Like, literally, like, she was playing bad at BananA and, like, everyone was like, oh, you would think it was like a kid's thread in Denim's fucking chat. Because if I went live, the logic is, like, if I went live and for some reason, like, I'm covering a guy and my whole chat is like, Take this man's kids away, dox him, kill him, blah, blah, blah. I would notice that a little bit. I would notice that immediately. I'd be like, Whoa, what the fuck is going on here? Why is this happening, let's stop this, you know what I mean? And if Denom's witnessed that and was just like, ah, just let it fucking go, who cares? I think she would have been liable for criticism there at the very least. I'm a very like anti, like I don't ever enforce streamers like moderating their own chats, but I do think if like literally everyone is like saying fucking deranged shit, at some point you do have to step in and be like, what the fuck is going on here? But that wasn't happening clearly. and there's a.
+- 10:50:19) **Kuihman**: There's a hundred different points like that where. Where this is like, exactly is just Nick basically playing soft defense, but refusing to take any actual position or explain anything. It's just like he's just spoiling. He's just like, yeah, try to put a dragon potential criticism because he's riding it. He's riding the wave.
+- 10:50:39) **G**: Well, the criticism is that he's not spending enough time, like. Providing like necessary.
+- 10:50:45) **Kuihman**: No, it's not like spending enough time. It's that when points of criticism come up, he refuses to engage. It's not you're not spending enough time. It's a deliberate effort to not present any argument so you cannot be criticized firmly. You can't no one can say.
+- 10:51:03) **E**: You.
+- 10:51:03) **G**: Fully believe like DeOrio is like a dishonest actor.
+- 10:51:07) **Kuihman**: At the moment, yeah, on this drama 100% I think to science fiction drama. I think he knows that he hates Hassan. He seems to be very cut up about Hassan calling him a crypto fascist and he's very cut up about the way these lefty communities have treated him over the years. And he is willing to use Ethan, who is lashing out and doing wild stuff and trying to keep him at arm's length so that he doesn't incur too much damage. That is, to anyone watching, what is happening?
+- 10:51:32) **G**: It's the motivate. Motivation doesn't really matter because he's still still doing it.
+- 10:51:35) **E**: Right.
+- 10:51:36) **G**: But what is your. Do you have, like, any, like, idea, like, why he's motivated? Is it just like a grift or.
+- 10:51:42) **Kuihman**: Is it for money, blah, blah, blah? I think everyone's a mixture of, like, everyone, when they do anything, is doing it for a mixture of money and, you know, loyalty and, you know, hating the people they're against or whatever. So I don't want to, like, try and guess, like, the specific calculation there. Well, I do think Nick seems to have a recurring pattern of, I would say, well, two points. I don't. you call that a pan, but it seems like Nick gravitates towards sort of like a strong figure that he can use to sort of COVID and fight his battles for and sort of he can play soft defense and try and encourage like an additional audience to fuel that because he's done this with Destiny, I feel like, and I feel like he's doing this with, with Ethan now. I think he, he likes to sort of use these, use these bigger figures as wrecking balls.
+- 10:52:31) **G**: I mean, I will say in the commentary Community, we've definitely, you know, like our. We used to go after Gabby Hanna detractors a lot who were, like, really going out. Gabby Hanna super hard. And they were all, like, these crazy, like, gay guys in the T-channel Community that we enjoyed up because they were just all insane and stuff like that. So, yeah, there's probably something like that going on there just a little bit, but.
+- 10:52:56) **E**: Yeah.
+- 10:52:57) **G**: I mean, you know, you played that clip or whatever you asked me from opinion on it. Obviously, I think if, if there was more context to that, that explains, like, denim side a bit more, I think that should be given. And even if you're still anti-denims at the end of it, you still think Denim didn't do a good enough job moderating her chat or counteracting bad emanados points, then you should give her side. You should give her side and then explain.
+- 10:53:21) **Kuihman**: Engage. Quickly engage. What's been said. Just actually, actually lay out.
+- 10:53:25) **C**: Yeah.
+- 10:53:26) **G**: Yeah, yeah.
+- 10:53:28) **Kuihman**: That's like my biggest problem. That is my biggest problem with almost any content creator is when they will do this fight, asman God, but it's terminal for this, where they will just try and avoid, like, the plague, giving any actual opinion that you can say, okay, I disagree with that because. Or laying out what. What the argument would potentially be for the other side, you know, ever. It's like. It's like the most annoying in the world where they just. It is like pure, I don't want to say ideology because it's not what it is when it comes to like you've had fucking Hasan drama and shit. But you know what I mean? Like you're just totally captured by an idea.
+- 10:54:05) **E**: Yeah.
+- 10:54:06) **G**: Well, I feel like a lot of creators, like, it fucks up their flow, you know what I mean? It's like they're on a roll going at a specific thing. It's disruptive to the content from their perspective to just sit there and stop and be like, okay, we've been beating up this guy for a million years, but let's stop and sort of, you know, see how they might be right or at least see, like, what their side is and then respond to it again. I feel like it's easier to respond for just pound them over and over again.
+- 10:54:31) **Kuihman**: Trying to, like, give the other side's argument isn't always like what you want to do for sure. But in case like this, where there is very important additional context that does really change the statements that Ethan's making.
+- 10:54:46) **G**: And for me personally, it makes the content more interesting to explain the bigger story here of, like, why. Yeah, what's going. Yeah, exactly. So me and Connor try to do that a lot with Red Fox comms and RFC show, where it's like, we like to cover drama with, like, the full story of, like, what are both, where are both sides coming from it? And then we give our opinion. And that content, I will admit, does not do Fucking well at all. People tune out when they hear this because when they hear both sides of the story, it almost overwhelms the viewer. They get bored or they move on because they can't handle hearing that and they just want to see you either suck a son off or shit on him. And so it is counterintuitive to viewership and money. And the viewership does suffer from giving both sides, but it is, I think, to me personally makes the content more interesting.
+- 10:55:38) **Kuihman**: So it's just, I don't feel like you can honestly, like, especially when, like, people have just become everything they said to someone was. That's just the reality. Like, when you're, when you're doing like this, and then Nick is like, when there was the Embassy worker shooting and he's, like, out there day one before the body's cold, you know, saying it's an anti-Semitic hate crime and then going, but I don't talk about the politics, so, guys, I don't. talk about politics, though, guys. It's like, bro, you're just Hassan. You're coming to, like, some retarded, strong conclusion.
+- 10:56:10) **G**: I'm very covering breaking news.
+- 10:56:12) **Kuihman**: It's now people should on Hassan for.
+- 10:56:14) **JSTLK**: Yeah.
+- 10:56:15) **Kuihman**: On breaking news and then scolding other people. He was a true quote tweeting people that were giving, like, totally reasonable takes and being like, what do they say? Oh, it must be crazy being a Jew in America because not only does everyone hate you, but people bend over backwards to justify murder. He's, like, literally out there, like, scolding people for being anti-semitic where are we? What are we doing?
+- 10:56:36) **G**: Yeah, I. Yeah, that's. That's. That's the part of me that tries to keep.
+- 10:56:41) **JSTLK**: I I.
+- 10:56:41) **G**: You know, I'm obviously not, like, an apolitical person, but I try to keep my content apolitical because I'm not trying to sell an agenda, you know what I mean? So I try to, like, avoid, like. making statements like, this is anti-American or this is anti-Semitic this is blah, blah, blah. You know, because I just feel like it's poisonous for the content. I try to focus on the funny part, but, yeah, I see where you're coming from with this.
+- 10:57:13) **Kuihman**: You ever send the aristocracies to it?
+- 10:57:17) **JSTLK**: Okay. Oh, yeah.
+- 10:57:19) **G**: What's that?
+- 10:57:22) **Kuihman**: There'S just this. There's this Vtuber woman called aristocracy who used to be around in twitch pole.
+- 10:57:29) **G**: And now she's more familiar with her.
+- 10:57:31) **Kuihman**: Yeah, she's in, like, the victims of bad and Panada support group. Group chat with, like, Ethan and Lone the Box and all these other people who are all, like, the victims of bad and Panada. And she, like, just tweets the most insane, like, around October 7th, she says she made herself watch, like, All of the footage from October 7th.
+- 10:57:51) **JSTLK**: KK, hold on, I need to ask Augie really quickly. Are you familiar with the concept of prophylactic antisemitism? Like antisemitism required to save lives? Like basically, you know what exposure therapy is, right?
+- 10:58:05) **C**: Yeah.
+- 10:58:05) **E**: Yeah.
+- 10:58:06) **G**: Oh, where you just watch like gore.
+- 10:58:07) **JSTLK**: Videos of like Jews being ripped apart. There are some people on the internet who are so fragile towards like ideas of antisemitism. You might need to be a little antisemitic towards them, okay? To expose them and just get them reacclimated so they can live in the world.
+- 10:58:22) **Kuihman**: Give 'em a fucking shake, you know?
+- 10:58:25) **JSTLK**: Just give 'em a fucking shake. Yeah, just be like, wake up! you!
+- 10:58:29) **G**: Gotta wake up. Anyway, sorry, Queenan, continue. Do you talk about- well, I feel like, okay, when you have people that are so willing to fight dishonesty for a particular side, and they're like, this is for the Jews or whatever, right?
+- 10:58:42) **Kuihman**: It's like, you gotta be like, okay, you're at some point propagating antisemitism. yeah, you're literally giving people like, you are a Trope. You are a.
+- 10:58:46) **JSTLK**: You are. Yeah, you are.
+- 10:58:47) **E**: Dude, yeah.
+- 10:58:48) **G**: This tweet.
+- 10:58:49) **Kuihman**: Scary time for the Jews around the world right now. Not only your life, but bend over backwards just for your murder. What does this tweet say? Violence begets violence. Palestinians have been getting massacred in the ongoing genocide for the last 18 months. Two diplomats for Israel, one German born and Christian, are assassinated. Clearly for political reasons. Whether you agree or not, this is not antisemitism. And that's probably justifying murder to say it's not antisemitism, but is a political killing that you can either, you know, agree or disagree with.
+- 10:59:19) **G**: See, I say this is a good tweet from anyone. Like, anytime somebody's going on Twitter talking about, oh, it's scary for black people. It's scary to be a woman, you know.
+- 10:59:29) **Kuihman**: Yeah, this is like, this is like actually, you know, that you say that. There's a little bit of bobe in this, no?
+- 10:59:37) **C**: Like.
+- 10:59:40) **G**: Trans or whatever.
+- 10:59:42) **E**: Yeah.
+- 10:59:42) **Kuihman**: Also, Twitter is wild. You'll see a complete psychopath defending a cold-blooded antisemitic hate crime. And they'll have a smiling friends. PFP. Lmao. Cold-blooded antisemitic hate crime. Before. Before the body. Before the body is a cold. Awesome.
+- 10:59:56) **G**: And this is the situation where Hassan literally just said, like, I believe the shooter was honest.
+- 11:00:01) **Kuihman**: And everyone was like, oh, freaking the out. It was. It was.
+- 11:00:04) **JSTLK**: Yeah.
+- 11:00:05) **Kuihman**: He said it was authentic.
+- 11:00:06) **JSTLK**: Yeah.
+- 11:00:07) **G**: Yeah. Honest and articulate.
+- 11:00:08) **E**: Yeah.
+- 11:00:09) **G**: Which I'm sure he was. Right. That doesn't mean you support it.
+- 11:00:12) **E**: Right. Yeah.
+- 11:00:13) **Kuihman**: And so on. I believe he said stuff like misguided and stuff. I believe he did use that sort of terminology. He said, this doesn't help anything. It was like, yeah, he didn't. He didn't go out and say, this is disgusting because obviously he's not gonna moralize like that because he's trying to be like, I understand where people are coming. from when they're super upset with the Israeli government. Like, that's, that's his whole thing. So, but, but he wasn't saying it.
+- 11:00:36) **G**: Was Justified or anything like that. And people were still, wasn't that what, like, pro-Israel say about, like, the IDF? It's like, this is why they are.
+- 11:00:44) **Kuihman**: So brutal in their tactics because of the non-terrorists.
+- 11:00:48) **G**: Palestinians. Yeah.
+- 11:00:49) **JSTLK**: Yeah.
+- 11:00:49) **G**: So it's like both sides justify, like, violent behavior because it's like, well, they've been dealing with this systematically for years.
+- 11:00:55) **JSTLK**: So.
+- 11:00:59) **G**: Yeah, I don't know.
+- 11:01:00) **Kuihman**: That's the same guy who says he never talks about the politics.
+- 11:01:05) **G**: Smagel, you say you don't care about the conflict, but never get involved when brown children die only white.
+- 11:01:12) **Kuihman**: What is this? Oh.
+- 11:01:13) **JSTLK**: Oh, Smagel making a great point. This isn't the conflict. This is a terrorist murdering two Jews in the capital of the United States.
+- 11:01:21) **Kuihman**: Sure. It's fine. She just said politics. She just said politics. in that, in that toy, and he would have easily raped him. But Nick whined away. Nick totally dishonestly whined away.
+- 11:01:32) **JSTLK**: It's bad. Do you ever dishonestly whine away from Smaggle? Wait, what I say. But the, hold on. The, hold on.
+- 11:01:40) **Kuihman**: The, the guy's entire justification was the conflict.
+- 11:01:42) **JSTLK**: He killed diplomats from the country in the conflict. It was obviously relevant to the conflict.
+- 11:01:48) **E**: Yeah. Yeah.
+- 11:01:48) **JSTLK**: The accounts said, oh, you see, the wildest political shit have cartoon profile pics.
+- 11:01:54) **Kuihman**: Willy Mac is just generally wandering into a room and having no idea what's what's going on? Oh, some stuff.
+- 11:02:01) **JSTLK**: Okay. Silver just said she's gonna send me some airus Clips. You have an airus clip you want to watch? I know. I have some airus Clips, like, downloaded or something.
+- 11:02:08) **Kuihman**: Some airus Clips right now.
+- 11:02:09) **E**: But.
+- 11:02:09) **Kuihman**: But, like, this is just insane. This is why I'm going so crazy over this stuff. It's just saying like this for the last six months.
+- 11:02:16) **G**: Yeah, it's so. you're going after dishonesty, virtue signaling.
+- 11:02:22) **Kuihman**: Yeah, yeah, yeah.
+- 11:02:26) **JSTLK**: I just don't want to feel gross, like, criticizing Hassan. I don't feel like I'm. Yeah, I don't want to stand shoulder to shoulder with a sapphire.
+- 11:02:34) **Kuihman**: Let's get rid of the rapists. Let's get rid of the pedophiles.
+- 11:02:39) **JSTLK**: Get them out.
+- 11:02:41) **Kuihman**: Let's stop. Let's stop crying too much. Let's stop virtue signaling. I don't.
+- 11:02:46) **JSTLK**: Let's make this one again. We can. I think we can laugh that maybe they with Ethan with the Nazi sword. Okay. Okay, you got one. You got it in there.
+- 11:02:55) **G**: It was a little dog whistle. Who cares? We just be like, you know what? Okay. Well, my take on the Nazi sword thing was I think that they knew what they were doing, but not because they were trying to, like, oh, we love swastikas or whatever.
+- 11:03:08) **Kuihman**: I think it was just because they were trying to, like, see if Ethan would take the bait. And I would. I would believe that if it wasn't a sword that Hassan has consistently posed with another photo shoots like the. This creativity. And every time they've pulled out swords in the room that's been there. And my understanding is, is that the other swords are real swords. This is the model cosplay sword that is also the longest. So that's, that's the one they pose with. It's like at that point, it's like, well, that sounds pretty reasonable. I don't know why you would. It feels like the only reason you would jump to the anti-Semitism at that point is because you don't like the guy. It's like, because that sounds like a totally reasonable explanation. I've got no reason to disbelieve that.
+- 11:03:46) **G**: I can see the swords.
+- 11:03:44) **Kuihman**: They're at the back seem like short sword.
+- 11:03:46) **G**: I'm calling it consistently the swastika sword.
+- 11:03:49) **E**: In all those clips.
+- 11:03:51) **Kuihman**: But just because you point that out, like does that mean that every time you use it you're doing it for that reason? Like if it's the sword that is the best.
+- 11:03:58) **G**: Well if it's like for a photo shoot to promote your EvenCline video, I could see them like just having like a little feeling like or this is a little thought in the back of their head like, Ooh, let's use this.
+- 11:04:08) **Kuihman**: One and see if there's no way he would. Yeah, it's obviously unprovable either way.
+- 11:04:11) **G**: Yeah, I mean, it's not speculation.
+- 11:04:13) **Kuihman**: Yeah, exactly. So you can't redefine it. And I think Hasan's explanation is reasonable. So I think to go and say, oh, this was intentional, you're trying to.
+- 11:04:22) **G**: Fuck with Ethan Klein because- well, that's why it's a good troll. It's because they can always get away.
+- 11:04:28) **Kuihman**: From it and be like, no, I was just using this. Yeah, exactly.
+- 11:04:31) **JSTLK**: I think you look stupid if you bite. What's the response to dog whistles? What's like the intelligent response to dog whistles every single time? It's just to ask, like, what did.
+- 11:04:42) **E**: You mean by that? Yeah.
+- 11:04:38) **Kuihman**: Exactly.
+- 11:04:39) **JSTLK**: That's the response, right? Otherwise you look like a histrionic retard.
+- 11:04:44) **G**: When you just assume that the person making the dog whistle is doing it intentionally to behave.
+- 11:04:48) **Kuihman**: Yeah, and you just jump to spazzing out and making a big deal about it. Literally, like, if it is a dog whistle, it worked perfectly.
+- 11:05:00) **JSTLK**: You look? Okay, I just got really long airus clips. I don't know if we're going to do these airus clips. These might be funny airus clips at another time. Apparently Padempanada is reviewing some aristocracy stuff.
+- 11:05:12) **Kuihman**: In- okay, don't just blast Padempanada, let's-.
+- 11:05:16) **JSTLK**: Let'S- I was just like, I got.
+- 11:05:18) **G**: Like these that are like, whoa, whoa, whoa, optics check.
+- 11:05:22) **Kuihman**: Optics check, do not play by that for the other harassing this Jewish woman. So one funny story here with Padempanada and Eric. This is a really funny story.
+- 11:05:31) **G**: Let's celebrate Padempanada, guys.
+- 11:05:34) **Kuihman**: Yeah, for real. he did get one win. He did get one win. Okay. He posted in Discord, like, oh, I'm gonna contact the arlox Marty's Brigade or something like that.
+- 11:05:44) **G**: The.
+- 11:05:44) **Kuihman**: The terrorist group from the video game that he played on stream that I don't believe is a real terrorist group.
+- 11:05:50) **G**: Do you guys want to play that game right now? I haven't downloaded.
+- 11:05:54) **JSTLK**: You want to fire that up and go find. Go find some secretary. I'm down. Yeah, I'll put that.
+- 11:05:59) **H**: Aries.
+- 11:05:59) **G**: No, it. Why not?
+- 11:06:01) **E**: Yeah.
+- 11:06:01) **Kuihman**: He said he was calling the one Aries, and she freaked the out and started saying he was trying to get a killed.
+- 11:06:07) **G**: And what the.
+- 11:06:11) **JSTLK**: Oh, man, I watched the.
+- 11:06:13) **G**: I'd watch this if it wasn't 18 minutes. I don't know how much longer I'm gonna be here.
+- 11:06:16) **JSTLK**: No, I'm. Yeah, honestly, I think that's what I saw. I saw the 18 minute thing. I'm like, oh, no, we will find a shorter clip.
+- 11:06:23) **Kuihman**: Yeah. No way.
+- 11:06:23) **E**: Yeah.
+- 11:06:25) **JSTLK**: It's like so bad over here. Wanted to criticize bad empanada for that Hila Klein thing, but I laughed so hard when Nick Fuentes went and tracked down Ben Shapiro and GTA that I'd look like a retard if I did it. Okay, I I myself on that.
+- 11:06:40) **Kuihman**: She's just always like, killing people in video games is funny.
+- 11:06:43) **G**: Unfortunately, I don't even see how you could correlate it to, like, a real life threat. Like, I just don't understand.
+- 11:06:51) **Kuihman**: They sent them skulls. Okay.
+- 11:06:53) **G**: That, to me, that is like much more easier to correlate to like, holy shit, what the fuck is going on here versus like a video game. It's a fucking video game. Like, if you're going out of your way to do real life.
+- 11:07:10) **Kuihman**: They called CPS and they sent them skulls and it's not.
+- 11:07:14) **JSTLK**: Kids under threat.
+- 11:07:15) **G**: So that was all way, that was like years after.
+- 11:07:18) **Kuihman**: No, no, no. You don't understand. No, these. All of these events occur all at one time. It's like a. It's like a singularity or something. Everything is happening all at one time. Everything occurred all at the same time. Maybe use everything to justify the other stuff.
+- 11:07:32) **G**: Okay, maybe in retro, okay, if all this is happening, maybe in retrospect, you can look back and be like, okay, maybe when this guy was playing the video game, he meant it in a much more Sinister way or something like that. I can see that argument, but it's like when it happens, like, if I'm. sitting on YouTube, somebody sends me a clip of some guy playing a video game where they're like, I found Auggie and GTA, and I'm killing him right now. It's like, I feel like if I reacted to that, I I would just look like a. I don't know.
+- 11:08:03) **Kuihman**: You think so?
+- 11:08:04) **JSTLK**: Yeah.
+- 11:08:07) **Kuihman**: Everyone's on totally crazy, though.
+- 11:08:10) **G**: I mean, everyone reacts poorly to occasionally, but damn, you know, it.
+- 11:08:17) **H**: Was just.
+- 11:08:18) **Kuihman**: Such an L. Like, Ethan put in that hilarious clip of bad and Panada, like, doing the Joker rant to him and, like, put, like, this, like, scary music over the top of it in his video. It was just, like, so funny. It's just like, what? Why are you. Why are you blasting this guy out? Like, such traditional, like basic internet knowledge. If you've got a really funny hater with less of an audience than you who is willing to do absolutely anything, I mean, you know this from Dylan Massey, I'm sure. Do absolutely anything, throw absolute caution to the wind, does not give a fuck and will do anything to fuck with you. The last thing you do is just start playing their shit.
+- 11:08:58) **G**: Turn them into a fucking badass, you know? Yeah, turn them into somebody as cool.
+- 11:09:03) **Kuihman**: I'm saying they're like, biggest. Oh, this guy. This guy's evil and crazy. And he's, like, so insane. Like, there's no laws in Argentina. I can't even do anything to him. It's like you make him sound like.
+- 11:09:17) **JSTLK**: This completely Unstoppable, like, you're this guy.
+- 11:09:20) **Kuihman**: Congratulations.
+- 11:09:21) **JSTLK**: Yes.
+- 11:09:22) **Kuihman**: Yes. They literally treat him like he's some revolutionary militia leader, like, who's having people killed.
+- 11:09:27) **G**: Like, it's so crazy. You just don't. respond anytime you respond to a guy like that, you look insane by default. You know, you just don't respond. Nobody on the internet understands the art of just not responding. It's crazy to me. And they think because. Just because they're streamers, they're, like, required to respond to everything. It's like, you don't. You don't.
+- 11:09:51) **Kuihman**: So you. Substantive criticism actually matters. Sure.
+- 11:09:54) **G**: You.
+- 11:09:55) **Kuihman**: You should. I think there is a good reason to engage with that. But when it's just like someone who is that who is just like hell but on making your life miserable and will just absolutely like and they're good at it too. Why the fuck are you responding to them?
+- 11:10:11) **G**: It makes no sense. I mean, I feel like they think just the pressure, like people in the chat are gonna be like, oh, you have to respond. This guy did something. No, move on. Ignore, ignore, ignore, block if you need to, whatever the fuck.
+- 11:10:23) **Kuihman**: Oh, you don't understand. I have to post 20 Instagram stories about this. Oh, gee.
+- 11:10:29) **C**: I have.
+- 11:10:29) **G**: Instagram stories have got to stop, man. The Instagram, I thought tweeting was cringe. Like, just, like, spur tweeting. Like, when local cows just tell everyone everything that's on my mind. This says he left Twitter because he.
+- 11:10:43) **Kuihman**: Doesn'T want to support Elon Musk anymore. No, he left Twitter because he was getting raped, and now he hides on the Instagram stories. so he doesn't have to deal with fucking replies and all this shit. Yeah, because there's no comment section.
+- 11:10:57) **E**: Yeah.
+- 11:10:57) **Kuihman**: Yep, exactly. It is the most bitch shit in the world. He knows the story is posted that he still agrees what's fucking happening.
+- 11:11:04) **G**: It is such pussy shit, man. Yeah, it's just so that Instagram stories, man, it's like, do you think that you're safe there? It's like that. I mean, he does because he's not just getting immediate feedback. Sure, he reads the internet. and he sees everyone quote tweeting them and screenshotting it and posting their own thoughts. But he can at least justify it in his own mind because they're coming from communities where he can be like, oh, well, these are insulated anti-Ethan Klein communities. It's not my own fan base telling me this, you know? Because when you see your own comment section turn against you, that's what makes a fucking streamer or a YouTuber squirm.
+- 11:11:44) **Kuihman**: Yep, yep, yep. I mean, that's why Ethan freaked out so bad in the first place.
+- 11:11:52) **E**: Yeah.
+- 11:11:54) **G**: I mean, he really.
+- 11:11:55) **Kuihman**: Audience with. With the son.
+- 11:11:56) **E**: Yeah.
+- 11:11:57) **Kuihman**: And they. He went in a direction that they. They weren't okay with that he knew they wouldn't be okay with. And they turned against him.
+- 11:12:05) **G**: He got too famous. He got too big. that's the problem here. Ethan Clyde was never meant to be like this celebrity, micro celebrity figure or whatever the he turned himself into. He copied. He watched Sam Hyde 10 years ago. He copied everything Sam Hyde ever did, built a YouTube channel with 6 million Subs, started a podcast back when nobody was doing podcasts that blew up, right? And he just got too big and he couldn't handle it. and ever since he became famous, the universe has just been trying to correct him. It's been trying to correct him.
+- 11:12:39) **Kuihman**: It says very red barresque right now. It's very my favorite.
+- 11:12:43) **G**: I'm just saying, it's like he got too famous, he got too big. The universe has been trying to correct him by sicking the entire internet on him. And instead of just giving up, he just still exists. And he's just in this perpetual, never ending war, this never ending problem that he's built up for himself. and he's not cool enough to navigate it.
+- 11:13:04) **Kuihman**: Yeah, the worst part is that he's risking destroying everything for everyone else in the process and completely fucking everything.
+- 11:13:12) **JSTLK**: Yeah.
+- 11:13:13) **Kuihman**: And then no one's pointing that out. No one's saying, hey, wait a minute. You know, maybe we actually don't want full-length stream reactions being set into lore as not fair use. Maybe that would actually set a bad precedent that would make everything a worse environment.
+- 11:13:27) **JSTLK**: Oh, so I guess we just let all movies be reacted to on streams forever.
+- 11:13:31) **Kuihman**: Yeah. So true. So true.
+- 11:13:33) **JSTLK**: You can just watch Star Wars now.
+- 11:13:34) **JSTLK**: So true.
+- 11:13:35) **JSTLK**: So true. Commentary. Thank you.
+- 11:13:36) **JSTLK**: Plus.
+- 11:13:41) **Kuihman**: You can just maliciously steal views now, so you can just maliciously still views.
+- 11:13:49) **H**: I like steam views.
+- 11:13:53) **JSTLK**: Kenny does do that. You do.
+- 11:13:55) **Kuihman**: You actually do, Kenny. You should. Kenny, you should actually be struck ironically.
+- 11:13:59) **H**: No, no, no. It's release videos.
+- 11:14:03) **Kuihman**: Ew should strike the out of you, bro. Three strikes, 24 hours.
+- 11:14:07) **E**: No.
+- 11:14:07) **Kuihman**: Child deletion.
+- 11:14:18) **G**: I think everyone who's replied to my Twitter in the last 24 hours should be permabanned for being fucking retarded.
+- 11:14:26) **E**: Yeah.
+- 11:14:27) **Kuihman**: Ban dumb people from the internet. Facts.
+- 11:14:29) **E**: Yeah.
+- 11:14:30) **JSTLK**: Via having their head cut off, right? Perma from Twitter.
+- 11:14:32) **E**: Yeah.
+- 11:14:33) **JSTLK**: Yeah.
+- 11:14:36) **E**: Yeah.
+- 11:14:37) **G**: I mean, violently slaughtered in Fortnite.
+- 11:14:44) **JSTLK**: Okay. listen, I I was like, oh, I'm gonna wait until somebody Taps out to call it, but I'm at 11 hours in the stream now, so.
+- 11:14:52) **G**: Yeah, every time I call into this stream, it ruins my life, man. Just stand here for two damn long.
+- 11:14:58) **Kuihman**: I'm gonna leave for that. I come here every night.
+- 11:15:05) **E**: Yeah.
+- 11:15:06) **JSTLK**: Thank you, guys, for coming on, but, yeah, I just think, yeah, it was awesome stream.
+- 11:15:12) **E**: Yeah.
+- 11:15:12) **JSTLK**: Thanks for being here. We'll be back tomorrow, guys. Back tomorrow. Somebody just linked the clip. This is the last clip we're gonna watch. Out like a multiple calls to action.
+- 11:15:23) **G**: On my life and Willy Matt.
+- 11:15:25) **JSTLK**: Like, this is the one on Willy. He's explicit what he wants to happen. Literally anything done to Willy Mac show is permissible. Now, obviously, this is bad empanada CPS, and bad empanada is a who hides.
+- 11:15:37) **Kuihman**: Behind fake accounts, so he might say this. listen, you know, here's the thing. You know, death threats are bad and everything, but I really don't like this Willy guy. I've got to be honest, so I just don't care about this.
+- 11:15:45) **JSTLK**: Oh, he's doing it. Oh, no.
+- 11:15:50) **G**: Wow.
+- 11:15:53) **JSTLK**: Oh, boy. Well, he is quite annoying. And that, you know, that basically changes. Ultimately, listen, when somebody is.
+- 11:16:00) **Kuihman**: Yeah, basically, I basically just compromise everything. for that.
+- 11:16:03) **G**: So what can you say?
+- 11:16:04) **Kuihman**: What can you really say? It's fake.
+- 11:16:06) **JSTLK**: Maybe it is, okay? Maybe it is. I don't want to defame anyone here, but ultimately, this is the type of shit that Bad Empanada does on a daily basis. So if you don't want people to think this is you, maybe you should conduct yourself better. But Bad Empanada here, or Bad Empanada account, is saying literally anything on a Willie Mays show is permissible. For me, He's saying that I live in Miami apparently and he's saying that people should be interested in receiving payment for an honest day's work that we recruit people to print now he wants to print and post flyers. This guy is pretty unhinged. What the fuck? Around the city in this one and then now it's I need to face serious IRL consequences so this is just calling for people to murder me and.
+- 11:16:51) **G**: He'S also like this is- Dude.
+- 11:16:55) **JSTLK**: Ah.
+- 11:16:57) **Kuihman**: I will actually, for Nick, I will actually say that is bad. I don't agree about that for Nick's life at all.
+- 11:17:03) **JSTLK**: I totally disavow it. I totally disavow it. But there were, like, three people on all of Twitter who had my back in any way, so I I love the side he's on. I really hate where he's going with it. Okay. Absolutely no room.
+- 11:17:18) **G**: Oh, my God. You guys are so bitter. You guys are so bitter against Told.
+- 11:17:23) **Kuihman**: You told you all what was it was he saying? What is the point here? What was this clip meant to prove? Didn't he link this?
+- 11:17:32) **JSTLK**: Hold on, the cringe on main guy. Did he link it? He did. I hit the clip of Bannon but not calling for Nick's Doxton to get hurt. Oh, yeah.
+- 11:17:41) **Kuihman**: No one ever said that didn't happen. Yeah, no one ever said that.
+- 11:17:44) **G**: I think it's just meant to prove that Bannon Panada is fucking insane or whatever.
+- 11:17:47) **E**: Yeah. Yeah.
+- 11:17:48) **Kuihman**: Everyone knows he's insane.
+- 11:17:50) **H**: Yeah.
+- 11:17:50) **Kuihman**: That's why he's so funny.
+- 11:17:52) **JSTLK**: That's what makes him so tragic. It's tragic that he's so funny. Yeah. It's really unfortunate. It's like Nick Fuentes, but if Nick Fuentes went outside and, like, tried to get people hurt.
+- 11:18:05) **G**: Yeah, for real. It's like tragic.
+- 11:18:07) **Kuihman**: It's tragic that he's that funny, you know? I mean, crazy people tend to be funny, so. Yeah, it's just like, it's not like I think he's, like, a really awesome.
+- 11:18:18) **C**: Guy that's doing good stuff.
+- 11:18:19) **JSTLK**: It's like you're so, you're very insane, and that's.
+- 11:18:15) **Kuihman**: That does make me laugh, you know? It's like that.
+- 11:18:21) **JSTLK**: Kind of like Mrau, right? With those texts earlier, the sex.
+- 11:18:25) **Kuihman**: Well, no, that. That's fine. That's like a Mrau engagement, consensual race play. Early consensual race play with a race play. Oh, you don't know about this?
+- 11:18:35) **JSTLK**: I don't know.
+- 11:18:37) **Kuihman**: I pull up the screenshot quickly. Just. Just.
+- 11:18:40) **H**: Yeah, pull the n-word one.
+- 11:18:42) **JSTLK**: Hold on.
+- 11:18:42) **H**: He said this to a black woman, by the way. Augie, this to a black woman.
+- 11:18:46) **JSTLK**: He didn't just rejoin.
+- 11:18:47) **G**: He immediately comes back in here.
+- 11:18:51) **JSTLK**: This is. They're being.
+- 11:18:53) **JSTLK**: They're lying.
+- 11:18:54) **G**: Wait, which race? Which race are you?
+- 11:19:00) **JSTLK**: It's not good.
+- 11:19:02) **JSTLK**: Well, I could be any race technically. Nobody knows.
+- 11:19:05) **C**: It's.
+- 11:19:05) **JSTLK**: It's unconfirmed.
+- 11:19:06) **H**: I guess your cat is white.
+- 11:19:08) **JSTLK**: This is the screenshot he sent me.
+- 11:19:11) **G**: I feel like I. He's, like, Native American or something. Something.
+- 11:19:14) **JSTLK**: I am significantly part negative Native American. That is true.
+- 11:19:18) **G**: I knew it. I knew he was something disgusting like that.
+- 11:19:21) **JSTLK**: So is Elizabeth Warren. Oh, I'm part native. What the.
+- 11:19:25) **G**: I'm just kidding.
+- 11:19:26) **JSTLK**: What the. Me and J. Talk are related by blood.
+- 11:19:30) **G**: You said you're white in the other chat. You there today?
+- 11:19:33) **JSTLK**: I look white. Nobody believes that I'm American. Nobody believes it sucks.
+- 11:19:39) **H**: I might too.
+- 11:19:40) **JSTLK**: Okay. All right. Big reveal. What was it? We were just. We were, like, asking this guy, like, did this happen? Did this happen? He's like, well, you want to see, like, the most, the least bad log from my logs here, if it's using something, some bad word, like, yeah, of course. And this was it. This is one of his lines is what he said. Absolutely disgusting.
+- 11:20:01) **Kuihman**: A black woman that he sexting. A black woman that he was sexting.
+- 11:20:07) **G**: That's awesome. I see all of my friends every morning. I wake up all of my friends and I just say this.
+- 11:20:16) **H**: Okay, but you're not doing it to a minute and it doesn't work. That's the difference.
+- 11:20:21) **G**: It doesn't work.
+- 11:20:23) **H**: This guy was sexting. He got Bro, the woman actually like, imagine you're a black woman.
+- 11:20:29) **G**: Wait, did this work?
+- 11:20:32) **Kuihman**: They were doing race play, like it was part of the sexting dynamic that he would degrade her.
+- 11:20:37) **G**: It must not have worked that well if she leaked it all, right?
+- 11:20:40) **Kuihman**: I was going to leak it all, Rouside leaking it really.
+- 11:20:43) **JSTLK**: It worked pretty well.
+- 11:20:45) **G**: Wait, you leaked your own sex?
+- 11:20:48) **Kuihman**: Yeah, yeah.
+- 11:20:49) **JSTLK**: That's the only thing I've leaked from it.
+- 11:20:51) **JSTLK**: I think she is the only one.
+- 11:20:52) **C**: How hard do you have to be.
+- 11:20:54) **G**: To leak your own sex? No, no, no, no, no, no, no.
+- 11:20:57) **JSTLK**: No, no, no, no, no. Hold on, hold on. I think she talked about it. She didn't leak, like, actual sex, but.
+- 11:21:04) **JSTLK**: She talked about it to other people. And then I think he was getting.
+- 11:21:07) **G**: No, no, she has leaked actual sex. I'm surprised they're not going on right now.
+- 11:21:13) **JSTLK**: In response, you were like, here's my version of it.
+- 11:21:16) **G**: And you leaked that.
+- 11:21:17) **E**: What?
+- 11:21:18) **JSTLK**: Yeah, it's fine.
+- 11:21:19) **G**: What the am I supposed to do?
+- 11:21:20) **JSTLK**: Like, yeah, I don't know. What was the point of that? Trying prove. He made me money. I said he made me money.
+- 11:21:24) **G**: Well, you didn't even leak it on your own stream. You leaked on JAYSOCK stream. You saying that to prove what?
+- 11:21:30) **JSTLK**: I like this guy. I like this guy.
+- 11:21:31) **JSTLK**: I should. I should get some Subs.
+- 11:21:34) **G**: It was a guy.
+- 11:21:35) **JSTLK**: I like JAYSOCK.
+- 11:21:38) **G**: No, you were sexting with a guy. You're gay.
+- 11:21:42) **H**: No, no.
+- 11:21:44) **Kuihman**: I want to see.
+- 11:21:46) **JSTLK**: This guy to write. in Sharpie on his BBC. The n-word hard R. Okay, what the.
+- 11:21:52) **G**: Is wrong with you? You're gay. That's great.
+- 11:21:55) **E**: Oh.
+- 11:21:58) **H**: The end of the merger.
+- 11:21:59) **JSTLK**: Crazy.
+- 11:22:03) **G**: Gay negro worship.
+- 11:22:05) **JSTLK**: What the. What the man.
+- 11:22:13) **JSTLK**: Listen, I'll get.
+- 11:22:15) **JSTLK**: I think.
+- 11:22:15) **JSTLK**: I think the moral of this story is I can be trusted.
+- 11:22:18) **Kuihman**: I'm a good.
+- 11:22:19) **G**: I'm a good guy, basically. Okay. Didn't you also leak sex?
+- 11:22:24) **Kuihman**: If you talked to, like, a 17 year old, like, a year ago, that was someone else. No, you did. You did leak sex of that.
+- 11:22:30) **G**: You.
+- 11:22:31) **Kuihman**: Well, not sex.
+- 11:22:32) **G**: You like texts, that's for sure.
+- 11:22:34) **Kuihman**: Of you talking to 17 year old.
+- 11:22:36) **E**: Yeah.
+- 11:22:36) **JSTLK**: Well, that's awesome. To be. To be fair, she was trying to say that I was, like, grooming her or something, so I was like, I'm.
+- 11:22:43) **H**: Just gonna leak everything that way.
+- 11:22:45) **JSTLK**: I It shows that I'm not fucking.
+- 11:22:43) **H**: Grooming her or whatever.
+- 11:22:45) **Kuihman**: Are you sure her, huh? Well, you are trying to, like, sort of hit on her and, you know, you are.
+- 11:22:50) **JSTLK**: I was definitely flirting with her, but I wasn't trying to, like, I forget exactly what she was saying.
+- 11:22:56) **G**: It was, it's months ago, at this point, I forget. Well, I completely avow that the 17.
+- 11:23:01) **C**: Year old stuff is based.
+- 11:23:03) **G**: The gay black guy stuff is not.
+- 11:23:04) **JSTLK**: It was a girl. It was a girl.
+- 11:23:06) **JSTLK**: It was a girl. It was not a guy. I'm not gay.
+- 11:23:09) **G**: I'm not gay.
+- 11:23:10) **JSTLK**: It was a girl.
+- 11:23:07) **E**: Man.
+- 11:23:08) **JSTLK**: Technically.
+- 11:23:09) **Kuihman**: Got it.
+- 11:23:09) **JSTLK**: There's a black woman. Okay. I would never. I would never have a sex with a black guy. That's a. That's a step too far.
+- 11:23:15) **G**: Yeah.
+- 11:23:18) **JSTLK**: A white guy. Okay, maybe that's. We can discuss that, I guess.
+- 11:23:23) **H**: Destiny.
+- 11:23:25) **JSTLK**: Not Destiny.
+- 11:23:26) **G**: Okay.
+- 11:23:26) **JSTLK**: Jesus.
+- 11:23:27) **JSTLK**: Not that one.
+- 11:23:36) **JSTLK**: All right. You know, that's a.
+- 11:23:38) **G**: What a great end to the street.
+- 11:23:40) **JSTLK**: Long enough silence.
+- 11:23:41) **G**: Yeah.
+- 11:23:41) **JSTLK**: Guys, we're gonna head out. Be back tomorrow. Okay? Have a good one. W. Thanks for having me.
+- 11:23:48) **G**: Thanks for having me.
+- 11:23:49) **JSTLK**: Thanks for coming on, Augie. Yeah. Thanks for coming on, everybody. Let's go. Good night, guys. Bye.

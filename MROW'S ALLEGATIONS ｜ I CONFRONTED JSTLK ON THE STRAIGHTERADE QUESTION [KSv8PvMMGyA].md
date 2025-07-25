@@ -1,0 +1,813 @@
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=6710) **Aiko**: Can you get on a call real quick? Sure, Ryle. Just give me one second. I'm gonna pee. Get peed on. Okay. Hello?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=6885) **Mrow**: Hey.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=6886) **Aiko**: Hi.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=6890) **Mrow**: Let my Nvidia broadcast boot up here. with the noise cancellation. Can you hear me okay?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=6900) **Aiko**: Yes.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=6902) **Mrow**: So I was laying down to go to sleep after the street. Yeah, I'm peaking.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=6907) **Aiko**: Okay, give me one second. Okay. Oh, riles peaking. Okay.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=6919) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=6925) **Mrow**: How's that chat? Oh, shit, I can just listen to myself. Hold on, hold on.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=6928) **Parry**: One second.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=6929) **Aiko**: Thank you.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=6932) **Mrow**: All right, we're golden. Okay, we got a problem, Michael. Are you ready? Are you sitting down?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=6938) **Aiko**: What's the problem?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=6941) **Mrow**: So when we had the conversation the other day, And I went through a couple things in my notes about your straight rate stream. Now, in that conversation, I walked away giving you like a couple things that like, hey, I felt this way about something. You had claimed the opposite. And I just kind of gave, I said, you, know what? Hey, I didn't write down an exact quote. I'll kind of hand that to you. I'm not going to like peg you to the wall. And I forgot about it. I said, I'd go as me to that bond. and so then you. You'd come on the stream, which is obviously fun. I think it was entertaining what you guys did. And then I was going to bed here, and I was listening back to the stream.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=6984) **Aiko**: The original straight away stream or the red. Okay. Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=6990) **Mrow**: Nothing you said was accurate.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=6994) **Aiko**: What do you mean?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=6995) **Mrow**: When I say. When I mean nothing you said was accurate. every logical conclusion you made was incorrect.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7003) **Aiko**: Okay, give me an example.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7005) **Mrow**: And every, every claim you made as well in the call with me, let's say you had made a claim that you did not attribute malice to straighter it, but you did quite a lot. I am not taking notes about. I take a notes and I quotes of you saying things that were very which is fine. You know, you may change your mind over. Over a conversation. That's not my biggest thing. But there were many times where you're saying she is a string puller. She is purposely doing some action. You're attributing malice. And so that's how I read it.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7037) **Aiko**: Oh, no. Intentionality doesn't necessarily mean malice.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7043) **Mrow**: It's almost synonymous.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7046) **Aiko**: Doing. You can do things with intentionally. Like you could think that you're helping intentionally bad. you could. You could think that you're helping and intentionally be doing something, not. Not realizing or not. Not wanting to things up for. For people, but just, like, mistakenly thinking that you know better.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7070) **Sunday**: True.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7071) **Mrow**: And that's a. Like I said, I'm just here to kind of give you my. My hot take, and I'm probably. What I'm gonna end up doing is a full stream on this tomorrow.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7079) **Aiko**: Okay.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7080) **Mrow**: I took some notes here. That's just. That's just like a. Hey, we, you know, this is something you said. I have a couple other quotes here, but I don't. That's not an important point. Some of the important points are how you read straight arrays actions.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7095) **Aiko**: Okay.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7096) **Mrow**: When what she's trying to do. So, for instance, you take Destiny's word a lot.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7103) **Aiko**: I'm not. I was going based off of the. Literally, I didn't even watch his stream. I'm just looking at. the actual screenshots.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7113) **Mrow**: Now, this is something that a lot of people do because you don't think to not do it. But when Destiny is characterizing a set of straight away DMS, he's doing it in a way to make her look crazy or bad.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7126) **Aiko**: I didn't. I didn't look at his characterization, but you.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7131) **Mrow**: It's even a small thing. So, for instance, you claim one of the big things I. That was shocking to me. you claim that StraighterLine came up with the idea for school when it sounded like it looked like pixie brought that up.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7145) **Aiko**: No, did. Did StraighterAid say that pixie did?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7152) **Mrow**: So you had said that StraighterAid was responsible for the extortion narrative and the idea that pixie wanted money.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7163) **Aiko**: Stratford was the one who brought up money to Destiny.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7167) **Mrow**: And you said that it was her idea. So that is. So you're saying that.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7172) **Aiko**: You're saying that it wasn't. Are you saying that it was pixie's idea?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7179) **Mrow**: Well, so, first of all, I didn't see a DM that showed that straight away came up with it on her own where she was. brainstorming. Now, I was only listening. I didn't watch. But you actually read out a DM between pixie and straight away where pixie says, I, you know, I, I think something about tuition, but I don't think you would pay for that. It's. No, it sounded like pixie brought it up first.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7203) **Aiko**: No, but I. No. Aaron was asking her about Ryle. I. I don't. I've. I feel like these aren't as ironclad as you think.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7220) **Mrow**: Okay, well, say something. You're just kind of making a characterization.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7224) **Aiko**: No, I. I am saying, like, okay, so is your point that Trader Aid didn't come up with the idea of money? Is that what you're saying? That Trader Aid was not the one to suggest money?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7236) **Mrow**: You're making a positive point. So I'm trying to verify your claim. and you don't have a verification for your right.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7241) **Aiko**: I don't. Okay. What claim specifically that. That straighter age was the one who introduced. I'm not saying in her. No, I'm saying she was the one that introduced money into the equation to Destiny. I don't know where she dreamed it up.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7259) **C**: What?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7260) **Aiko**: Yeah. Does anyone. Does any. Wait. No. Did anyone else bring up money first? that we know of?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7267) **Mrow**: That's not how that works.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7269) **Aiko**: What do you, okay, all we know and Schreiterade again can continue.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7274) **Mrow**: We have select DMs. We have select DMs. No, that's not how it works. You don't make a claim saying a factual statement in lieu of someone else.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7285) **Aiko**: I covered this in the context of what the publicly available information is. If something is inaccurate, if they're training. You don't have all the information. no one ever has all the information. If straighter was this right.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7302) **Mrow**: You're saying Aaron came up with this, but you don't know that.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7306) **Aiko**: Aaron introduced this. I'm not saying she brainstormed it all by herself. I don't know what happened behind the scenes. I'm saying that she was the one that introduced it to Destiny. Yes, but that's the case with everything.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7320) **Mrow**: You said the two opposite things. You said straight away came up with it. And I don't know what happened behind the scene for who came up.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7328) **Aiko**: That's not trial. This is not what's happening right now.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7332) **Mrow**: Obviously, I was putting in brackets the conclusion of what you said. You don't have all the DMs. You can't make a solid conclusion that Pixie didn't bring it up first.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7344) **Aiko**: That is okay. So, mate, All right. These are extra things. If this is the case and Erin is saying that she did it on Pixie's behalf, if Pixie knew that she was going to approach him on her behalf for this, are you saying that you think that might be the case? That she was doing this on Pixie's behalf at her request?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7369) **Mrow**: I'm just attacking your claim. I'm not here making a new claim just yet. I may, right, based on what I saw. But before we move to that, I think my headphones made like the little battery deep, so I didn't hear you. Did we agree that you don't, that claim you made, you don't have a.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7387) **Aiko**: Way to verify that? That she what? Verify what?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7394) **Mrow**: Aaron introduced money to the conversation with Destiny.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7398) **Aiko**: Yes.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7398) **Mrow**: At no direction of Pixie. We can't verify that that didn't happen from Pixie.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7404) **Aiko**: Hold on, there's a... And there are known unknowns.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7408) **G**: But there are also unknown unknowns.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7410) **Aiko**: Thank you, Vodka, for the $5. I don't know. I'm saying that what we know, based on public information, is that Aaron was the one to introduce money into the conversation. I don't know if she was sleeping at night, like, and came up with it on her own. I don't know if pixie told her directly, hey, can you bring this up to him? There's no evidence to suggest that. And I'm going based off of public information only.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7442) **Mrow**: There's no way to suggest what I didn't guess that part. I got everything.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7446) **Aiko**: No. There's no information to suggest that. Pixie was the driving force behind this that like she requested that Aaron broached the subject.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7457) **C**: Right.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7458) **Mrow**: So it'd be neutral, right? Because there's no, no, there's no evidence.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7461) **Aiko**: No, but there is, there is evidence that she was the one that brought it up to Destiny. And I'm not making any claims about who came up with this.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7470) **Mrow**: No, no, you said that it, Brayrood was responsible for that. You make a very strong claim.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7477) **Aiko**: She is responsible because she brought it.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7481) **Mrow**: But if there's a DM we don't have, if there's a DM we don't have, where Pixie talks about money first, that would put the kabosh on everything.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7490) **Aiko**: That you're talking about. Not just her talking about money, but her asking Aaron to go to Destiny on her behalf. Not just talking about the idea of money.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7505) **J**: Right, right.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7507) **Mrow**: Okay, correct.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7508) **Aiko**: Yes.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7508) **Mrow**: So not just the idea of money, but going and asking or bringing up the concept of some sort of payment.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7515) **Aiko**: Yes. To Aaron at. And in a way that requested her to go to Destiny and have this conversation in the first place.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7523) **Mrow**: And we agree neither of us can verify the heads or. Well, as far as I know, we.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7528) **Aiko**: Can ask greater things. we can ask her. Actually, no, we shouldn't ask her. That's too involved with pixie. Never mind. We shouldn't ask her about that. It could compromise pixie.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7541) **Mrow**: Why did you. Two things before I go. So I'm gonna spend a lot of time. I need some sleep. It's been a crazy couple days.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7552) **C**: So.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7554) **Mrow**: I got scattered brain for a second.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7556) **Aiko**: Why.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7558) **Mrow**: Did you choose the thymosis elephant for your title? Because you want to talk to someone who was just involved in a sexual like that.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7572) **Sunday**: Pre.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7572) **Mrow**: I thought that was really disgusting. I didn't even like it kind of. I was like, you want to have this conversation with this woman straight away?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7579) **Aiko**: You want to care about how? No, I don't care about having a confrontation.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7584) **Mrow**: And she was just involved in. horn leaks and you had thymosis elephant is going to follow her around in her title.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7592) **Aiko**: I mean, yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7593) **Mrow**: Is that a little insensitive?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7596) **Aiko**: Are you kidding?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7597) **C**: Right.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7599) **Mrow**: Well, if you want to plan to have a conversation with this person and there are already a single word about it.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7605) **Aiko**: Hold on. I've never planned on having a conversation with anyone.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7608) **Mrow**: Didn't you say specifically you planned on maybe jumping into just a little stream?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7612) **Aiko**: Oh, well, yeah, when she was there, but he happened to talk about it. You did have a plan.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7617) **Mrow**: So when you just said moments ago.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7619) **Aiko**: You didn't have a plan. Hold on. I was like, okay, maybe I'll just-.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7623) **Mrow**: You- forget the words you say, I.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7624) **Aiko**: Go, you say things. I forget the words I say, Ryle. Ryle, since that was my plan, if I felt like it, right? But then J-Stark, Kelly happened to bring it up. J-Stark said what he said, and so therefore I jumped on. Now that it's been said, It doesn't matter anymore.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7646) **Mrow**: Well, I don't know what that means.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7647) **Aiko**: But it doesn't matter. Like, I don't care beyond this. I'm not going to like interrogate Shredder. The whole thing was just like, hey, this is weird. The elephant in the room that, you know, it's just no one having said anything. And Kelly's on the same page with me. That's it. it's not that complicated.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7670) **Mrow**: What Kelly thinks.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7671) **Aiko**: Oh, when you're the one who did.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7673) **Mrow**: The expose, you're the one who is.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7675) **Aiko**: I'm not exposing. I'm literally just saying, hey, it's kind of weird.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7679) **Mrow**: You did a stream. -huh where you had organized notes. I didn't call it like a. You didn't do what you didn't take it to her to court. You had a stream where you had organized thoughts and notes, and you went through them in a certain order, making points. Logic, but you know, I mean, propositional logic.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7697) **Aiko**: Saying I get notes is flattering, but you know, I can't really rehearse things.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7708) **Mrow**: Fair enough. Okay.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7709) **Aiko**: Can I ask, do you have a friendship with Erin or anything or you.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7713) **Mrow**: Just, no, I've never spoken to her.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7715) **Aiko**: All right.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7715) **Mrow**: But it's really insulting that you would think that all of these points that.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7719) **Aiko**: I'm making that I've dismantled every one.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7722) **Mrow**: Of your arguments one by one. okay, well, you're in so far.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7726) **Aiko**: You haven't gotten anything over me thus far.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7731) **Mrow**: Okay, so when.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7733) **Aiko**: So please give me more. Give me more.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7735) **G**: Just.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7736) **Aiko**: Just.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7736) **Mrow**: Just like last time, right? Just like last time. What I'm gonna do is I'm gonna do a stream tomorrow. I'm gonna list out everything in your stream that you did wrong is. It is dense.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7747) **Aiko**: Okay?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7748) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7748) **Mrow**: I mean, first of all, you can give me any.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7750) **Aiko**: The very first thing. I'm literally.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7752) **Mrow**: You're now talking over me. You're talking over me.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7755) **Aiko**: Okay, I'm sorry. Go ahead.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7757) **Mrow**: You really don't want to hear it. So the very first thing I said to you, you're talking over. Like, the very first thing I said to you was that you came into the conversation saying you did not attribute any sort of malice or ill intent that she just made bad choices. But you then call her in the stream that I was just taking notes from half hour earlier. You said she is the one who.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7778) **Aiko**: Definitely affects mastermind and string pulling and.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7782) **Mrow**: You use very strong language. Well, you said that you didn't say that before, right?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7787) **Aiko**: No, I'm saying that after talking to you, I like you saying that maybe she thought that he, since she trusted him as a friend and thought that it was a hacker and, and whatever at that point, like, I could, I could see your point. So I'm like, you know, do I.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7808) **Mrow**: Think you're whole, also you're, you're in President Sunday's whole argument.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7813) **Aiko**: We are not on the same page. Me and President Sunday are not the same.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7817) **Mrow**: He agreed with you. It's not important point to my point. The whole thing that you guys said about she lost leverage. Pixie didn't lose any leverage. Can I finish a sentence?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7830) **Aiko**: I'm sorry. Go ahead.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7833) **Mrow**: Pixie didn't lose any leverage when Straight-A told her how much money she had because Destiny's career is worth hundreds of thousands and millions of dollars. It doesn't matter how much money Pixie has, she has the leverage in the negotiation. So if she has a hundred dollars in her wallet or a million dollars, it doesn't matter the leverage is with Destiny's career and the story going public. And that's all that matters.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7862) **Aiko**: No, her Aaron giving compromising information about Pixie's tenuous financial situation absolutely works against her. It doesn't matter if he would have fucked her over anyway.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7874) **Mrow**: Ticking for Pixie, the clock isn't ticking for Pixie. She does, she can sit on it for a year. So giving information about her bank account doesn't change that Destiny doesn't want the story to go public. and the minute it goes public, he loses a million dollars.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7888) **Aiko**: Giving, saying there's a reason why.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7891) **Mrow**: So it doesn't matter if she has twenty dollars.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7893) **Aiko**: Now you're talking over. She could be a million. You're talking.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7896) **Mrow**: That is fair. That's fair.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7899) **Aiko**: The point is giving any information to Destiny was wrong.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7908) **Mrow**: Okay, you're. That's wrong because Pixie wanted it private, so she's following.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7912) **Sunday**: Anybody?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7913) **Aiko**: Again, I'm gonna be honest. I'm not gonna be raped. Like, I know what I'm saying.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7919) **Sunday**: All right, dude.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7920) **Aiko**: Thank you for the 420 and Jade. I'm sorry. What did you just say? I'm sorry. I lost it.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7934) **Mrow**: Yeah, I said pixies wishes. Her number one wish is to keep everything private.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7938) **Aiko**: We talked about that earlier today. That's not true, actually. And that's not what J-Sock said either. But it is what he said. He said that they wish that they settled out of court. Yes, no, you're right, it's closer than either of us. Right, that's- however, if she actually did want to, Right? She wouldn't have been planning on coming out with it by the end of January. Aaron wouldn't have to be trying to talk her out of it.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7977) **Mrow**: We can, that's a maybe you're right there. I don't know. I don't think that changes my underlying point that it is so clear to everyone in this story that Pixie's own wishes as dumb or as smart as it was, you actually make assumptions in multiple points. that straight edge should be thinking about what Destiny's future attorney.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=7996) **Aiko**: No, you know, Aaron should just not get involved. Should not have made herself an intermediary. It's not the.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8005) **Mrow**: It's not the point.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8006) **Aiko**: The point.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8006) **Mrow**: The point is pixie cared about her privacy. That's all she cared about. That's all she cared about. That's all she says it a million times.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8014) **Aiko**: There's not all she cares about two straight. that are complicated. They have complicated feelings. And she's in a tumultuous mental state.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8023) **Mrow**: That's why it's the number one priority. Because you can have smaller numbers or bigger numbers.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8028) **Aiko**: Okay.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8028) **Mrow**: Her number one priority was privacy.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8030) **Aiko**: All I know.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8031) **Mrow**: She said that to Kyla. She said that's a straight rate. You can say you might read it.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8035) **Aiko**: It's not Trader's place to be the one to do any of this.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8040) **Mrow**: Different point than what it's not a different point.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8043) **Aiko**: It's. It's the entire. It's all- Pixie's wishes are not actually real. These things don't exist independently. You said it was.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8051) **Mrow**: You're just saying random words then.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8053) **Aiko**: I'm not- okay. Okay. I guess I'll just watch your stream after I'll watch it like the next day because music stream tonight.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8066) **C**: But.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8068) **Aiko**: Alright, I'll just address your points when you make them.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8076) **Mrow**: I don't think that you had any mail inside of it, and I'll be happy to have you on if you'd like to watch it with me. I think when we have the footage in front of us, I'll probably be a little less heated because I'll just have the facts to show you. Instead, we're kind of like arguing what are both of our recollections of things are. And I think if we had it in front of us, it would go a lot smoother. But I do appreciate you having me on last moment. Just let me pop in midstream.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8098) **Aiko**: So no problem.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8099) **Mrow**: Feel free to give me a ring tomorrow.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8100) **Aiko**: I won't be able to do it tomorrow because of. I have my weekly music stream that I can't put off, but I would the next day. But I don't know if you want to wait for that.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8116) **Mrow**: Yeah, I'll probably knock it out tomorrow in the afternoon. But, hey, I appreciate you guys having me on, and it's always a pleasure.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8122) **Aiko**: I go. Okay. You too. Thanks for coming on. See you later, ryle. All right.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8144) **JSTLK**: Um.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8151) **Aiko**: What was his good point? Toaster? Yeah, I mean, at least we'll have content for the next stream. Hey, fairy. It's okay. Ryle gets worked up. I don't know if the elephant phosis was serious, though. Hey, Echo. But yeah, I'm not married to the idea of Erin being malicious or not malicious or whatever. I don't know. There could be further DMs that show she was malicious or show that she wasn't. But none of those things matter to me because ultimately her actions were irresponsible at the very least. At the very least. thoughtless, full of hubris, perhaps. But let me add to the numbees. Thank you so much. Let's see. Are we at three numbees now? Let me add the Super Chat. Guys, if you like the stream and you want more streams to happen, consider doing something including liking the stream. That would be so cool. Making sure you're on live and not top chat. if we get seven more super chats, donos and or kick Subs, then Frankie will come do numbs and get her favorite meat paste. You can if you feel like it. Thank you. Thank you. Okay, fix this. I goes wrong to go off existing DM straight up bringing money. But Ryle definitely knows what Pixie cares about and wants off of what exactly? Yeah, I mean, like I said this whole time, this is just based off of public information. Schraderade has said literally nothing, so got nothing else to go off of. And I'm not saying that she should go into details of it. I'm just saying that it's, like, super awkward for no one to say anything at all. You know what I mean? Just quietly acting like no one. like nothing happened, you know, but hate Eli. Hey, dad. Yeah. Continuing on.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8333) **JSTLK**: I thought there was a chance she was lying.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8335) **C**: Yes.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8335) **Sunday**: You thought there was a chance she was lying about her porn being leaked without her consent?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8339) **JSTLK**: Yep.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8339) **C**: Wow.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8340) **Sunday**: Did you ask her?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8341) **JSTLK**: Did you ask her?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8343) **Sunday**: Did you ask her?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8343) **Aiko**: Oh, yes. Very, very late tonight will be the kick only music video review stream. Please follow the kick for that. If you join the Discord and put your username in the new Coomer's room, you'll get a role and then you can put your music video suggestion in. I try to do at least one per person in order of it being posted and you can skip the queue with a jono or a kick sub. It's super fun, super awesome. And yeah, so do it. The theme is roasting. I think it's that's where you videos that I'm going to roast for whatever reason. that you think I will roast edition. But you can also put some some cool regular suggestions in. I'm adding some that I come across throughout the week.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8420) **JSTLK**: I talked to Kelly, who's her friend.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8422) **Kelly**: Yes. As I've been trying to say for the last 10 minutes, I was the one that was, like, saying things at the time, right? He's like, I was the one that said Orbiter A, and then everyone got mad because they're like, oh, that's too obviously pixie. And then I got banned. Like, but, like, I think justical said that he didn't like Molina.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8442) **C**: Right?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8442) **Aiko**: Will you roast our normal suggestions?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8444) **Sunday**: Oh, of course.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8445) **Aiko**: If it's desired.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8447) **JSTLK**: And I got to choose the kind of person, so.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8450) **Aiko**: Oh, like, yes, no obligation to roast, but the option is there. Yes. Like, with the themes, it's like you can still, like, share whatever. Whatever you want to share. But it's like, if you want some prompts, that's the prompt of the week.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8467) **JSTLK**: I don't want to hammer this home at all, but Melina has shared other people's pornography without their consent.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8472) **Aiko**: Right.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8472) **JSTLK**: Or, sorry, sexual images of them without their consent. So I. I was like, oh, she might not have, like, I was like, oh, she might lie about this.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8479) **Kelly**: Like, she's, well, there's, like, a singular accusation. Don't.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8483) **Aiko**: Don't have them all be screaming, okay? No screaming. Or I'm just not even gonna be. I'm not even gonna be able to pay attention to the song. Okay? No screaming. It makes me just feel bad. And then I won't even be able to roast it. I'll just cover my ears. I didn't know Kelly is pretty. Kelly's very pretty.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8515) **JSTLK**: It's not anywhere near as bad as Destiny's. It's not even close to what Destiny's is, but it did happen. It's almost certainly happened.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8522) **Kelly**: It's also not necessarily distribution, which is the problem, right? Yeah, showing something on your phone is.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8529) **JSTLK**: Not part of the problem.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8529) **Kelly**: It's not the same. No, it's just not the same problem.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8532) **JSTLK**: But I didn't trust her. And by the way, that was wrong because I had this idea that Destiny.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8537) **Aiko**: Was- I could make you feel bad without the screaming. Again. I always make a suggestion.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8545) **JSTLK**: I'm level. Like a good person who is like misguided.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8548) **Sunday**: But he docks me on stream. He docks me on stream.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8552) **JSTLK**: I was in a haze. I was in a cult, bro.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8554) **Sunday**: You were in a haze, you were in a cult.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8557) **Aiko**: I saw- I saw Quimby watch this too, on his Kickstream, and, people started talking about Chud in his trans tent, being groomed into sexting a trans person. Teck?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8577) **JSTLK**: Yeah, like I was not seeing things clearly. Yeah, this guy is clearly like a total piece of shit. If I was seeing it clearly, if I could identify the facts without that.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8584) **Aiko**: Like, no, being in that group.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8586) **JSTLK**: I absolutely could have just called this guy out. Yeah, 100%.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8588) **Sunday**: So you're, you're like, you're like subhuman.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8592) **JSTLK**: Okay.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8592) **Sunday**: Wow. I feel kind of just gross.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8595) **JSTLK**: So just being like, oh, this is the reality of, like, where I came from. I was, like, a fan.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8600) **Aiko**: He was. Where. Where is that? Hold on. I need to remember where. Where this is specifically cut through the fog of war.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8634) **Mrow**: Cut through the fog of war.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8635) **Aiko**: Cut through the misinformation. There you go. It's not a screamo, but there's some screaming. Well, we'll see. Some will get an instant zero. If there's too much screaming, it gets an instant neutral zero. A null.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8655) **Sunday**: You don't understand, Shenda.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8657) **Aiko**: He had a hold of my mind.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8659) **Sunday**: His fingers at least into my brain.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8662) **Kelly**: God, you both are so obnoxious. Can you stop talking over each other?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8666) **Aiko**: Wow.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8667) **Sunday**: So like the fist up your ass meme, like a hand puppet. That was real. That was you.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8675) **Kelly**: Please don't talk about your kinks.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8677) **JSTLK**: I don't like that. You get really, really mad about this. But yeah, like it was, like I made major mistakes there. Yeah, being like a fan of this guy at all, obviously. It's a total degenerate piece of shit.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8688) **C**: Yeah, obviously. Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8689) **Mrow**: How stupid are you?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8691) **Sunday**: Like Jesus Christ.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8692) **JSTLK**: Best time to plant a tree?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8694) **Sunday**: This is what you're running with?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8696) **JSTLK**: Best time?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8696) **Aiko**: Now.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8697) **Sunday**: This is, this is what you're running with.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8699) **JSTLK**: That's been like, yeah, of course.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8701) **Sunday**: With my channel. Of course I was, of course, of course, of course. Of course I was completely morally inconsistent and defended atrocious behavior and, and was silent when it was nakedly obvious that this guy I was getting, incidentally, a ton of money through my connection to was sharing porn of people around him without their consent. I was just fucking brain damage. Okay, that works.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8720) **Mrow**: That works.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8720) **Sunday**: I'm fine. I'm fine with that. That's good. That's good.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8724) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8724) **JSTLK**: Cool.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8725) **Sunday**: I'm satisfied.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8727) **C**: That's.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8727) **JSTLK**: That's cool. All right. By the way, none of that is, like, you discovering it. I literally talk about that openly all the time.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8734) **Aiko**: Well, it was new to me.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8735) **Sunday**: Like, do you feel, like, anything interesting.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8737) **JSTLK**: Or novel to say? I don't even think it's new to you. I feel like we've had this conversation on stream before.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8743) **Sunday**: I I don't believe we have, but as far as anything interesting or novel to say, dear God, don't have sex again.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8754) **JSTLK**: Okay?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8755) **Sunday**: Don't even try.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8756) **JSTLK**: I'm gonna take your word for it.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8757) **Sunday**: Just walk away.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8759) **JSTLK**: Okay.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8761) **Sunday**: Okay.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8766) **JSTLK**: Well.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8767) **Sunday**: Kelly, I hope your circulation continues to improve.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8772) **JSTLK**: Have a good one. We'll talk to you later.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8776) **C**: Thank you.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8777) **JSTLK**: You can come back. I'm not banning you or anything. Bye. I just want to make him understand that he could come back if he wants. I'm like, not. I'm not even mad about that. I know where, like, I stand with all this stuff, so I just don't think I think basically any of that affects me at all. Unfortunate for him.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8799) **Aiko**: Okay, I'm gonna go too.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8800) **JSTLK**: Love you, bye.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8801) **Aiko**: Bye.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8802) **JSTLK**: Gross, gross, gross. Why did you do that? Why did you do that? That's so gross. The fun- why did you just say.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8808) **Kelly**: Love you to Aiko?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8810) **Aiko**: She said that!
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8810) **JSTLK**: That was her soundboard! She's a soundboard to me! That was you! No, or that was you, I don't know if that was you or her. I'm pretty sure it was her. He's laughing though.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8822) **Aiko**: Wait, I just wanna make him understand.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8826) **JSTLK**: That he could come back if he wants. I'm not even mad about that. I know where I stand with all of this stuff, so I just don't think basically any of that affects me at all. Unfortunate for him.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8840) **Aiko**: Okay, I'm gonna go too.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8841) **JSTLK**: Love you, bye.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8842) **Aiko**: Bye.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8843) **JSTLK**: Gross, gross, gross. Why did you do that? Why did you do that? That's so gross.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8848) **Aiko**: The fuck?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8848) **Kelly**: Why did you just say love you to Aiko?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8851) **Aiko**: She said that!
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8851) **JSTLK**: That was her soundboard! She was a soundboard in there! That was you! No, or that was you, I don't know if that was you or her. I'm pretty sure it was her. Kelly's laughing though. Why are you laughing?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8866) **Kelly**: That's funny.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8869) **JSTLK**: Love you, bye!
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8871) **Aiko**: Hehe, haha. ha. That was pretty much that.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8881) **C**: There.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8886) **Aiko**: I would say potentially he might be feeling something like, I just got raped, dude.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8894) **Mrow**: I just got raped.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8897) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8899) **Aiko**: Thank you. Thank you. Good bit, good bit. Alright, now should we move on to Mrau's degeneracy? How long before you did it, did you think to do it? I was just thinking of what I would want to play on my way out. I didn't think too deeply on it. I just go with my gut. Yes, morale video. Morale video. Guys, we have to think of what the goal content is going to be. we gotta figure it out. We didn't look at the Liam Donovan one. Has anyone watched it? Should that be the goal content? The what is your desire? Would have been hilarious, but too dull. Too far?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8979) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8981) **Aiko**: Yeah, I think so. What is your desire?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8986) **JSTLK**: Or I want to nut in that face right now.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8990) **Aiko**: Oh, yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8991) **Parry**: I want to nut in that face right now.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=8999) **Aiko**: It was hardly about lyrics. other suggestions. A carefully laid trap. All of it. Sunday. The pixie stuff. All to get that. Love you on J-stock. True. It was my plan all along. Okay, we'll do Mau stuff. Someone's got to think of some gold content here. oh, vodka. If you are looking. The theme is roast. Song to roast. Okay, I think what I'm gonna do, though, I'm gonna take. A bit of weed in my bathroom real quick. The Pyrocynical video. Oh no, this is Shonda Black Pyrocynical weighs in on my lawsuit Ethan Mald. Should this be the goal content? I'm just gonna have a small amount and then I'll be right back. Yeah, running off to do a hit of pot. get peed on. okay. Seems entertaining.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9335) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9335) **Aiko**: This is Shonda Black, the guy who.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9341) **G**: I would buy that. I would buy that so bad.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9344) **Aiko**: He knew that has this, this guy who was in the, the idubs content cop on, on Ethan, who Ethan decided that he is going to maybe sue if the, these specific women don't retract their statements about EthAn being a misogynist. So I guess Pyrocynical had something to say about that lawsuit and EthAn is not happy. When you say you're gonna take weed in your bathroom, sounds like you're taking a suppository. Listen, you don't know. You know, you don't know. Okay, let's change the title to Hmm. Mrow's allegations, I guess. Guys, we still have half the amount of likes that there are people here. Please help me, help me. I am- I'm dying. I'm dying of no likes. It's like scurvy, but instead of vitamin C, you need likes. Hmm? How the fuck do you get rid of moths? Like, instead of just like, not just having traps, but, like, how do you get moths to stop being in your house? Okay, let's see what this mouse stuff is.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9464) **Mrow**: Listen, for whatever. Whatever. Listen, for whatever. Whatever reasoning she had for leaking the. The contents. of the sexual messages between us is her own. All right? I'll never understand it, okay? I'll never understand it. I'll never understand. All right, this music is getting.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9488) **Aiko**: Are repelled by the scent of Cedarwood. I've tried that at some point, too, but, like, can you kill them? like, they're everywhere.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9504) **Mrow**: And a lot of mentioning of. Of. Of black N-word white colonizing. There's a lot here. Okay, there's a lot we could choose from.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9517) **Aiko**: Does he go over?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9519) **Mrow**: Given I get, like, 100 bucks, I'll leak, like. I'll leak, like, a message that I've sent or something more like, I think I'd rather meet.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9526) **Aiko**: In a. In a.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9527) **Mrow**: In, like, a public setting, like, almost like a VidCon setting or something first. You're afraid. So I can get something to you. Yeah, I'm a little. There's a little fear in me.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9541) **Aiko**: Incense, Darkness. I don't know where they come from, okay?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9552) **Mrow**: The allegations are completely true the allegations are completely true and I will leak my messages for like $50 I'll leak one message for $50 where the n-word is said or something okay, I need money or like $100 I'll do a hundred a hundred we I gave Marcus some of them can I see if I can call Marcus? let's see. I'll see about calling this Marcus guy. Also, I don't. I'm using a different pair of headphones, so the audio might be a little, so I'm not sure. Oh, okay. We gotta go, like, to negative. 15 surely. This good? It is not good. What about negative 20? That is still incredibly loud for you guys, I think. Let me play, like, a YouTube video. One message for 40.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9629) **Sunday**: All 400.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9629) **Mrow**: I'm not leaking all. I would do individual messages.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9636) **C**: What?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9637) **Mrow**: Okay, there's this Aiden Vod, just like.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9639) **Aiko**: Setting yourself up for some kind of allegation.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9642) **Mrow**: There is adult content posts in your server. You will get accused of having a grooming community.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9646) **Aiko**: Are there any other minors in your.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9647) **Mrow**: Server besides these two? That's the only two I know. How old is Jewel?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9651) **Aiko**: So does Marelle really address anything? Or is this mostly- I think that.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9661) **Mrow**: Person is 50% compressor might not be- oh, is there another one?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9666) **Aiko**: How many miners are in the server, bro? I don't know.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9670) **Mrow**: He doesn't know.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9672) **Aiko**: Okay, so apparently there's some drama, okay, that I'm hearing, and I need everyone's opinion on this. So there's a streamer called Marcus or March baby.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9681) **Mrow**: I've been in his chat sometimes when.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9683) **Aiko**: He'S covered some stuff pertaining to me. I have no problems with the guy, but there's a person that is frequent in. In commentary.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9692) **Mrow**: That's good.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9692) **Aiko**: If you're. Thank you, brain rot.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9694) **Mrow**: For the one membership, one gifted membership. Not sure why it didn't play through or didn't show on screen. I don't even know. I don't even know. Okay, so, Dr. Octavon, it's still there. Thank you for the five Canadian smile. I appreciate it. I appreciate it.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9718) **Aiko**: I'll like the video.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9725) **Mrow**: So the allegations are completely true. I have typed the n-word we know this. And my. Listen, my. My racism has gotten out of hand. Okay. My racism has gotten completely out of hand.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9739) **Aiko**: What's changed?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9740) **Mrow**: I need some, like, wholesome music. Wholesome music.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9752) **Aiko**: Wholesome.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9755) **J**: Wow.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9756) **Aiko**: W kiboski carpet moth infestation are controlled with especially made chemical sprays.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9768) **Mrow**: I can teach you how to get through this. I think I need to become a Christian, Max. I've been talking to Max a lot about this.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9780) **Aiko**: I've been.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9781) **Mrow**: I've been talking to Max a lot about becoming a Christian. I've been thinking of becoming a Christian.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9787) **Aiko**: That's not going to save you. Even the blood of Christ can't wash all that sin off his soul. sorry, MRA. It's over.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9800) **Sunday**: Okay.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9800) **Mrow**: I have been considering becoming a Christian. This will save me, I think, or something.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9812) **Sunday**: All right.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9813) **Mrow**: I don't even know what there is to say. I don't even know what there is to say. Some asked me to call her the n-word and I.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9823) **C**: Did.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9828) **Aiko**: And is that. Wait, Parapon. Is this about Parapon? H. And.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9842) **Mrow**: And somehow I'm the bad guy. Somehow I'm the bad guy. Some girl wrote the N-word on her tits and somehow I'm the bad guy, somehow I'm the bad guy. Perry then decides to leak this all.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9856) **Aiko**: For seeming- so, ParapOn is black and voluntarily wrote the N-word on herself for Mrael? Is that-.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9875) **Mrow**: Seemingly no reason. And somehow I'm the bad guy. I'm the bad guy somehow.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9880) **Aiko**: I'm the bad guy somehow.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9883) **Mrow**: I don't know.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9892) **Aiko**: I'm asking right now.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9895) **Mrow**: I'm the bad tits. And somehow call her the n-word and I. All right. I don't even know what there is to say. I don't even know what there is to say. Some asked me to call her the n-word and I did. And somehow I'm the bad guy. Somehow I'm the bad guy. Some girl wrote the n-word on her tits and somehow I'm the bad guy. Somehow I'm the bad guy. Perry then decides to leak this all for seemingly no reason. And somehow I'm the bad guy. I'm the bad guy somehow? Somehow? I don't know.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9932) **Aiko**: I can see why this woman didn't want this leaked. Um, well, apparently she leaked it to Starbase, AKA Paragon, right? What do you mean what? watching your brace mixer video. Why is he ask. Why did he say what? I wrote, Are you talking about Parapon regarding asking you to call her the N-word and wrote it on her tits? And he said, what? He's the one that said it. These internet people are too fucking weird.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9991) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=9993) **Aiko**: She was begging Parry not to get it out, and Babco is really mad that it was leaked. Well, I mean, let's be real. Telling someone who ended up being Parapon? That guy? Life lessons. What do you mean Aiko just said her username? It's already out there. It's already been said. Hey Shindig. like, I've been in these streams and it's been said, like, that's. That sucks. And I'm sorry that happened. But also, if you show that to. To someone, first of all, taking. Doing. Doing those. Doing any sex on Discord is a risk. I'm sure. I will never. I will. I don't even know what I'll do. I won't. I just won't. Yeah, it was the illogical conclusion. So sexting is one thing, but then screenshotting your sex with someone and sending it to someone else who turns out to be parapon. Paragon. Sorry, paragon. Oh, I'm saying never. Literally never. Never. Never. I could have a relationship with someone IRL and we could both have discords and of course I will never sex on Discord. Oh my God. Hey, I'm live. Hi. Hi, I'm watching your race mixer allegations video.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10125) **Mrow**: I have a thousand live concurrent viewers right now, so be careful, all right? You're in front of a big audience right now.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10133) **Aiko**: I will make sure to say all the slurs that you said to that poor girl in DMs. Okay, but, yeah, no, I was just wanting to clarify. This is about Parapon, and she leaked. She leaked this stuff to Starbase, AKA Paragon, and.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10152) **Mrow**: Yeah, and.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10153) **Aiko**: Okay, so I don't know why she would leak that if she was. so she asked you to call her the n-word and then she wrote it on her tits for you?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10168) **Mrow**: Yeah, it was consensual sexing. I have no clue why she leaked it. And then she acted as if, like, it was a huge violation of privacy that Perry outed this, but, like, she's still friends with him, so I don't know. I don't know. I feel like I'm probably being lied to or something. Some kind of just, like. It is what it is. It happened. It sucks that it happened, but, you know, what can you do? What can you do, Iko? Iko rules, nothing really at this point, you know?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10195) **Aiko**: Yeah, no, I think, yeah, that's weird, especially to Starbase who... I thought that it was known that he didn't like you, or maybe I'm thinking about something else.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10208) **Mrow**: Uh, it was very much known. He was going around DMing people trying to get shit on me.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10213) **Aiko**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10213) **Mrow**: So, like, the anti-mrau Coalition. Yeah, I don't know. I don't know. It's very silly. I don't understand why she tried explaining to me why she thought, like, in her mind it was a good thing to do. I'm not gonna leak DMS or anything like that, obviously, but it's just like, I really don't understand it. I don't get it, man. Everything was consensual. I don't understand, I guess, what the issue was. like, why didn't she come to me if she had an issue with it? I don't even think she had an issue with, like, the content of the messaging. I think I'm. I don't understand. It's really confusing to me.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10248) **Aiko**: So did she take a picture of her writing the. The n-word on her tits?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10257) **Mrow**: I don't think I'm gonna get into the specifics.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10259) **Aiko**: No, like. But you saw it. You saw it, though, right? She didn't just tell you that it happened.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10267) **Mrow**: Yeah, I saw it.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10268) **Aiko**: Okay. All right.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10270) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10276) **Aiko**: I guess I just wanted to clarify that.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10280) **Mrow**: Why?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10282) **Aiko**: Just out of curiosity, I think that it's very funny how Starbase turned out to be Paragon.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10288) **Mrow**: Did you cover the Paragon stuff when that came out?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10292) **Aiko**: No, I was in queeman's chat when he realized, and that was very entertaining to witness.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10299) **Mrow**: Yeah, I I looked, I went through and watched all of the. All the vods. We went on j-stocks. He's a freak. That guy's insane. That guy's crazy.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10312) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10312) **Mrow**: Do you know what he did?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10313) **Aiko**: Right? I do. But if you could, if you could just, you know. Summarize it.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10320) **Mrow**: He unconsensually sent two dick pics to a girl and then tried to change his reasoning like three different times about why he did so, ending off with he sent it maliciously to fuck with her, where as it started as, oh, I want to get close to this person. And then before that, it was like, I saw my opportunity and I took it. So he's like constantly changing his reasoning for sending an unconsensual dick pic. you know who lav is, right? So initially, he. Lav and some girl named Zoe were fighting on a stream. So he DMS both lav and Zoe and tells each of them that the opposite person is and that they won. So he's telling lav, oh, you're Zoe's so retarded. You won. And then he's telling Zoe, oh, lav's so retarded. You won. And then after a couple hours of talking to Zoe, he sends a picture of his bulge. She waits 30 minutes to reply and sends a question mark. And then he sees that. He said this on stream. He sees that as consent to keep going further, right? So then he sends full hog.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10387) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10388) **Mrow**: After a question mark.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10390) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10391) **Aiko**: Oh, yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10392) **Mrow**: I forgot about that. One of his reasonings for sending a dick pic is this girl was complaining in the server that she was getting so many dick pics. so he said at one point in this, in the J-stalk stream that he was scared of missing out of sending her the dick. He had fear of. He had fear. He was scared of missing out that he didn't send her his. Is one of the reasons he gave that.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10413) **Aiko**: Yeah, yeah, yeah. That guy is absolutely a freak, especially with him dming hater and being like, how old is hater right now?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10425) **C**: 16. Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10426) **Aiko**: Dm'ing her and being like, hey, if any of these adults bother you. Yeah, very odd.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10431) **Mrow**: I don't know if he's a pedophile or a groomer, but that's definitely not something you should be doing when you obviously don't understand the social cues, social Norms of, like, sexual like that. There's obviously something a little wrong. Not necessarily you're obligated to, like, go check that out or go. Go fix that or whatever, but, like, at the very least, you probably shouldn't be trying to form, like, a. A authority figure role relationship type thing with a 16 year old. Very odd. He also said he wanted me to DM hater and to groom hater. He said that today.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10466) **Aiko**: What?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10467) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10467) **Mrow**: You want me to find you the DM?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10469) **Aiko**: Yeah. What the fuck is that? How did poor Perry? He was catfished so hard.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10482) **Mrow**: Uh, yeah. I don't know if I care about Perry at all being catfished.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10488) **Aiko**: Yeah, well, I mean, he. He was considering he's the one who.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10494) **Mrow**: Tried to portray what I did as, like, e-rape and outed, like, a bunch of private info that he was given. Not really. you know, can't really.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10507) **Aiko**: I understand. Can Perry come on or do you. He can talk to you.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10517) **Mrow**: I don't know if I want to chat to him.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10521) **Aiko**: Well, you show me your. Your stuff. Show me the DM or whatever.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10528) **Mrow**: If I can find him.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10529) **Aiko**: Yeah, if you. If you can find it. hi, Perry. Perry, do you have a good reason? What's your gripe?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10559) **Mrow**: Okay, so he. He apparently told us to Perry. I don't know if this is on, like, a stream or something.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10566) **Aiko**: Here.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10570) **Mrow**: So he says, I was hoping Mira would message her. That's what I told Perry.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10576) **JSTLK**: So.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10578) **Mrow**: I don't know what the was going on in this guys. I don't know what this guy was into or trying to do or trying to accomplish, but, yeah, if you want to head off, you can call Perry. You can go do that.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10589) **Aiko**: Okay. Do you have anything else to say? I don't know if he even has anything. Perry, do you have something to say to me? Okay, well, thanks. Thanks for clarifying. I appreciate it.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10603) **Mrow**: Yep. Bye.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10604) **Aiko**: Bye. You can call me Perry if you want, if you feel like it. Not particularly other than the fact that Mrau's... Oh.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10624) **Parry**: Hi, Aiko. Sorry to bother you. I was just watching your stream while... I just decided, I don't know, what is this Mrau guy's problem, okay?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10632) **Aiko**: He doesn't want to talk to me.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10633) **Parry**: Now, which is fair enough, because I did leak the fact that he is into race play and cuck weening, okay? That's fair enough, he just wants to talk to me. But he's gonna lie about my coverage, okay? I did not say that he is like an e-rapist. In fact, when I was covering the Starbase stuff, and I mean, you know, it's like a whole saga about Starbase shit. I don't know if you want to go through it. But, you know, people can see that, like, people are asking me, wait, so it's like more like a sexual predator. I said, no, he's like just a bit of a sex pest. And like Starbase was telling me about stuff to justify his behavior with this hater person, right? I get it again and again. So that MRA wasn't, I specifically said that he wasn't being like a hater. I said it was something to do with something he did with someone else. I felt like that was relevant since it was Starbase's defense for all of his improper behavior with this hater-minded person. But I get it again and again, I feel like I stated that I didn't think that he was an evil e-rapist. I very specifically, someone said to see like, I think someone said to see like this, he said like, no, no, he's like a sex pest. I don't know if that was before or after, but I've said it again and again, so it's really annoying him. I was just gonna succumb to the stream and just lie on my coverage. It's fair enough if he's upset at me for leaking the details about his, you know, sex stuff and where's up or whatever. As to the truth of what he's saying, you know, I'll let the. I'll let the viewers decide about that. But for the. As far as my coverage goes, I just want to clarify that.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10706) **Aiko**: Okay. Do you have. Okay, is. Do you have any particular reason why you leaked his race play interests or was it just funny?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10720) **Parry**: I thought it was funny. The race play, the leaking the race play and other feather stuff that he was doing. That's just funny and if he wants to talk about that in whichever way he sees fit, that's fair enough. But as far as him talking about my coverage, I mean, it just annoys me because I very specifically said the opposite, okay? And if he's gonna say, I don't wanna talk to this guy because he did this when I didn't do that, he can decide not to talk to me because he's mad at I am bad. I revealed embarrassing sexual details, which to be clear, sorry, saying to be clear makes me sound like Destiny, I apologize for- I don't know what you're talking about. For a moment. Sorry, which I will probably, going forwards, I'll just reveal any sexual embarrassing details that anyone sends to me about any streamer. But it's fair enough. I mean, I didn't set that as a standard, so it's fair enough if he's annoyed and mad at me for that. But he's giving a different reason. He's saying it's because of my coverage, and that's what my coverage is like. So as far as why I revealed, as well, you asked that. Yeah, the sex stuff was just because it's funny and I told it, yeah. And the Raal having some sexual interaction with somebody that I revealed because it was relevant to Starbase defense. and he was basically like using that to like obfuscate from his bad behavior. So I felt it was relevant to the stuff he was telling me in the private call we had. And I wanted to talk about the private call in general because I covered Starbase stuff on stream and I didn't want to be like I had a private call with him that people didn't know about.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10798) **Aiko**: Okay. Yeah, I mean, fair. I guess you chose memes over your, what was your relationship with Mraal like before?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10812) **Parry**: Yeah, we were like, acquaintances.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10815) **Aiko**: We both stream, but like friendly.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10820) **Parry**: Uh, yeah, yeah, I'd say pretty friendly. I'm just like evil. And I- you-'re just- yeah, he's into, he's into, you know, fantasizing about black people calling them his n-word slave. I mean, to be fair, some of that was public because he did the same things about her, but all that's say.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10834) **Aiko**: All that's say.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10836) **Parry**: Yeah, I know what that's a mean thing to do. I know it's a mean thing to do, but, you know, he's lying about my cover. That's what annoying me.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10843) **Aiko**: That's fair. Okay. All right, I accept this.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10849) **Parry**: All right, well, you know, if you're listening, you're a loser, man. You suck.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10854) **C**: You.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10857) **Aiko**: Okay. All right.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10859) **Parry**: I think everything I had to say, honestly, you have anything. Do you want to ask me?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10862) **Aiko**: Um, I think that's, I think that's it right now. Just, you're holding up okay after this betrayal of- From Starboard. Well, listen, I mean, it's my fault.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10873) **Parry**: For like trusting, I mean, it's just, I don't really, it's really annoying that he's like fucking viewbotted me or whatever now. It's like disgusting behavior, right? Trying to, you know, gets me in trouble basically with the YouTube stuff by doing this like botshit. And he was trying to sue earlier, but that's like retarded. I mean, I'm Maltese for fuck sake. He's not gonna do an international lawsuit and apparently Malta, I mean, I say apparently in Malta, it's one part could say so it wouldn't even be illegal.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10900) **Aiko**: For me to record him.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10901) **Parry**: So yeah, this guy's like a retarded loser.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10904) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10904) **Parry**: Um, sounds like a hassle. Do you see how, yeah, well, you know, it's whatever. It's just annoying because I like knowing if people like my stream and then if I have 6,000 viewers, it's like, I can't tell. It's annoying. Um, and I mean, I think Mara's going to give you a bonus now, so I do that, you know, that sucks. So also, I want to say what I want to say. Oh, do you see I revealed my face? Do you see my face? Do you review my face?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10930) **Aiko**: Oh, no.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10931) **Parry**: Okay, I. I was hoping you'd review it. I mean, not like.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10935) **Aiko**: Oh, I.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10935) **Parry**: If you're in the middle of something else.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10937) **Aiko**: No, no, I will. I will if you. if you want to.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10942) **Parry**: Well, this is.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10943) **Aiko**: You revealed your face.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10945) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10945) **Parry**: Like, it's like, I mean, I'm sure someone can send it to you.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10949) **Aiko**: Did Starbase leak it?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10952) **C**: No.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10952) **Parry**: I mean, I heard. I answered it. I mean, I sent it to him because I. Retiredly, I guess I trusted.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10959) **Sunday**: The guy way too much.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10960) **Parry**: And so I'll say, could you, like, check if this shows up anywhere else so I can get rid of it.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10964) **Aiko**: Before I.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10966) **Parry**: Make it public. And so, you know, ever since he'd gone crazy, I figured he's gonna release it. So it's hard to say. I might as well just release it myself.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10975) **Aiko**: Okay. Do you. Wait, so you want me to. You want to send it to me or someone else? I mean, I don't know if anyone's gonna have it off hand.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10986) **Sunday**: They should.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10987) **Aiko**: They should. Here's the old picture and.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=10991) **Parry**: Here's a picture of me rock climbing. And here's like, where's my ugly picture from recently?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11001) **Aiko**: Where is it? Hold on. Should I pull this up on stream?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11008) **Parry**: Yeah, sure, whatever. I mean, it's your fucking stream.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11013) **Aiko**: Let me... Here, let's just... Just do this cool rock climbing one. You look too serious in the other one. Look too solemn. Oh. You look like you're at a funeral.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11035) **Parry**: Right, I'm not.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11038) **Aiko**: But look, look how cool this is. Look how cool rock climbing is. Guys, wait, why can't I make this?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11048) **Parry**: I feel like I'm really, I'm making you uncomfortable by asking you to look at these. I'm sorry.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11052) **Aiko**: No, you're not making me uncomfortable. I just feel- I'm really sorry about this. Don't, why are you apologizing?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11060) **Parry**: I think I'm taking this too far.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11063) **Aiko**: No, I just think you should give me like a happier looking face. I feel like intimidated.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11069) **Parry**: I don't make many happy faces. This is the one I sent to Star Based. This is the one I sent to Star Based. That's a very, I'm looking, it's like very solemn looking, you know, it's...
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11082) **Aiko**: Okay, can I open this one?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11085) **Sunday**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11085) **Aiko**: Okay, I like this one.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11088) **Parry**: I have a cat, I'm looking down, so everyone makes fun of me if you're anything fat, which I am, but it looks even worse because I'm looking downwards.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11097) **Aiko**: So you're not fat clearly because you're on a wall.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11103) **Parry**: Well, that was, yeah, okay, whatever.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11107) **Aiko**: Nice cat.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11109) **Parry**: Thank you, thank you. His name is Tom. He's on my back in this picture. It's epic.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11115) **Aiko**: Very cool. Cool.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11118) **Parry**: Okay, bye.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11120) **Aiko**: All right, bye. cool. But, yeah, this Starbase DM. I was just hoping Mrau would message her. That's why I told Perry. like, I guess to. To catch him. It's all a trap for morale. Maltese, lunar box. Hey, JoJo. Hello, everyone. I didn't say hello to. Hey, Shiny Grizzler. Green. Welcome, Nas. Please, like the stream. That would be. So cool. Oh, am I getting view potted now? What's happening? I feel like the numbers just jumped up real quick. Um, okay. I guess back to... Hey.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11195) **C**: This?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11196) **Mrow**: Some bitch asked me to call her the N-word and I did. And somehow I'm the bad guy. Somehow I'm the bad guy. Some girl wrote the N-word on her tits and somehow I'm the bad guy, somehow I'm the bad guy. Perry then decides to leak this all for seemingly no reason and somehow I'm the bad guy? I'm the bad guy somehow? Somehow? I don't know. listen, for whatever she had for leaking the. The content.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11237) **Aiko**: Oh, that's people coming over. Oh, I see.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11240) **Mrow**: Messages between us is her own. All right, I'll never understand it. Okay? I'll never understand it. I'll never understand. All right, this music's getting loud. and to be clear, I'm not going to be leaking the, the exchanges, but I will for money. I will for money leak some of the messages that I've sent, because I think, I think that's funny. I think that's funny. Okay. I think that's funny. How much money are we talking? Let me, let's take a look. Let me, let me go to the archive that I have. Let me see, let me see, let me see what we have. Let me see what we have. Smile. listen, a lot of mentioning of.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11313) **Aiko**: Of.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11313) **Mrow**: Of black, N-word white colonizing. There's a lot here. Okay? There's a lot we could choose from. Given I get, like, a hundred bucks, I'll leak, like. I'll leak, like, a message that I've sent or something. I'll find a good one. All right, I'll find a good one. Colonize?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11338) **Aiko**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11345) **Mrow**: There's also a conversation about scrambled eggs. I started talking to her about scrambled eggs.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11354) **Aiko**: Oh, true.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11355) **C**: Oh.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11357) **Aiko**: Wait, one more thing. Hey.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11367) **C**: Hi.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11368) **Aiko**: Hi. So I wanted to bring up Babka. Have you stopped harassing her yet?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11376) **Mrow**: No, I fucking hate that bitch.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11378) **Aiko**: Come on.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11380) **Mrow**: Sorry.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11384) **Aiko**: Why do you hate her? Um, because she won't write the N-word on her chest for you?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11392) **Mrow**: No, I never, I didn't get to the point where I asked her that. I did DM her and I did apologize because I did call her the N-word and I wanted to make it clear that it was not like a sexual thing. I was, I just thought it was funny to be racist to her. So I did, I did because of this, I did end up DMing her saying, Hey, sorry about that. I hope there's no hard feeling. I hope you're fine. I hope you. I hope you're okay. I did say that to her.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11416) **Aiko**: I feel like. I mean, I want to say, do you have to? But you. I know that you just will. I wish that I could stop you because I think it's up for you to be harassing her.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11436) **C**: I think.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11436) **Aiko**: I think that it's up that you. You, like, will DM terrible things to Babka and stuff for being. Well, I'm not damning terrible things to her anymore.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11445) **Mrow**: I said, sorry, and I'm stopping.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11447) **Aiko**: Okay, good. That's good.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11449) **Mrow**: That's what I wanted to know. You're like.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11452) **Aiko**: You're very. You're like, I'm out of. I'm not.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11455) **Mrow**: You're out of the loop. This was months ago. Okay. I'm kind. I'm kind to women. I'm on, like. I'm on, like, a kindness Arc, etc.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11464) **Aiko**: Etc. All right, cool.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11464) **Mrow**: Are you being boughted now?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11467) **Aiko**: I don't know, am I? Probably.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11469) **Mrow**: Yeah, I think you are.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11471) **Aiko**: Whatevs.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11474) **Mrow**: All right, well, I should have just rated you if he was gonna buy you, whatever.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11478) **Aiko**: It's all good. All right. Oh, you think it's Starbase?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11483) **Mrow**: I'm pretty, because I like pseudo-rated you. I just posted your link. I didn't want to rate you with bought accounts. I didn't know if they would transfer over.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11491) **Aiko**: I see. What does it even matter? What do Bots even matter? I don't know.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11498) **Mrow**: It doesn't count for views because do you have the setting where you unlist your streams after they go or after they end?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11503) **Aiko**: Right. No, I don't.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11506) **C**: Right.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11506) **Mrow**: Well, I do. And unlisted videos don't count for views, so you're not, like, putting in.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11511) **JSTLK**: You're.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11512) **Mrow**: It doesn't put, like, an unnecessary spike on your ship. So I don't even know if botting can, like, take people's channels down. It's just like a waste of money. I don't know why. Like, I I I I looked it up on the side while I was streaming because I was like, I was worried, is my channel gonna get taken out there? I have not found one example of someone's Channel getting, like, stricken or taken down or whatever for bots. So I I literally don't know what it does other than, like, maybe a mild annoyance. Like, you can't see how many real viewers you have.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11540) **Aiko**: Yeah. Doesn't seem like much weird. Weird. Well, thanks for- no, you're definitely being bodied though, bro. What, it's not your presence?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11553) **Mrow**: I don't know, I mean, he's probably bodied you because of me, yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11556) **Aiko**: Well, okay, yeah, fair, fair. Okay, all right. Well, thanks for- you- think I'm evil?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11562) **Mrow**: You think I'm ontologically evil, Aiko?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11564) **Aiko**: I don't think you're ontologically evil. I think that you would be allowed on Aerodite's Incel Ranch. because you are.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11572) **Mrow**: I don't think everybody likes me anymore. I'm trying real hard to be her friend, but she's like. She hates me, dude.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11579) **Aiko**: Probably. She probably feels responsible for you. How?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11586) **C**: What?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11587) **Aiko**: Because you are a young, troubled man.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11591) **Mrow**: You're being, like, gay, though.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11593) **Aiko**: What do you mean? That's her whole thing. She wants to start a horse camp for incels and. stuff.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11599) **Mrow**: All right, well, I sent you something. Have fun with that. Okay?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11602) **Aiko**: Okay. All right. Oh, no. Raus leaking. Leaking DMS with aerodite. Oh, no. Oh no. All right. Rau DMs Kyla. Hey, Erudite. I was looking at William Blake's Satan watching the caresses of Adam and Eve, and I couldn't help but think of your beautiful mind. Adam and Eve were unified, vulnerable, yet radiant. Felt like your vision of what human connection could be when we rise above base impulse and lean into reciprocity. Above them, Satan twists in envy, the embodiment of unchecked desire and alienated intelligence. Almost like the evolutionary shadow you're always dissecting. And those spirits in the trees? Maybe they're the social scripts and norms, watching, shaping, judging, always there, but never quite fully in control. It's beautiful how Blake, like you, captures that tension between our biology and our yearning for something higher. It made me think, maybe love at its best is two people holding hands in Eden even as the world burns above them. Just thought I'd share that. It felt poetic. Like you, rose emoji. This is the art. And Aerodai responds, this is weird. So, I don't think that friendship's going to well, frankly. Hey, Cody. Hey, Loa. How dare she? that is very funny.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11762) **Mrow**: And how I. How I really like scrambled eggs. This goes on for a while.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11779) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11780) **Mrow**: All right. yeah, I mean, it's true. Again, I mean, her reasoning for leaking this is, is her own.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11788) **Aiko**: All right?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11788) **Mrow**: And I can't exactly prove that it was, like, reciprocated and consensual without leaking the, the full-on exchange. So I don't, I'm being put in, like, a rough position. All right? But I can, I can say with a significant air of certainty. Hey, loner, that it was 1, 000 consensual and reciprocated. and I think outside of, like.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11815) **Aiko**: What was I gonna say? There's, like, less than 10 minutes in this. We have our goal content, which is watching Sean de Black talk about how pyrocynical weighed in on his lawsuit. And Ethan is very mad. Ethan. who may or may not be suing Shonda Black if specific women don't come out and say retract calling Ethan misogynistic. So that's the goal content. So we have about 10 minutes left. If anyone wants to do the 69 singing about your mom goal. FYI. Okay. But don't forget, kick only music video stream late tonight.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11869) **Mrow**: Leaking my own side for money. I think that's the extent of what. What I'm gonna say. Unless she starts, like, lying about it. You know, if she starts lying about it, obviously, at that point, I'd probably consider. you know, defending myself in a more significant one.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11890) **Aiko**: Can you give your Ethan take extra compressed? I was a fan of the. The show since basically it started. I gave Ethan so much charitability for so long, but then forget what it was exactly, but then he, like, crossed this line where I realized, like, oh, he's not misinformed. He's. He's being deceptive on purpose.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11926) **JSTLK**: I like Jessica pistol.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11928) **Sunday**: Lips. How about that?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11929) **Aiko**: I'm not grumpy. Oh, my God. Was she here for that?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11936) **Mrow**: Wait, how is that better?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11938) **Aiko**: We're naming someone specific.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11942) **JSTLK**: Jessica, do you still want me to lick your?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=11944) **Aiko**: It's kind of like. Thank you so much for the 25. Scally, we are halfway to the goal now. Excellent. And yes, there is a Discord. Everyone say thank you to Scally because. that was the first Tommy C alert that we got today. So we could have had all Tommy C alerts for the entire music stream. Charitability sounds too Destiny coded. I mean, whatever. It's just a part of the space. Just put your. Your username. in the new comers room and you'll get a roll. But did you watch for enemies? Did your opinion change on Ethan Trisha stuff? If yes. Yeah, I definitely. I think so. Looking back, there's probably more to her complaints than, like, took seriously at the time. Hey, Nate. But yeah, so it's just, I can't, he's completely gone. Like what he's doing, attacking people, the way he, it's just, it's beyond arranged. But we still have a little bit more of this. eight minutes.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12058) **Mrow**: However, you can stuff seems like a bad idea. I mean, like, literally the only time I would leak, like, full-on exchanges is If it was like a small lie, I probably wouldn't care. If it was a lie that was like damaging, I would probably, which I can't even think of what a damaging lie in this scenario would be. But at that point, I would probably consider like, you know, leaking something to prove my innocence or whatever. But outside of that, I'll like leak messages that I've sent and keep her side ambiguous, cuz I think. I think that's funny. And I think that's reasonable because it's messages that I've sent. So obviously, you know, I can, you know, control what is being sent or what is being seen, I should say. So, yeah, if we hit like a hundred bucks, if I get like a $100 in donuts today. I'll find like a really funny message. I'll put it up on screen. But past that, I probably am not going to leak anything else. You know, I'm not listening, guys. Listen. Asu in chat, Shelby in chat, Louie in chat, Ali Khan in chat, Tony in chat, Zach in chat, Keller Vetla in chat, Rezi in chat, all my best friends. I'm not exactly happening. Happening. I'm not exactly happy, okay? I feel like no one wants to see that shit. I mean, it's fairly funny. It has, like, the n-word I'm trying to find a way to make light of a situation, all right? And make it kind of funny.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12163) **J**: All right.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12164) **Mrow**: Oh, hey.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12166) **C**: What?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12167) **Mrow**: What did you call me for? I forgot, actually. what was I saying when I called you?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12176) **Aiko**: Oh, these are the start. The star based DMS with hater, the 16 year old. Is this really late for you? Really early in the morning? It's 7 21 a.m. for me. And hello, Estelle. And I'm not completely sure. to be honest. What will you do if you get a hundred dollars to stream? What should I do? What would I do? What ought I do is the better, better question. I do whatever people want. he edited almost all the DMS. Yes, I saw hater say that tattoo show and tell. No, that could get too. It could get too weird. Yeah, weird.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12240) **Mrow**: I picked up Pottery with my wife. Oh, yeah, I. I showed you my side of the DMS, right?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12248) **JSTLK**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12249) **Aiko**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12251) **Mrow**: Describe what you've seen. Don't leak it word for word. Use innuendo and metaphor. We use the specific word to describe a group of people a lot. Repeat that.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12266) **Aiko**: You were- We're a choker for a whole- Sorry, you use- oh my God. I would have to get a choker. Okay. if I get a hundred dollars today, I will purchase a choker from Amazon Prime. Okay? And I'll wear it for an entire stream. All right? Today only. That's the only offer I will. No goals for it. The goal is only for right now. And I'm only streaming, like, if we don't get the goal, I'm only streaming for, like, five-ish minutes more. Okay, so if anyone in the next, like, five or ten minutes wants to complete the goal to a hundred dollars, I will purchase a choker on Amazon. I'll have it delivered Prime, and I will wear it for a stream, okay? We're at $37.45 right now out of $100. If you get a choker, get the plastic stringy one everyone wore. You mean the one that Aerodyne always wears? I'll get- I'll get her leftist sexuality choker. I could do that, but I don't want to see that. I will not do a full Aerodyne cosplay. Hell no. that would be a whole outfit I'd have to burn after. Yeah, the tattoo choker. That's what I'll get. Wear for 30 minutes and. No, no, I'm not gonna do that. Then it'd feel like sex work. And I can't. I'm not doing any. That's. That would just be debasing myself. Once is a meme. Thanks a million.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12379) **C**: I.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12383) **Aiko**: Psychic honors. That's the best. Thank you so much, Nate, for the. For the 62.55 cents. that is not enough for the goal because super chats count minus 30% but we are at 81.23 now. Thank you. Thank you. Oh my God. I'm sure someone will do. We'll finish it. But I will sing about your mom and we will do the goal content so. It'll we'll have a little while left to do it. Okay. No pits. No. Okay, let's see. thank you so much, Joe, for the five dollar Super Chat. I will add that to the goal. Oops. 81 23. Okay. Oh, God, this is gonna be. This is gonna be so ridiculous. Okay. Are you ready? There only two hopes. There only Two holes and I, fuck your mom in both of them. I fuck your mom in both of them. I'm over and she's never coming back. She told me she doesn't love you anymore. Let's finish this. Cause I'm going her heart. I'm like, kiss of the pistol, pussy lips. How about that? How's that, girl? She's got the best.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12589) **Sunday**: Was she here?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12608) **Aiko**: That was the most curse combination ever. Oh, my God. That was amazing. Thank you so much. Thank you. Cute and thank you. Um, Scally, we have completed. I will purchase by the end of this stream. I will have a choker on the way. Okay? Thank you, thank you. Oh, and I will add all of these to the numbees. I know, I know, I know. I know.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12649) **Mrow**: You used a word that describes like a specific group of people a lot. You use the, it starts with an.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12658) **G**: N.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12661) **Mrow**: And you, I mean, it was.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12663) **Aiko**: It was a lot of.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12666) **Sunday**: I don't.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12667) **Mrow**: Know how to describe it.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12669) **Aiko**: It was just eight numbers.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12671) **Mrow**: You know, it was a lot of.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12672) **Aiko**: I kind of, you know, how do I put this?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12675) **Mrow**: You owned her, you know? Oh, this is like. This is like. Who's that black rapper?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12682) **Aiko**: That's true. You will be able to censor my choker as well. Censor and uncensor it. That'll be good.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12692) **C**: Yeah. Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12694) **Aiko**: I think we'll do the same way that I. That we. That I make it so.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12703) **G**: Thank Psycho, your song was beautiful. In other news, my mom died three works ago.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12709) **Aiko**: Is that the case, Nate? I'm so sorry to hear that. Thank you for the $5. I hold her close in my heart. don't say what. Don't say what. It sounds like a chat someone was sent to Aiden. We are one numby away, but, yeah, so the. so the way that, you know, when. When we watch erudite, you can cover a potty part of hers for five dollars, including the choker. You can take it on and off. So, yeah, we'll do that. Five dollars to put it on. Five dollars to take it off.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12771) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12772) **Aiko**: Choker having stream is coming. Yep. Okay, I'm gonna look. look at the choker options.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12779) **Mrow**: The one. The Tyler. It's like Tyler the Creator. What you said has two different meanings. You owned her, right? There's two different. There's two different ways you could interpret what you just said. You're like. Yeah, you're like Tyler the created. Created.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12794) **Aiko**: Yeah. I go is a reported cunt who can go die. Who can go die. And I would not give a nummy. Thank you, Poulagon, for your one and only prime, Sobe Sopac. Thank you, thank you. I'm so sorry to hear that, Nate. We are here. We are here with you. I was catching up in the fact someone said, Make her wear choker, as I was thinking it, I tell you, there's some weird quantum entanglement really going in. It's a strange time. Earlier you didn't want to do that because it sounded like sex work. Listen, one time it's a bit. Two times, it's sex work, okay? I'm old, she was older, always happens eventually. Got it. Got it. you know, we all know what you say when moms die. Listen, only when someone's mean, okay? Only to my. My nemeses.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12883) **Mrow**: Marcus, do you. am I a bad person? No, no, you're just. You're just weird.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12896) **Aiko**: I don't know. You're just.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12897) **Mrow**: You're just weird. That's about it.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12900) **Aiko**: We were.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12901) **Mrow**: So, like, last year, we were talking about meeting up, right? Like, having a play date. Or is that off the table, or is that still.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12910) **Aiko**: If I had the.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12912) **Mrow**: It's not off the table. I guess if I had money, if you ever wanted to do something, I guess I wouldn't even be opposed to it. Are you more open to it now after you know what I am, or.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12925) **JSTLK**: Are you like- I think I'm more.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12928) **Aiko**: Open to doing it.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12929) **Mrow**: I'm a little bit less open to doing it, but I don't know how to explain this. It'd have to be in a setting where meeting up would make sense. Previously, I was like, oh, I love this guy.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12940) **JSTLK**: He's awesome.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12944) **Mrow**: Now it's more like, I think I'd rather meet you in a public setting, almost like a VidCon setting or something first. So I can get a good something to you. Yeah, I'm a little... There's a little fear in me.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12958) **Aiko**: Okay.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12959) **Sunday**: Okay.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12960) **Aiko**: When Raoul first started DMing me on Discord, discord. I told him that I was gonna send all of her DMS to resi for safekeeping, and I did for a while. Everything he DM me, I would just screenshot it and send it to resi.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12980) **Mrow**: You're bigger than me.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12982) **G**: I'm.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12982) **Mrow**: I'm like, I could hurt you.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12985) **Aiko**: You could.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12986) **Mrow**: You could.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12989) **Mrow**: Like, like, if you.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12990) **J**: If we.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=12991) **Mrow**: How long would we have to, like, know each other in real life for you to introduce me to your parents? I guess after, you know.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13000) **Aiko**: Oh, my God. I have to be. I'd have to meet you a few times before I could even do that.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13009) **Mrow**: Let's say we, like, live together. How long. How long do we live together before I meet your. Meet your Papa? I guess, like. I guess if we lived together, like maybe a full year would be fine. Like a full year of living together. I don't, I wouldn't care if you met my parents. I don't know. Well, they'd probably meet, you know, because they'd come over, you know, they'd come over to my house or something. So you'd be there. You'd, you'd dump, hey, stay in your room. Don't come out until they're gone.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13036) **Aiko**: Well, I mean, I'm not going to.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13037) **Mrow**: Make you stay in your room.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13039) **Aiko**: That's fucked up.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13040) **Mrow**: No, you'd make me leave. You'd make me go to, go to Jimmy John's. Yeah, go run errands or do something.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13047) **Aiko**: Yeah, that's what I would do.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13049) **Mrow**: All right, well, I mean, I still love you. I don't think you're weird at all. Despite that's okay. You can think I'm weird. Just despite everything.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13061) **Aiko**: Despite everything.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13062) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13063) **Mrow**: I've known you. We've known each other for like three years, Marcus. We have.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13068) **Aiko**: Yeah, we have.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13072) **Mrow**: I mean, I guess that's it. Anything else? I don't know if there's much more for us to talk about. Since we're since we're being so open today. I'll be I'll be honest, you know.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13081) **Aiko**: That I'm looking at you know that.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13082) **Mrow**: Movie that just came out It's called K-pop demon hunters yeah, my roommate was watching that yesterday or like I watched it. I watched it She was in and I'll admit it wasn't that bad my roommate was watching she was in a you know what a snuggie is? Yeah, I know what a Snuggie is.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13105) **Mrow**: That's an oldie.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13106) **Mrow**: Yeah, that's old. She was in a Snuggie and she was watching K-pop Demon Hunters. I went out of the living room and I saw this. I saw my roommate in a Snuggie watching K-pop Demon Hunters with her big mug. I don't know what they're called. I don't know what they're called. That's actually kind of crazy because I made hot cocoa for me and my wife and we sat down and watched K-pop Demon Hunters. Jesus. Jesus. This is not looking good.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13136) **Aiko**: Sorry.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13137) **Mrow**: I don't know if that was too much. You know what a cuck queen is?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13143) **Aiko**: No. Is that like.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13145) **Mrow**: No, I'm just. I'm just. I was just. I gotta go.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13149) **Sunday**: Okay?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13150) **JSTLK**: Okay.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13151) **Aiko**: Jesus. All right. Cool. Okay, I guess are we like settled on the tattoo style choker? Okay, I'm gonna pee and then we'll watch this goal content that we have. Get peed on. Hey, Queen. NH. Okay. okay. All right. We are one numby away from making Frankie do numbies. Thank you, everyone, for being here. I appreciate it. We're more than halfway to the no hold man goal that traumatizes Peter. I'm looking at chokers, and it's like. They're all in like 50 packs. It's fine. We'll figure it out. All right. Okay, so this is Sean DeBlacK's channel. Pyrocynical weighs in on my lawsuit, Ethan Maldz. So, quick refresher.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13488) **C**: Is.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13490) **Aiko**: Shonda Black was in iDubbbz content cop about Ethan. He was one of the people doing Fortnite dances with a L on his forehead. And so Ethan was being called misogynistic and for only suing these, only suing women. And he's like, okay, you say I'm a misogynist. I'll sue Shonda Black, too. Didn't he say that he didn't even know he was a black? Is that. Is that true? Did. Did he actually say that? Because he's actually. He's absolutely talked about him before. There's no shot he didn't know. He knows what he looks like. He's watched his Clips repeatedly. So if. If that's actually a thing he said, that would be so deranged. he said it, then said it was a joke. That's not a funny joke. So stupid. But, yeah. So Ethan said that he will consider not suing him if the women who called him misogynistic, take it back. So.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13579) **J**: But I do want to see, that's the pirate software stuff. I do want to see the, the pyrocynical video that apparently mentions me in it. So let's see what this is about.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13590) **G**: Going after quite a lot of YouTubers right now, and it's even reached the point where Hassan has basically tried to weigh in.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13596) **Aiko**: It's like having a, wait.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13598) **G**: There have been some updates on the new H3H3 lawsuit. If you remember, he's going after quite a lot of YouTubers right now, and it's even reached the point where Hassan has basically tried to weigh in.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13609) **Aiko**: It's like having a mentally ill stalker who has an unlimited amount of money and power.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13616) **G**: And also we have a new merch restock. We've got caps, tees, hoodies, all available in the link down in the description. Dude, look at that. print. Oh, my God. I would buy that. I would buy that so bad. Guys, you have no idea. Now, these lawsuits really have been the.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13631) **Aiko**: Is wrong with pyrocynical's hair. The is this. The is this. This is weird, like getting into Mrs. Brady territory. hey, Lisa. No, it's. If it was. If this was a wig, I shudder to think of what would be underneath that it would be hiding. Like, what would be underneath that is worse. What kind of hair styling would I do? I really can't. even think of it right now because frankly, pyrocynical grosses me out. Is that the guy who said we should have killed all the children of slave owners? Something? Oh, I forgot about that. But, yeah, listen, Peter. Listen.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13703) **C**: Listen.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13704) **Aiko**: Hey, gentle whale. Hey, Freddy. Please like the stream.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13710) **J**: This isn't excuse C, but I can see. I can see how you got confused.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13714) **G**: I would like to personally thank Ethan Klein because all of these crash outs and lawsuits being handed out, it has helped me keep the lights on and making videos talking about it. Now, there has been some more information coming mostly from Ethan's Instagram story. There's been another threat against a creator for infringing on Ethan's copyrighted material.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13732) **Aiko**: No, Pyro didn't say that. Shonda Black did.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13736) **G**: This happened last week, so in like online news standards, it basically happened five years ago. Ethan.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13742) **Aiko**: Listen. Okay. I am vulnerable. I'm a vulnerable adult in my still technically in my 30s, okay? I was groomed. I was groomed into my future single choker wearing stream. Okay? I can't help it. I was just sitting here. I was. I was financially dependent. There's this power imbalance with a chat, you know.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13777) **C**: So.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13779) **Aiko**: Yeah. basically, I'm not responsible for anything that happens.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13784) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13784) **Aiko**: Freshly, almost 40.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13786) **G**: I dropped a content.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13788) **Aiko**: Speaking of which, remember August 11th, my 40th birthday stream? We're gonna watch as much Twin Peaks as we possibly can. Can we choose your choker? Nope. Nope. that is too far. I'm gonna get one of the. The tattoo chokers that Kyla's always wearing.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13815) **G**: Luke on Hassan Piker, which is kind of like this. It's kind of like a Content cop, but instead of doing, like, skits or creative things, you just sat behind a computer. This is the part of the video where people are gonna say, oh, I missed the old H3. He sold out. Bring back H3. Ball rider play as the heroic hila Klein.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13831) **JSTLK**: As she mounts Ethan's voluptuous Hoopa and.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13835) **Aiko**: Controls his sweat to victory.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13838) **G**: But before Ethan released this content nuke on Hassan, he knew that Hassan's, you know, orbiters and stuff would end up reacting to it and watching it on stream. So what he did is- have you.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13849) **Aiko**: Figured out how you're gonna show the time stamp for the Twin Peaks watch along? Oh, I'm going to do it on kick. so we'll be able to watch it on kick. Just get a tattoo of a choker. Now it's all downhill from here. Listen, listen.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13874) **G**: Most Petty move imaginable. He copyright trademarks the video. So if you reacted to it, you were basically infringing on his copyrighted material. And obviously the entire point of that was to show that there's a lot of people that don't like Ethan and they'll just watch a video and. They'll do no reactions, or if they do, it's basically just to spy Ethan to take views away from him. I mean, Ethan even said in the video the entire point wasn't to go after anyone that was reacting to content because that would basically get him excommunicado from the entire YouTube community in a heartbeat. No, instead he basically went after a few smaller creators. This was Frogs, Denims, and Casey Tron. All of these people reacted to the Hasan content nuke. But the lawsuits do not end there because it seems Ethan is actually trying to rope someone else into this series of lawsuits. The next person is Sean De Black, who's a content creator that has around-.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13922) **J**: I love how we- oh, okay.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13923) **G**: 31,000 followers. So Sean, like most- Hey, we made.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13928) **Aiko**: It chat, we made it.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13930) **J**: My thumbnails made it. Why is he trying to like, it's a- slight. A slight. Oh, you mean a slur? Everybody dies. Hey, we still.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13951) **JSTLK**: We.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13951) **Aiko**: Oh, I forgot.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13952) **J**: We still have to do the tier list about how different people say my name. How racistsly people say my name. Add into the tier list.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13960) **Aiko**: We do.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13961) **J**: Y'all gotta keep track of this. Keep track of this. of who's saying my name and how they say it. That's so funny.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13971) **Aiko**: I mean, I could also. I'm looking at the chokers. I could get, like, a, like a little cross to represent her Christianity.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=13984) **G**: That has around 31, 000 followers. So, Sean, like most people, he does reaction content, gaming, and also video essays that are kind of more on the political side. He also, like, pretty much 90 of English-speaking people on this platform posts drama slap content. He actually had his break from making political content, I think, on like TikTok in the early 2020s, but he's now transitioned, bro.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14008) **J**: Pyro all up on my dick. Hell out.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14011) **Aiko**: We don't need a.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14011) **J**: We don't need a biography.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14016) **G**: And also.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14020) **C**: Races.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14021) **J**: Racistly, people say my of who's saying my name and how they say it. That's so funny.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14030) **G**: The black, who's a content creator.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14032) **Aiko**: Well, if it's gonna represent my sexuality, I should get a bisexual choker.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14043) **C**: That.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14044) **G**: Has around 31, 000 followers. So, Sean, like most people, he does reaction content, gaming, and also video essays that are kind of more on political side. He also, like, pretty much 90% of English-speaking people on this platform posts drama slop content. He actually had his break for making political content, I think, on like TikTok in the early 2020s, but he's now transitioned.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14066) **J**: Bro, pyro all up on my dick. Chill.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14070) **Aiko**: Okay, I need to stop looking. Hey, shindig. I, okay, hold on. I keep looking at chokers and Forgetting.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14080) **G**: When he's saying, okay. People on this platform posts drama, sl*ption, content, gaming. How they say it, it's so funny. DeBlack, who's a content creator that has around 31,000 followers. So Sean, like most people, he does reaction content, gaming, and also video essays that are kind of more on the political side. He also, like pretty much 90% of English-speaking people on this platform, posts drama, sl*ption content. He actually had his break from making political content, I think, on like, Tick Tock in the early 2020s, but he's now transitioned, bro.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14113) **J**: Pyro all up on my dick. Chill out.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14116) **Aiko**: We don't need a.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14117) **J**: We don't need a biography. We don't need a biography on me.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14122) **Aiko**: Chill. Okay.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14125) **J**: All right, all right. Relax.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14128) **Aiko**: Relax.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14130) **J**: No, I'm. I'm joking. I'm joking. I'm joking. because I didn't. I didn't. To be fair, he did his research.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14137) **Aiko**: I. I will give him credit. He did it.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14140) **J**: Do his research. Yes. And that's he. He did his research. He found out that I. I started.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14145) **C**: On Tick Tock doing political content in 2020.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14148) **Aiko**: That is correct.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14149) **J**: He's right. Did he call you drama sob? He says, I do drama sob, which I will say is fair. I get a little bit into the. The slop. I do Wade into the slop a little bit. I'll give him I have no beef with the video so far. I think I, I don't think it's inaccurate or unfair to me.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14168) **C**: Right.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14168) **J**: I think it's fair, fair characterization for.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14172) **G**: Making political content, I think, on, like, Tick Tock in the early 2020s. But he's now transitioned. Not, not the trans that you're thinking of, rent-free to making longer form video essays. Because, again, Tick Tock is just not sustainable for growth.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14187) **JSTLK**: It is.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14187) **G**: I mean, the same way that YouTube shorts are. And again, like some of the biggest YouTubers and some of the biggest tick tockers, they're just making short form content. You know, they got seven million followers and without ads and sponsors, they're probably making around seven dollars a month. Now, on Ethan Klein's Instagram story, he complained that, you know, he was saying a lot of purchase the choker stick because he was only targeting women in.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14211) **Aiko**: The lawsuit and then decided to add Just purchase a choker of secrets only for a meme. Oh, no. It's happening for one single stream that can be censored and not censored. Okay. This. Hey, this is what I was talking about before.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14236) **G**: And without ads and sponsors, they're probably making around $7 a month. Now, on Ethan Klein's Instagram story, he complained that, you know, He was getting a lot of claims that he was misogynistic because he was only targeting women in the lawsuit and then decided to add Sean to the list of people being sued for gender equality. What's crazy though as well is Sean basically had like a prophecy that these lawsuits would go through in the first place. Not the one on him obviously, but he actually predicted that Denim's would get sued four months before it actually happened to do that. And it'd be a shame if somebody was Wow.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14271) **J**: Oh, is he gonna claim he's gonna sue- I see implying he's gonna sue Denoms for violating his cut- oh, please. Sure, sure, sure, sure.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14280) **JSTLK**: Okay.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14281) **G**: And this floated in the air for a bit. Sean made a reaction video- I mean.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14287) **J**: This doesn't make me look bad at all. I'm gonna be real. This makes me seem, like, pretty good.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14294) **G**: Video, not much else came of it. That was until Ethan continued to post about the lawsuit on his Instagram story. Then Ethan put ahead a really bizarre offer that if the H3H3Snarks subreddit and also Taylor Lorenz and... Nope, I swear.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14309) **Aiko**: I will... After this, I will destroy it on stream. Listen, I'm not, it's gonna be under $10. K under ten dollars.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14327) **G**: Apologized for calling him a misogynist, he will consider dropping the lawsuit against Sean. Not that he will drop it, but he'll consider it. Now, unsurprisingly, the two reporters and the snow.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14336) **Aiko**: I mean, my, my schedule is all over the place, so.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14346) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14348) **Aiko**: Scally, listen. Auction it off after- no, that also seems like sex work.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14356) **G**: Reddit didn't actually take back their accusations against Ethan. He followed this up with another story post. Because Snark and the two disgraced journalists are unwilling to swallow their pride, it looks like the lawsuit against Sean will be moving forward. So in an act of unimaginable grace, I am prepared to make one final offer. If Hassan donates $25,000 to each of their GoFundMes, I will tear up the Sean the Black complaint. Now, it's between the lines, well, you don't have to read between the lines, it's really obvious Ethan is trying to indirectly hurt Hassan by basically targeting people that are, that would be considered by people that don't like Hassan as his orbiters. The thing is, Hassan has a huge following and a very rich family, so you can't really hurt him directly. So the best way to do it would be to go for, I guess, the underlings. Now, I've even seen some people on Twitter claim this to be like, Extortion, which does include threats of pressing legal charges to get money from someone. If Hassan wanted to sue Ethan, which he won't and he never will, which I'll get into in a bit, he might have a case against him. This did actually get a reaction out of Hassan, but unsurprisingly, I don't think he got the $25,000 out of him.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14421) **Aiko**: I thought this was all about copyright litigation. What do you mean? So he's just dangling- Litigation against people?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14431) **J**: I will focus on the rich family thing because, I mean, I found out he's rich himself, you know, so I'm not gonna. I think it's, it's, it's, so far it's, it's okay, it's fine, you know, because other people have hurt his feelings by Christians. I want to see what his, the analysis actually is.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14448) **Aiko**: Like, I'm a misogynist. How is this just legal extortion? This is like extortion through litigation.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14454) **G**: But this whole saga evolved once again through Ethan made another post. on his Instagram story saying that he was joking and the lawsuit against Sean will be moving forward. He says that if he thought he had a good enough case to win against Sean, that his lawyers would have pursued it from the beginning. Although apparently he was actually really close to making the cut. Ethan also attacked his comments about not knowing that Sean was black. You know, it's not like it's in his name or anything like that. He says this because when he announced the lawsuit against Sean, a lot of people just basically accused him of being racist That being for suing a black guy after getting accused of misogyny for, you know, suing three women. Now, I'll be honest, as a white person, I could definitely speak on this topic, but I don't really think what Ethan was doing there was racist. What he has done though, which is really stupid, he's basically admitted to not really knowing who Sean was.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14503) **Aiko**: He didn't like do a Google search of the guy.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14506) **C**: No.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14506) **Aiko**: Probably hasn't.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14508) **C**: Pyrocynical is stupid. Very stupid.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14511) **Aiko**: I'm not anti-sex work. I'm just anti-sex work for me because I like to give people things they didn't ask for. But, yeah, no, Ethan has covered Sean to black.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14531) **C**: So.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14532) **G**: Watched any of his content beforehand? There's been no background check. He's basically admitted, yeah, this guy. This guy saw my videos. They're gonna sue him now. And Ethan definitely has seen And this.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14540) **J**: Is this is what I said, chat. Like, I literally said this a few days ago. You know what I mean? Like, I said specifically that this that line will not play well in the normie spaces. Like, normies are going to see that and they're going to be like, what do you mean you don't know who this guy is? You're trying to sue him, you know? They're like, it's kind of weird to be like, I want to sue this person, but also I have no idea who he is. Yeah, even if he's joking, which he, you know, he's joking. He's obviously joking, right? But like, for like normies who are just like tuning in and they just see that part and they're just like, what do you mean you don't know who this guy is? You're suing him. And so it doesn't look good.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14589) **JSTLK**: It doesn't look good.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14590) **J**: It does not look good to him. like, from, like, the normie perspective, it makes. And it also kind of throws into question all of his other lawsuits and stuff. If he was just like, oh, I know this guy is. I'm gonna sue him anyway. He was like, ah, wait, I'm just joking. I'm not suing him, actually.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14607) **C**: I was. I was joking about suing him.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14610) **J**: Like, yeah, it just doesn't make sense.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14612) **G**: Dawn before, because he was actually in the, you know, the. The wake-up segment of idubbbz content cop. You know that intro where they had, like, all the Hassan people jumping around.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14622) **J**: Doing funny dances and stuff.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14624) **G**: That's me.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14623) **Aiko**: And we know that he saw that.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14624) **G**: Because he did actually live stream his night into that. So, hey, Deca, the lawsuit is out there, and it doesn't look like it's going away. The internet in general has had very mixed opinions about this. So, first of all, Frogen, this was one of the first people to be announced in the lawsuit.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14639) **Aiko**: Honestly, surprisingly, she's kept a bit of. You know what I think? I think we don't have to tell anyone about the Joker stream either. It can just be our little secret.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14651) **G**: Low profile, probably for the best as well, considering that this is an ongoing legal case. She's only put out one tweet about the situation where she promoted her GoFundMe, and out of $200,000 needed to be raised, she's raised $33,000, which is still an insane amount, especially for a rising star streamer. But it's not really near the goal. Rising star streamer. If you want to do the math, he's fucking hideous.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14677) **Aiko**: Pyrocynical is a hideous person. I will just say that when he was laughing.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14684) **G**: Oh, streamer. If you want to do that.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14688) **Aiko**: What the is that? That was like a weird crackling.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14695) **G**: 15 of the goal in the horse race of Gotham.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14699) **Aiko**: Yes, you will be able to. to censor and uncensor the choker. Okay.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14705) **J**: You saw the, it's, it, you saw the little graphic.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14708) **G**: Frogen, she takes the bronze medal, she's in last place. The thing is as well, everyone else's legal funds are about half of that. I'm not really sure why Frogen's a double. Maybe she just wants to get a really, really good lawyer. Now, the biggest response Frogen actually gave was on her podcast, A-Rabs, titled Ethan Klein is Suing Me.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14730) **Aiko**: However, the episode itself, it was kind of bait because all she really said is that she can't talk about and.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14730) **G**: Her lawyers have told her to not talk about it.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14731) **Aiko**: So I found out I was being sued by Ethan Klein at the same time everybody else found out. Obviously, I really can't talk about it much. My lawyer team said to not talk about it and I can practice self-control.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14746) **Mrow**: There you go.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14746) **G**: Also, Denims, this was another woman to be sued by Ethan. Now she's been radio silent on pretty much all of this like Frogen, only really putting out a tweet again to promote a GoFundMe, which which at the time of recording is $37,000, which is 38% of completion to the goal. Now one mistake these ladies made with the GoFundMe is they kept the comments on because the comments are mostly from what I can see Ethan Klein fans semi-sarcastically donating to the GoFundMe to basically mock them because they think the case again...
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14776) **J**: I mean I don't think that was a mistake, you know? Like if somebody's gonna pay money to like try to dunk on you then You let them. You know what I mean? Like, I don't see that as a mistake personally. Against them will be such a slam dunk.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14790) **G**: I mean, I'm not really well versed on how GoFilmMe works. I'm guessing 95% is gonna go to the lawyers. I don't want to be mean, they'll.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14798) **J**: Troll anyway, so I might as well make money.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14801) **Aiko**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14801) **G**: Not to Ethan if they lose. Denim's has been retweeting a bunch of stuff about the situation, but that's like kind of a tactful decision because again, like, you know, if you retweet stuff, that's someone else, that's not me. as opposed to putting your own words out there. However, for some reason, I do have to note this, she quote tweeted a video of a legal YouTuber talking about how she's absolutely screwed with a picture of Chuck McGill from Better Call Saul in the background. And Casey Tron, she did the obligatory tweet promoting her GoFundMe like all the others have. She outlines all the hate and harassment.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14836) **J**: She'S gotten over the years for her streaming career, as well as Ethan Klein's lawsuit.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14841) **Mrow**: In the same tweet as well, she.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14843) **J**: Also talks about the why does he not want to remit tweets. I thought my tweets were good. No, let we call that chat. That's right. Racism.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14848) **G**: Of having possible generational debt and being by herself during this ordeal. Now, apart from the tweets, she has gone with the 300 IQ Strat of deleting all the VODs, talking about Ethan and pretending they never existed, which I'm very sure will be an amazing defense in court, your honor. It didn't happen all charges are now dropped. She also went on a stream.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14868) **J**: I don't think that that's the defense. You know what I mean? I don't think it's supposed to be like hiding it from the court or whatever. I assume that it's supposed to like stop like the like H3 audience from chokers are hideous and like clipping her and stuff of that nature. to be these DMV minors to see your tweets. Is that a thing? You see the double XL Cipher trailer? No, I did not. I will be watching it when it comes out, though. Trust and believe.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14903) **G**: And despite wanting to keep her mouth.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14905) **J**: Shut and delete, she always loses her Voids. It isn't new because of Ethan. Okay.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14910) **G**: The VODs and the evidence she said, and I quote, a no good mother and his ugly ass wife. There was also a clip going around of someone going in to check up on her after she announced that she was being sued. She was dancing to K-Pop so I guess at least she's taking it in stride.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14926) **Sunday**: Dude, what is this? By sober reaction to Ethan Klein suing me. This is real.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14931) **G**: Lead to Ethan Klein about 80% and.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14933) **Aiko**: Although not really relevant, Papa Gu is.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14935) **J**: Such a fucking loser.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14937) **Sunday**: Excuse me.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14938) **Aiko**: Papa Gu.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14939) **J**: Loser. Little slip of the tongue there.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14941) **G**: There is some good news about Casey Tron. She actually got engaged to her partner on stream whilst outside a subway in Walmart. Now I've talked about the three people being sued, what about the bigger creators? The people that are involved in a larger scale, like for example, Hassan and iDubbbz. Well obviously everyone wanted to hear from Hassan because all of this drama is basically revolved around him. Even though he's not involved in the lawsuit directly, his presence is palpable around this. This obviously all stemmed originally from that.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=14970) **Aiko**: Incredibly long running between Ethan and. Oh, my God. I just saw. Hold on. Hold on. I need to. you need to show this. It's deranged. Okay, hold on. I. I looked up. I looked up pentagram choker. Okay. And this is what came up. Nope. Absolutely not. Nope. There's not enough money in the world for this. Nope.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15071) **G**: That'S why all these kind of like orbiters and stuff they got caught in the crossfire.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15075) **Aiko**: So has that escalated quickly?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15085) **J**: Sorry, that's the opposite of being true. It started with Frogen technically.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15093) **C**: So yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15096) **G**: Ethan basically clapped back saying that washed up old YouTubers will do anything instead of taking some time off and going therapy. This was while quote tweeting a Dexerto article talking about Ethan's lawsuit. He also did discuss the lawsuit a little bit on stream. He basically said that Ethan is a mentally ill stalker that has infinite resources and called the legal system broken for letting stuff like this allowed.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15120) **Aiko**: Call it for what it is, he's abusing the legal system the way stalkers do. No, that's precisely what he's doing. But in this circumstance, because the legal system is fundamentally broken, if you have a lot of money, you can do this kind of thing.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15131) **Mrow**: When you're depraved and you're manic and.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15134) **Aiko**: You'Re an insane person and you don't care about like wasting unlimited funds, especially considering that he does technically have virtually unlimited funds. What if you put it on a dog or cat? Oh no. You can be a vexatious litigant. Oh no. And having a mentally ill stalker who has an unlimited amount of money and power. I mean, it really doesn't matter what.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15159) **G**: Side you're on in this situation, but one thing I can agree with Hassan on is the legal system is stupid because it does favor people that have more money than you. This is a tale as old as time. You go against a corporation, usually they'll make it so you can only sue them as an individual person, not a, you know, a group lawsuit. So that usually then ends up you being buried in paperwork or buried in lawyers fees. They try to drag it out as much as possible. And, you know, if these girls want to get lawyers to defend themselves, they'll need like tens, if not hundreds of thousands of dollars anyway. Now, I'm not saying that these streamers are poor or anything. As we all know, streamers make a lot of money. You get like one whale in the chat. One stream can cover you for a month easily. But that's more my criticism of the legal system in general, where, you know, a rich person can take person with less money to court and they basically already have the upper hand. He also on stream called Ethan a putulent child that just wants attention.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15208) **Aiko**: I go through this back and forth where I'm like, petulant. I don't cover this at all, but also because I know that's what he wants. Ultimately, he wants attention. He's like a petulant child, a pathetic.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15219) **G**: Cry bully, a permanent victim.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15222) **Aiko**: Right?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15222) **G**: So, yeah, it doesn't really seem like their relationship will get fixed anytime soon.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15226) **Aiko**: And last but definitely not least, okay, what about.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15229) **G**: No, it didn't say anything. Yeah, are you surprised? I mean, look how close the video is to ending. I mean, he made the content cut. Two of the three people featured in that are now being sued.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15239) **Aiko**: I'm looking for something that's like, I'm looking for a choker that's, like, ostentatious.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15244) **C**: But.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15248) **Aiko**: Not, like, super sexual. You know what I mean?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15255) **G**: And all he's really done at the minute is retweet someone criticizing Ethan. Ethan Klein is literally using the Donald Trump strategy of trying to bleed your opponents dry of everything they have to silence them. This is so insane. I mean, to be fair, he's probably got, like, a lot going on on his plate at the minute, so adding this to the list probably.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15275) **J**: He read everybody's tweets but mine.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15278) **Aiko**: She probably thought you were stupid. Okay, probably not.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15282) **J**: Okay, we know it. We know it. Probably you are pyrogenical.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15287) **Aiko**: Write better tweets.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15288) **J**: Darn it.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15290) **G**: It just makes things worse. Overall, I'm not really sure how this lawsuit is going to end. There was a YouTube video made by someone much smarter than me, legal mindset, and he actually did a deep dive on the Denim's lawsuit, but for what he's saying, it doesn't look very good.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15309) **J**: The guy is a right winger.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15312) **Aiko**: He's so much worse than me.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15314) **J**: He was just as bad. That's true. Well, to be fair, he covered my.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15317) **Aiko**: Section of his freak.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15323) **J**: You know, that guy isn't even a lawyer. Well, he's not a lawyer. No, he has to be a lawyer.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15328) **C**: What?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15328) **J**: Oh, right. And how we got here in the first place. Yeah, Ethan's mad at Pyrocenical for that take.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15334) **Aiko**: His tweets weren't fat enough. Oh, no.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15339) **J**: He posted this. In between yelling out about Terry Lorenzo and bro tips. The fact I need to explain to half the internet that I was kidding when I said I didn't know Chyna Black was black is honestly disturbing. And second of all, my dude fire your barber unless you ask like Hillary Clinton. Like, Ethan got mad-- got mad at this coverage. It wasn't even like unfavorable to him. it wasn't even unfavorable to him.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15371) **Aiko**: I'm trying to not send much because it was like.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15374) **J**: It was like a funny, a funny thing to say in its instance, you know? But, yeah, sure. Attack the. The Centrist dramatubers, too. I'm sure they'll appreciate that. It'll cover you favorably in the future. I'm sure that they will cover you favorably in the future if you attack them at every. instances when they don't, like, fall in line with whatever you say.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15400) **C**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15400) **J**: All right, sure. I think that's it, right?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15405) **Mrow**: Yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15407) **C**: So, yeah.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15408) **J**: So either had a problem with that video, and so that's pretty funny. Oh, you're on vacation, by the way, barely a paid coverage. I mean, there were some times where I was just like, you know, he would laugh at something, I'd be like, that's. it's kind of gross, but all in all, like, for, like, drama tuber coverage, not. Not terrible.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15433) **C**: You know?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15434) **J**: He didn't, like, side with, you know, Frog and Denims and Casey Tron or whatever, but, like, he did acknowledge that the legal system does try to bury smaller creators and lead smaller people.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15444) **Aiko**: Okay, what about people in legal fees.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15446) **J**: When rich people have all the money and power? So, like, not. not, not, not crazy bad. But, yeah, he didn't call me a drama slapper, though. I was like, yo, chill. He got me a drama. He didn't show my phone.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15463) **Aiko**: Okay, what about they're pretty good.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15465) **G**: This was my favorite gaming and also video essays.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15469) **J**: Also, he said it. I do gaming, which respect.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15472) **G**: So, Sean, like most people, he does reaction content, gaming, and also video essays that are kind of more on the political side. He also, like, pretty 90% of English speaking people on this platform. Okay, what about drama slop content?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15485) **Aiko**: Yeah. What about this? It's a little gay. I would like something that's a little gay. Make it gay. Okay, we're gonna have to figure. We're gonna have to figure it out. I'll purchase it during the music stream tonight. I'm not seeing anything that, like, particularly strikes me, you know?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15538) **J**: I do. I do. I don't always do drama.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15542) **Aiko**: Listen, gentle whale.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15544) **J**: Trauma slob. Okay, we need to. Maybe this is a lesson. Maybe this. We need to learn to not wade into drama slob as quickly or as easily. anyway, let's get to the Miz Cliff clip.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15562) **Aiko**: Jesus. Wow. I guess anyone can be a streamer. All right. Hey, Sparkle. We'll think we'll figure it out. We'll, like, come so you can think about what kind of. Chokers. All right. All right. You can think about it. We'll figure it out tonight. Okay? Remember to show up. I just literally. I just can't, like, think of anything, really. Follow the kick. It's gonna be epic, epic music stream tonight. But also first, do you not know anyone you can borrow one from?
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15632) **C**: No.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15636) **Aiko**: Nope. there is the YouTube VOD. Catch up with the stream there. And please remember to like it. That would be so cool. We have 83 viewers, only 40 likes. When I close my eyes, I see the pentagram choker. okay, let's see who is around now. We can raid into like Kel Doge is live and.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15693) **C**: Live.
+- [link](youtube.com/watch?v=KSv8PvMMGyA&t=15700) **Aiko**: And Zach is live. okay, I'm going to try for 8 20. I'm gonna try for like around maybe 2 A.M. eastern time all the things. Never forget that I Fucked your mom and it was so good she doesn't love you anymore because the hole in her heart is now full of my dick. Devil, get out in Jesus' name, get out! Jesus' name, get out devil, I compel you to get out now! Bjork, pagan poetry. Ooooh, psych honors, that's the best. I had a wonderful time.

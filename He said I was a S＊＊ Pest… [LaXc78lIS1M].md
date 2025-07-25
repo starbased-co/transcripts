@@ -1,0 +1,472 @@
+address- [link](youtube.com/watch?v=LaXc78lIS1M&t=0) **Mrow**: So you admitted to having sex with a 16 year old or trying to cop a feel.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=4) **Spinal**: That was a true. You believe that? You are an idiot. You're an idiot and a moron, dude.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=9) **Aiden**: That was a joke.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=10) **Spinal**: Yeah, I was attracted to her. But I've never shown an attraction to any woman under the age of like 18. You've shown an attraction to someone who's a minor.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=19) **Aiden**: By default, I would say that makes you more likely to be a pedophile.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=24) **Spinal**: Wait, spinal, do you think an 18.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=26) **Aiden**: Year old who's attracted to a 17.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=28) **Spinal**: Year old is more likely to be a pedophile?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=25) **Aiden**: No. But a 17 year old's a minor.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=29) **Spinal**: Yeah, but it's like a one year difference. Uh, I just think you're a weird sex pest freak and I don't really like you. So, I guess that's gonna...
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=37) **Mrow**: I'm a weird sex pest freak in private with consenting adults. Right?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=44) **Spinal**: Sure.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=45) **Mrow**: And then Starbazed is a weird sex pest freak who will go into women's DMs and unprompted, without asking, show them his penis.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=62) **Aiden**: Spinal, what's up man?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=64) **Spinal**: Hello? Can you hear me? Yeah.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=67) **Aiden**: What's the profile picture?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=70) **Spinal**: Huh? Oh, the profile picture? Um, she's eating ikring.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=74) **Aiden**: How old is she?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=77) **Spinal**: Uh, well it's the girl from like you and Nikki so nobody really knows. There's no like real age.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=82) **Aiden**: If let's say you had to take a gas.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=85) **Spinal**: Me?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=86) **Aiden**: Yeah.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=89) **Spinal**: Um, probably like, I don't know. I wouldn't be able to take a guess because it literally just like depends on who's drawing her.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=96) **Aiden**: Got it, got it. Um, so I guess, what is your, where do you stand when it comes to the Starbase ship?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=106) **Spinal**: Um, I mean, I'm, I'm being neutral on it. I just think it's really crazy how everybody's like, oh, this guy's a sex pest. This guy's a sex pest. But you guys are all like fine with one sex pest walking around. You guys are like fine with one pedophile sex pest. Wait, how is- Pedophile is not exactly.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=127) **Aiden**: Like the word I already uses, which someone else is calling, but like he is definitely a sex pest.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=131) **Spinal**: Okay, okay, just to be clear, so we can sell, you did just call him a pedophile in chat, so you.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=138) **Aiden**: Don'T think he's a pedophile.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=140) **Spinal**: Me? Yes. Oh, no, I said if anybody's more.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=143) **Aiden**: Of a pedophile, it's probably him.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=146) **Spinal**: You said, you said Starbase wasn't a- no. Do you think Starbase was a pedophile? And I said if anybody's more of a pedophile, Do you think morale is.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=143) **Aiden**: A pedophile, yes or no?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=145) **Spinal**: Do I think it, no. But I think if anybody was more likely to be one, it would be, if I had to choose between who's more likely to be a pedophile, between Starbase and morale, I would pick morale. Why? Because morale has a habit of talking to people who are actually under the age of consent and or just recently turned legal or whatever. He's, he's Starbase, as far as I'm aware, is a sex pest. Wait, but it is with a woman.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=170) **Aiden**: Who'S like, what, 20 something? Just to be clear, do you think.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=174) **Spinal**: 21 and 18 is like an abnormal range?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=174) **Aiden**: Do you think 21?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=175) **Spinal**: I don't think it's abnormal, but I think if you wait, I think. I don't think it's abnormal.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=181) **Aiden**: But if the person just recently turned.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=183) **Spinal**: 18, not to long ago, I think it's incredibly weird. Yes. Wait, why is it weird?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=189) **Aiden**: Because it comes off as weird. It makes it seem like you, like, waited for that. It's kind of weird.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=195) **Spinal**: Wouldn't it be like a, like a three-year age Gap when also shouldn't you wait? Why would you. Okay. What do you mean, shouldn't you wait? I don't.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=205) **Aiden**: For starters. Okay.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=200) **Spinal**: Elaborate this to me. Explain it to me. Because now I'm confused.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=205) **Aiden**: You're confused. Why wouldn't you wait? Sure. So 17 is post pubescent and you're going through a transitional phase where you're about to enter early adulthood. 21, you're still in early adulthood. So you're in comparable periods of life. So it would not be abnormal for a 21 year old to be attracted to a 17 year old. The age of consent exists so that people to reduce harm because if we don't have a solid line, people will just keep trying to make exceptions leading to potentially more harm of kids. So within this normal range of attraction, it's good to wait until they are legal so you don't violate the standard.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=240) **Spinal**: But the mere attraction- you- don't think it's like weird to wait for them.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=244) **Aiden**: To hit legal age? No, if you're attracted to them when they're 17 at 21 and you wait.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=249) **Spinal**: Until they hit 18, you're being responsible. I think if you're attracted to them. Okay, okay, I'll word it like this. If you're attracted to them at 17, what's stopping you from going lower? and lower. You don't. Because I'll be the first to say this, and I'm gonna say this. You don't.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=262) **Aiden**: You don't change that much from, like, 15, 16, 17. What's stopping that from going lower?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=267) **Spinal**: 15 and 17 year olds are actually very different. I don't know if you. No, no, no, no, no. Don't physically change, is what I'm saying.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=275) **Aiden**: You don't change. You don't go through, like, some massive change.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=279) **Spinal**: So what's stopping that from going lower? Okay. You don't think people should physically change between. I mean, I know. I know. I don't think there's no, like, big physical difference.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=289) **Aiden**: No. From the ages of 15 to 17, I didn't have any real big physical changes.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=287) **Spinal**: No, I've been the exact same since, like, 15.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=290) **Aiden**: Okay, maybe people go through puberty at different stages. Like, we're talking about the difference in a freshman and a senior. You don't. You can't tell the difference. You can't go to high school and, like, look and tell and estimate.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=304) **Mrow**: Is.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=304) **Aiden**: Is this person a freshman or a senior? They just, like, all look the same to you.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=308) **Spinal**: When I was in freshman year, there was a senior who was, like, 6'4 out of Full beard and mustache and looked like he was like a scene, a freshman. He looked like he was a senior.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=318) **Aiden**: This is the point I made. There are exceptions.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=320) **Spinal**: There are exceptions.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=321) **Aiden**: Especially now.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=323) **Spinal**: Especially because the recent generation. Decent chunk of my classmates. I've had multiple people have this happen. Decent chunk of my classmates around the time all had people assume they were older than they actually were. I had spinal fucking girls asking me to buy them fucking cigarettes when I was like 15-16. So yes, it is possible. And yes, I think it's more common.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=343) **Aiden**: Than people like to make it out to be. It is, but exceptions don't violate the general rule.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=345) **Spinal**: Exceptions, it's not an exception anymore at this point.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=348) **Aiden**: You think generally you can't distinguish seniors from freshmen?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=352) **Spinal**: I think generally now there's less of a difference in gaps, in terms of physical, I guess, what's it called? Difference. 'Cause I feel like you could easily distinguish them.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=363) **Aiden**: Okay, okay, so you don't think the average person is gonna look different between when they're a freshman in high school and a senior in high school physically?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=372) **D**: They're like a beard, that's about all I'd say.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=375) **Spinal**: Yeah, probably just a beard or something for like a guy, but other than that, I wouldn't say like there's that much of a difference.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=381) **Aiden**: I don't know if you're home-schooled or just didn't have like a lot of contact with other kids. Um, but yeah, like there's obviously gonna be like a substant-- there's gonna be like a decently substantial physical difference. And even then, right? Even then, it's not just appearance based. Right. You could reason with yourself at 21. The 17 year old is old enough to consent to your advances. Right. Because you're within. Why? Because you're within a three year. A three-year range. Right. That's much harder to do with a 15 year old as they're much more. They come off as much more mentally immature. Right. They're at a much different stage of life than you.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=415) **Spinal**: You don't think the 17 year olds at a much different stage of life?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=418) **Aiden**: They're in a pretty different stage, but not anything that would, like, make it deviate outside like the normal range of attraction for a 21 year old.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=426) **Spinal**: Yeah, but it's a different stage of life.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=431) **Aiden**: I mean, yeah, there's a different stage of life between 20 and 21 year olds. 21 year olds can now drink.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=436) **Spinal**: No, there isn't.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=437) **Aiden**: When you're at 21, you can now do a bunch of things that you couldn't do when you were 20. You can now go to bars, you can now go, you can now go to bars, you can now go clubbing, you can, you can now go.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=448) **Spinal**: Aiden, be realistic. Do you genuinely think people are waiting till they hate 21 to do that shit?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=455) **Aiden**: Not, no, okay. For parties and shit, no, right? And I know if you're in college, you use a fake to get into bars and stuff, but obviously when you legally, when you legally get your ID and shit, you're obviously gonna be, you're obviously not gonna, because correct me if I'm wrong, for fakes and shit, you don't go to high-end bars, right? You don't go to high-end bars where they're actually scanning your ID. you go to like shitty fucking hole in the wall, yeehaw ass, fucking pieces of shit. When you're legal, right, you could go to high end bars, you can- yeah.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=488) **Spinal**: But the point I'm sort of making is that it doesn't really matter whether it's like high end or low end. The point is stillish, you don't technically have that much of a difference. From 20 to 21, you could probably.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=498) **Aiden**: Find some place that would be- you-'re obviously in a different stage of life, right?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=505) **Spinal**: Why? How are you in a white coat?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=507) **Aiden**: I just explained it. Do you think, like, last year, has your life changed at all between last year and this year? No. Okay, mine has.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=514) **Spinal**: The only thing that I could say is, like, half a change is, like, a job, I guess. That's like, no. Mine has a lot. I don't drink, I don't smoke.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=523) **Aiden**: Mine's changed a lot. Mine's changed a lot.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=526) **Spinal**: Yours has changed a lot.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=527) **Aiden**: How so? Because this is an age where, like, a year is actually gonna be, like, a pretty substantial change to your life when you're, like, in your early 20s, late teens. like, for example, you know, I started taking new classes, finding new interests. I started streaming again, you know, getting more comfortable in front of a live camera, you know, figuring out exactly, like, solidifying, like, the path that I want to take. I switched my major. So, yeah, this year is like a bit.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=552) **Spinal**: And these are, like, massive changes.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=554) **Aiden**: Yeah, these are pretty massive changes. You've just. I've literally just changed my entire path.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=557) **Spinal**: And how old. How old are you?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=559) **Aiden**: Right now I'm 20. okay then so.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=562) **Spinal**: If a 17 year old were to walk up to you or whatever you don't you think they would be comparable to your stage of life wait did.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=568) **Aiden**: You drop out of high school by.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=570) **Spinal**: The way no I graduated I had like a 3.6 3.8 GPA or whatever.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=577) **Aiden**: You drop out of college I never.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=579) **Spinal**: Went to college oh fair enough some.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=582) **Aiden**: People are saying you're a dropout.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=585) **Spinal**: No, I'm not. Anyway, wait, wait, wait, hold on.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=589) **Aiden**: When you say you graduated, do you get your GED?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=591) **Spinal**: No, I got a high school diploma.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=593) **Aiden**: Okay, got it.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=595) **Spinal**: Well, okay. I don't have the physical thing, but I graduated. I didn't show up the last day to pick up the diploma.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=601) **Aiden**: Okay. Okay. Got it, dude. I. Okay, so.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=609) **Spinal**: Yeah, I was gonna say, because I don't remember where I was going with this. It's like sidetracked.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=613) **Aiden**: Yeah, we got a bit derailed, right? But. what do you. Okay, so with morale being a pedophile, right? What.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=620) **D**: What is he.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=620) **Aiden**: What has he done that's, like, even parallel to that? Right. We've ex. We've established you, I think, even agreed with me earlier. Yeah.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=628) **Spinal**: Well, yeah, I agree. It's, like, not.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=631) **D**: I once.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=632) **Spinal**: Okay. I would say it's weird, but I would not say it's, like, pedophilic. But the reason why I'm saying he's more of is because by knowing people's standards, especially nowadays, a 20 year old with, like, a 17 year old, most.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=645) **Aiden**: People would probably find that, like, weird and somewhat pedophilic. I actually, when this was going down, I actually consulted with Reddit to see and Cora to see what they thought about it. And it seemed like everyone was on board. The 217 team is, like, not a big deal. I don't know.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=656) **Spinal**: Maybe we could.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=657) **Aiden**: Maybe we could go. I don't know if they've done polling on this, but I actually don't think many people think that's, like, a huge deal.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=664) **Spinal**: Okay. And for some reason, I'm supposed to care about, like, the other guy. It's within.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=669) **Aiden**: It's within a normal range of Attraction. It's like a. a three year or less difference, there's like, it's completely normal range of attraction. The only problem with it is, right, by pursuing it, you'd be going against the, you would be going against the, the hard line that we draw to minimize harm through people constantly trying to make exceptions or pushing the line, which I think is reckless and you shouldn't do. But it's not pedophilia or indicative of any form of abnormal attraction, which is what pedophilia is, right? In regards to, what's his fucking face?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=703) **Spinal**: Starbase.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=703) **Aiden**: Do you think he did anything wrong? I think he was retarded for messaging that.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=708) **Spinal**: What's it called? What is her fucking name? Hater or whatever. I think it was retarded for messaging her. But I think like the people were like, oh, there's Peter Philick, that's Peter Philick, you're fucking retarded. There was like no sign of like.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=723) **Aiden**: Grimmer fucking Peter Philick and you're just being retarded for the sake of it. So he's provided about eight different reasons for why he actually messaged her. Why would somebody keep, Consistently giving different reasons for why they message someone.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=731) **Spinal**: What are the eight different reasons he's given? Because I've only heard like what, one or two and both of them are like pretty similar reasons.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=738) **Aiden**: Sure, it's probably more like three or four. I was being a little hyperbolic. But reason number one would be to just in case creeps or weirdos like QQ went and bothered this person. Oh, I was actually reaching out to them to stop them from being bothered by Ali Khan. Okay, no, I was actually messaging them because apparently they were still in Marcus's server and at risk. okay, no, I was actually messaging them because I thought that morale was gonna DM them, so I had to get ahead of it or some. Right. So it's like four different reasons. Sorry.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=767) **Spinal**: Okay. For starters, only one of those is, like, an actual reason. What he said was about. This is about the morale thing. What he said was he was hoping morale would DM her or something along those lines.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=779) **Mrow**: That's weird.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=780) **Spinal**: She would let him handle discreetly. Discreetly. Is it weird? Yeah, but, like, that's completely. That's not him.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=785) **Aiden**: But, but wait. Besides that, right? He said that, but that was not his original reasoning for messaging her.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=791) **Spinal**: Yeah, his original reason, at least what he's told me, is that his original reason for her was because she was.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=796) **Aiden**: Still in Marcus's server. Yeah, but then in those DMs, and to other people, he said he wanted to stop people like Oli Khan or QQ from bothering her.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=804) **Spinal**: So we have three different reasons. I know. Why would he use QQ as an example of someone who, like, I guess he doesn't like her or is bothering her? I don't even know where the Oli.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=813) **Aiden**: Khan thing is coming from. Okay, so we'll merge Oli Khan and QQ into one. Okay, so we'll merge Oli Khan and QQ into one. into one reasoning.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=819) **D**: Right.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=819) **Aiden**: To be charitable. But then that leaves us with three reasons. Why would somebody switch their reason three times?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=827) **Spinal**: He didn't switch it three times.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=829) **Aiden**: Okay. Do you, do you agree that dming someone to protect them from QQ and Ali Khan and messaging someone to see if morale was gonna message them so you could get ahead of it. Right.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=841) **D**: Or.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=841) **Aiden**: And messaging them because you were worried because they were. they were still. See, this is what I mean.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=846) **Spinal**: I'm gonna. No, I'm gonna break it down for you. The QQ and Ali Khan point, he's not saying he's like, the point he's making in that scenario is that he is trying to prevent. What's it called? Like, people from, like, annoying her, I guess, sort of. Or, like, dragging her into unnecessary job. Because he's mentioned on multiple occasions, he doesn't like how she's, like, being put in, like, the center of Limelight or whatever in this big drama or whatever. That's what the point of those two is. Okay, so the point of them around thing is that.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=874) **D**: That'S.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=875) **Spinal**: That's not a reason.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=876) **Aiden**: How's that not a reason?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=878) **Spinal**: Yeah, it's one.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=879) **D**: No.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=879) **Spinal**: Well, no, it's one reason, but it's all wrapped up in the same one reason, which is he. He's, I guess, worried or whatever it is or whatever. And he thought he was gonna, like, help or whatever. It's all buried in that one reason.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=892) **Aiden**: It's all one connected reason or whatever. Wait. Okay. Just because the different reasons he gave exists within the same category of reasoning.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=900) **Spinal**: It doesn't mean those reasons were not different.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=902) **Aiden**: Right.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=902) **Spinal**: At first, how are they different, though? They're all the same, like. They all have the same premise on them to prevent annoying people and weirdos from bothering her and dragging her into the limelight or whatever.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=911) **Aiden**: Okay, if I was to say, okay, what would be a good example of this? I actually sprayed your house with a fire hose because I thought your kitchen was going to set on fire. And then later I told you, I actually sprayed your house with a fire hose because I thought the basement was going to set on fire. Yeah, both reasons were to stop something from setting on fire, but you've now just, your initial motivation is now just completely changed.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=936) **Spinal**: Okay, but the point is still the same. The only difference is, the point is.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=940) **Aiden**: The same, but that inconsistency is indicative of dishonesty.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=943) **Spinal**: Inconsistency isn't even that big of an inconsistency. All you can really say is, oh, I thought you said it was a kitchen, because realistically it could have been either one.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=953) **Aiden**: Oh, why would you switch it? Why would you switch it?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=955) **D**: I don't know.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=956) **Spinal**: Maybe you're retarded and you don't remember what you said before. Maybe you're retarded and you thought it was a basement.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=963) **Aiden**: I don't know why you would switch it. Okay, it would be obviously because you're concealing something, right?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=969) **Spinal**: What are you concealing?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=970) **Aiden**: What does he have to conceal? I don't know. That's the question. That's the question. Why would a guy who's like been caught up in previous allegations and got ran out of bread tube risk messaging a 16 year old privately in this context right after a drama where we've all spoken about why it's bad to have the 16 year old around in servers. Why would he give two conflicting reasons for why he actually reached out and messaged them? And why would he only show the first part of his DMs to Parry and omit the secondary parts where he's trying to be all friendly with her and also omit that he followed her on Twitter and was like- and actually was like retweeting some like inappropriate shit from her.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1008) **Spinal**: Okay. First point. Uh, what did you- repeat him one point by pointing it, because I want to address them like point by point and repeat. like, what you just went down? Sure. Because I remember the Twitter part and I remember the Perry DM part, but.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1021) **Aiden**: I can't remember what you said before that. Sure. Why would he, somebody who was run out of a community for previous allegations and what you would, so you would assume he would be more hyper Vigilant of this kind of stuff. Why would he risk messaging a 16 year old and maintaining and establishing, establishing a conversation that would pave the way for regular communication? Right. What I mean by that is it wasn't just a DM like, hey, I didn't know if I should reach out to you, but just to let you know, please avoid these people. They don't have good intentions. And if you get in trouble with them, go to your parents or the police, but please be careful and then leave it at that. But he opened it so, hey, come to me discreetly, like putting himself as in private as the figure of authority that the trust that the 16-year-old can go to with their issues with other people. Why would he ever risk that? Especially right after this drama just happened with Marcus.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1072) **Spinal**: He risked it because as he, he risked it because he was worried. He, he said that on multiple occasions. He doesn't, he, in his head, he did not see anything wrong with it. And I guess he sort of did not realize how it's harder it looks for him to put himself in the.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1086) **Aiden**: Position of, I guess, so I, I.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1087) **Spinal**: Watching over or whatever. But the point is, he was, like, worried, and that's his reason for doing it.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1093) **Aiden**: If he did not like, if he.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1094) **Spinal**: Didn'T see, he did not like how.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1096) **Aiden**: They'Re like, what if, if he didn't see the problem or if he didn't see, like, reasonable concern from doing something like this to his image. Why would he take the time to preemptively DM Parry the first part of their messages to be like, Hey, I'm reaching out to her to keep her.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1110) **Spinal**: Safe or so that way if it ever came out, whatever people can't act like he like groomed or whatever.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1116) **Aiden**: It's like, oh, look. Yeah. So because he's because he knew he knew that someone could misinterpret or look at what he's doing badly. So that establishes awareness over the potential view that others could have over this. Now, when he sends that to Parry, Why does he omit the part of the DMs where he's like being all friendly to her and shit? Like outside of the context of like her outside of the context of like.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1138) **Spinal**: Her getting in trouble.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1140) **Aiden**: Yeah.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1140) **Spinal**: The part he thought was the most important.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1141) **Aiden**: That's the only thing I can say. Yeah, but that part shows that he's only interested in talking to them in the context of if adults are bothering them. But the DMs that he omitted show him attempting to either establish or entertain.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1154) **D**: Some sort of friendship.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1157) **Spinal**: I don't know. Well, yeah, you're saying you're saying what? That that's what those other ones need to be sent for?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1163) **Aiden**: Well, well, if he's only showing the first part, okay, why would he send the first part and not the second? He wants the reason he sends the.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1170) **Spinal**: First is because he wants to assume the first part is the only part that matters to show that, hey, this is why I'm like contacting her or whatever. Well, no, he wants to know this.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1179) **Aiden**: He doesn't want any of his communication to look secretive.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1182) **D**: Right.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1183) **Aiden**: Or so he's portraying. Right. So it's all above board. But if that was true, he would be sending the DMS in their entirety. He only sends the parts of the DMS that make him look like the concerned adult.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1198) **D**: Yeah.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1198) **Spinal**: Because that's the part he thought mattered the most. I'm assuming.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1202) **Aiden**: Okay.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1202) **Spinal**: I I'm assuming. I'm guessing.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1206) **Aiden**: Okay. I'm. I don't. I'm not. I don't think I'm.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1208) **D**: He didn't.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1209) **Aiden**: He didn't. He didn't not send them. He doctored them. What do you mean?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1214) **D**: Someone. Sorry.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1215) **Aiden**: Someone just shouted. It's like, all right, so what? I I don't know if I'm even gonna be able to change your mind on this. You just, like, seem like you're gonna be, like, super charitable to this guy when, like, this is, like, all.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1227) **Spinal**: Like, you're just gonna. I'm being neutral about it because, like I said, you guys are like, oh, this guy's a sex pest. He's a sex pest. He's a problem.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1237) **Aiden**: It's like, you guys are fine with one sex pest. What's one more sex pest? It doesn't. It doesn't change much. Wait, no, but he's- Starbase is 30 messaging a 16 year old, okay? Morale is consensually messaging people who are within a age range that you would expect someone 21 years of age to be messaging.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1251) **Spinal**: And what that we know of, first of all, that we know of. Oh my, you can do this about anyone.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1255) **Aiden**: Okay, you haven't- you haven't messaged any minors that we know of. Like, no, obviously we're gonna work with the evidence in front of us, right? Unless you've any like evidence of that you can't really like put that in front of me.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1268) **Spinal**: So just as guys a bigger sex pest on Starbase.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1272) **Aiden**: He engages in sexual communications of people like within a normal age range, right? He's a sex pest. Sure, I'll admit he's a sex pest, absolutely.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1283) **Spinal**: So then why are we keeping him around and why do you care so much about Starbase being a sex pest? I don't think I ever used the.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1289) **Aiden**: Term sex pest for Starbase.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1291) **Spinal**: No, you called him a pedophile to be specific. That's what you implied and that's what you called him. You didn't say six.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1297) **Aiden**: I don't know if I ever outright said he's a pedophile.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1301) **Spinal**: You implied it. Yeah, you didn't outright say it.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1304) **Aiden**: You heavily implied it. Sure, so let me clarify on what I believe. After looking at all, after looking at his consistent changing of his reasoning, the fact that we had to pull teeth to get him to send the remainder of their communications, the fact that this occurred right after somebody else had been criticized for keeping the 16 year old in their server, etc. Etc. shows me that there was something he was trying to conceal in regards to his reasoning for messaging the 16 year old. If he's trying to conceal something, what could that possibly be? And as I look at my list of options, it doesn't look great.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1336) **D**: Right.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1336) **Aiden**: The tactics that he was used or the, the type of conversation he was having with the 16 year old are tactics that, like, establish grooming.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1344) **Spinal**: Right.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1344) **Aiden**: Just see, like, you know, like, establishing himself is like, yeah, you could communicate with me discreetly.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1350) **Spinal**: I'm the one you can trust. I'm the adult you can trust. I feel like that's uncharitable, like, interpreted that everyone could very easily and more than likely, at least in my eyes, that he was genuinely just trying to be a good guy and probably didn't, well, I guess, realize how hard he looks because apparently, like, he didn't show it or whatever. But I don't think he's like some pedophile. No, I think to think that you would have to be choosing to be incredibly. What's it called? I'm not going to say that one because then people are going to make the joke.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1378) **Aiden**: You would have to choose to be incredibly uncharitable. There we go. It's not, it's not unsh-- okay. It's not uncharitable to-- when the evidence amounts to like the most-- when-- when they're-- when like the alternate explanations that he made this mistake, this mistake, this mistake, this mistake-- oh here he was just naive, here he was just-- even though he saw the allegation, even though he saw the conversation with Marcus, et cetera, et cetera, you would actually be-- it would take far more steps to get there than it would to say he was trying to groom this person.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1410) **Spinal**: Not really. I think this is wrong. Well, actually, no, you're right. But just because the easiest road is there doesn't always mean it's the right road.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1421) **Aiden**: Yes, but all the evidence seems to support that that very well could be the right road.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1427) **Spinal**: That's debatable, but that one's debatable. I wouldn't say all the evidence supports that, or all the evidence supports him being too retarded.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1436) **Aiden**: Okay, you would just have to establish, like, you would just have to. I don't know. This is just like.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1445) **Spinal**: Can you explain to me why we, like, keep the other sex pest around, even though he's, like, a sex pest?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1453) **Aiden**: Because the other sex pest is engaging with people in, like, a normal age range of Attraction. So I don't know what. Why that would be a problem for me. Yeah.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1460) **Spinal**: But do you think being a sex fest is weird or anything like that or bad or are you saying it's.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1464) **Aiden**: Sure I think it's strange so then.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1468) **Spinal**: Why keep him around? He's a he's a he's a what is it race play rate play like free okay, he's like attracted to like 17 year olds and all that yeah.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1479) **Aiden**: At 21 at 21 he's attracted to 17 year olds. Yeah, I don't really have a problem.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1483) **Spinal**: With that I Don't have a problem with it, but I'm saying I don't you think it's like, that's not a.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1489) **Aiden**: Reason to cut someone off. Some guy being addicted. Yeah, there are a lot of freaks that I'm friends with. I don't know if I'm friends with them, by the way. I'm like, a lot of freaks I'm acquaintances with. Wait, hold on. Maral wants in.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1501) **Spinal**: He wants in?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1502) **Aiden**: Yeah. Would you be willing to talk to him?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1504) **Spinal**: Sure. Let him in.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1506) **D**: Hello.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1513) **Mrow**: Okay, so I've admittedly I have not watched the stream, so you're gonna have to catch me up a little bit. You think I'm like a pedophile groomer? Is this true?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1523) **Spinal**: I'd say you're more of a pedophile. If I had to pick between you and Starbase, and who I think is more likely to be a pedophile, I'd pick you, yeah.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1531) **Mrow**: Okay, what about between me and you? Between us?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1534) **Spinal**: Me and us? I'd pick you.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1537) **Mrow**: Okay, so you like drawn little girls and I haven't dmed anyone under the age of 17 and yet you think I'm a pedophile.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1546) **Spinal**: Yeah, I haven't been under the age of, like, I haven't em'd anyone under the age of, like, 18.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1552) **Aiden**: So.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1553) **Mrow**: No, you admitted to having sex with.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1555) **Aiden**: A 16 year old or trying to cop a field.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1557) **Spinal**: That was a joke. You believe that? You're an idiot.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1560) **Aiden**: You're an idiot and a moron, dude.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1563) **Mrow**: That was a joke. Actual moron. Okay, sure, but I I I I I I I I I guess I just don't understand if you're, like, attracted.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1571) **Spinal**: To, like, drawn images of little kids, how I could be the pedophile here. you know, because you're, like, targeting guys for, like, minors.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1576) **Mrow**: When have I targeted a minor?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1578) **Spinal**: Or you just found out admitted that you were, like, flirting or whatever, sexing like a 17 year old.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1583) **Mrow**: That's like an actual mind. No, hold on. Aiden. Aiden, really quick, when.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1588) **Spinal**: Could you pull up the sex with the 17 year old? You want me to, like, get it now or whatever?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1593) **Mrow**: I don't know if it was. Correct me if I'm wrong.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1597) **Spinal**: I don't think I ever sexed at a 17 year old.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1599) **Mrow**: So then what was that whole drama about them? It was one sexual joke over three weeks of conversations and like light flirting. Okay, there was no sex.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1605) **Aiden**: Yeah, yeah, flirting. There was light flirting.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1607) **Spinal**: There was light flirting. Yeah, okay. My apologies, not sexing flirting. The flirting implies an interaction.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1614) **Aiden**: Yeah, I was attracted to her.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1616) **Spinal**: But I've never shown an attraction to any woman under the age of like 18. You've shown an attraction to someone who's a minor.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1623) **Aiden**: By default, I would say that makes you more likely to be a pedophile.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1627) **Spinal**: Wait, spinal, do you think an 18.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1630) **Aiden**: Year old who's attracted to a 17.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1632) **Spinal**: Year old is more likely to be a pedophile? Um, no.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1630) **Aiden**: But a 17 year old's a minor.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1633) **Spinal**: Yeah, but it's like a one year difference.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1635) **Aiden**: Okay, this is a three year difference.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1638) **Spinal**: Mm-.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1639) **Aiden**: So, so why is a three year difference predispose you to pedophilia or more, you're more likely to be a pedophile?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1646) **Spinal**: Because you're in different stages of life. You said so yourself, no?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1652) **Mrow**: Okay, but you, you do understand that a 17 year old has like a lot of the same responsibilities as a 21 year old.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1658) **D**: Right.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1658) **Mrow**: The only difference is like a 21.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1660) **Spinal**: Year old could probably be. No, that's that's completely retarded.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1663) **Mrow**: No, they don't. Okay. What do they not have in common?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1667) **Spinal**: Like responsibility? A 17 year old is like worried about like school and homework.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1672) **Mrow**: A 21 year old is worried about a 17 year old could have graduated school. A 17 year old can have a driver's license. A 17 year old can have a job. In some states, a 17 year old can even be a manager of like.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1683) **Spinal**: A fast food place.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1684) **D**: Right.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1684) **Aiden**: They have an insane amount of responsibility.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1688) **Spinal**: That they're about 17 year olds.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1684) **Aiden**: In many states, they're above the age of consent.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1687) **Spinal**: And, well, yeah, that's because the age of consent is like 16 in most places. That is, that's true. You got me there. That one's true.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1694) **Aiden**: The point being, they are in different stages of life. You're correct. But those stages of life don't differ to such an extent where the range of attraction would be abnormal.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1706) **Spinal**: I'd argue that they do. Well, not, yeah, I'd argue that they do.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1709) **Mrow**: Okay, and your argument is that I was DMing someone who is 17. Starbase is 30 dming a 16 year old. Is that not like infinitely worse? He wasn't flirting with her. He was trying to become a person of authority.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1722) **Spinal**: Yeah, he's retarded for that, but he.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1725) **Aiden**: Wasn'T flirting with her. Okay.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1727) **Spinal**: He was.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1727) **Mrow**: Is that. That could be more. What Starbase was doing could be marginally worse than flirting with a 17 year old.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1734) **Spinal**: You understand that, right? How so?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1735) **Mrow**: You understand that the issue with adults talking to minors, especially trying to become like a person of authority, has a lot more harm. Because it could normalize child-adult relationships to a point where they wouldn't see an issue with talking to someone with that age gap, right?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1749) **Spinal**: How? Good point. How?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1750) **Mrow**: What do you mean?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1751) **Spinal**: How would that normalize child-adult relationships? If they don't have a problem with it. Because he's like in a 30-40 figure.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1758) **Aiden**: Because he's demonstrating to her that it's okay to trust random adult men that meet you online. Do you not think that that's gonna like make her more at risk for being groomed?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1770) **Spinal**: Did you repeat that?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1771) **Aiden**: He's telling her, he's basically establishing to her that you can trust and be, what is it, discreetly message and trust random 30 year olds or adult men that reach out to you online. Do you not think that- no, I.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1787) **Spinal**: Think he's specifically saying you can trust him because he's a figure of the community. A figure of- and apparently they've spoken in like YouTube chat or whatever before.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1795) **Aiden**: Oh, they've spoken a few times in YouTube chat and you've like remembered where she lived. which is also like weird that he remembers the specific detail about the location of some random YouTube chatter. But no, that's like not like a substantial detail.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1807) **Spinal**: And it was like the Bay Area. That's like a pretty big area.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1812) **Aiden**: Yeah, but like his area. Yeah.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1815) **Spinal**: I feel like that would be that would make more sense as to why you remember it because it's like, oh, hey, I live there too.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1822) **Aiden**: Why would he remember that?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1824) **Mrow**: I was also DMing saying you thought I was trying to groom a hater. Could you elaborate on that? if that's true.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1830) **Spinal**: I didn't say I thought that. I'm saying that's what he, like, isn't. Because that's what he said. He, like, wanted you to, like, message her or whatever. That's what he said, if I'm not mistaken. Yeah.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1842) **Aiden**: Yeah.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1842) **Spinal**: I never said I thought you were, like, grooming her. He said he wanted you to, like, message her or whatever, and, like, then she would have, like, told him and.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1851) **Mrow**: He would have handled it discreetly or whatever.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1853) **Spinal**: I don't know how he worked. Do you think he would have handled that, though?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1857) **Mrow**: Oh, I don't know.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1858) **Spinal**: Probably exposed it or whatever. Like, he tried to do that. Discreetly. That's. That's why I said I can't really. I don't really. I know what he means by like, discreetly, because I think he even, he admits it at some point. I don't know if it was like.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1867) **Aiden**: In my server or what, but he's like, I see you're slandering dickers.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1871) **Spinal**: Show one DM the dickers sent to hater.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1874) **D**: Thanks.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1875) **Spinal**: Go to Perry or someone.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1876) **Mrow**: Yeah, okay. I mean, I don't know what else there is to say, really. Aiden, if you have anything else, I'll probably leave.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1883) **Aiden**: Yeah, I mean, I mean, that's about it. I don't know if we're really going anywhere here. all right.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1886) **Mrow**: Yeah, I I don't think it's gonna go.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1888) **Aiden**: I just wanted to ask you a question. A personal note. Spinal.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1891) **Spinal**: Me?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1892) **Aiden**: Yeah. The, like, what is the game you play where it looks like the, like, anime girls are being tortured?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1900) **Spinal**: Kiwami.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1902) **Aiden**: Yeah. What?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1902) **Spinal**: I don't know.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1903) **Aiden**: Why do you like that game?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1906) **Spinal**: Because it's. It's fun.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1909) **Aiden**: Fair enough. Fair enough. do you like lollycon?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1915) **Spinal**: Yeah, nobody answered my question, though.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1917) **Aiden**: Are you sexually into lollycon?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1921) **Spinal**: Yeah, I guess.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1923) **Aiden**: What is lollycon?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1927) **Spinal**: Like what? Youngish looking girl, child, like a parent or something like that. I don't know what the exact definition, because everybody's got their own.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1934) **Aiden**: Do you think guys.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1935) **Spinal**: There isn't a, like, real definition, huh?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1937) **Aiden**: Do you think guys who are, like, super sexually attracted to, like, drawn depictions of men are probably more likely to be homosexual than, like, the average person.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1944) **Spinal**: We have this, like, argument already. It's a yes or no answer.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1948) **Aiden**: Just, like, regular looking men. Not fan boys. Not fan boys. Regular looking men. Yeah.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1955) **Spinal**: I'd probably say if you're into, like, beefy men. Yeah. That's probably, like, a sign of, like, homosexuality.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1962) **Aiden**: Okay, so would you say that, like, people who are into drawn. Would you say people who are sexually attracted to drawn depictions of children are.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1970) **Spinal**: More presupposed to being pedophiles?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1970) **Aiden**: No. Why would the logic not follow?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1975) **Spinal**: Because, like I said, there's a distinction to be made, even in the man question. You remember you had to specify, not femboys, like regular men. You had to make that specification because if it was femboys, no, I would say no to that question because at that point, there is no attraction.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=1989) **Aiden**: A guy that looks like a guy. A guy that looks like a man. Okay. And if they're attracted to a. If they're attracted to a drawing that looks like a child. are they more supposed to be being pedophile? A pedophile?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2001) **D**: No. Okay, I say no.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2002) **Spinal**: All right, well, wait.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2004) **Aiden**: Could you answer my question?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2005) **Spinal**: I don't think you ever answered my question. Why. Why do we keep him around? Why would. He hasn't done anything that would.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2011) **Aiden**: He hasn't done anything. He's like a weird sex pest, man.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2015) **Spinal**: Why do we just. Why don't we just kick him out?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2018) **Aiden**: Why do we keep him? Who is.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2020) **D**: Who is we?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2021) **Spinal**: Who is we?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2022) **D**: We.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2022) **Spinal**: This community, this little commentary Community, you guys are all, like, fine with him. so I'm asking, why do we just keep him around? Why don't we just do something about the weird stuff?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2031) **Aiden**: Because he hasn't done anything immoral enough to justify completely cutting him out.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2036) **Spinal**: He's like a weird sex. Okay, repeat what you just said.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2041) **Aiden**: He does. He hasn't done anything immoral enough to justify cutting him out.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2044) **Spinal**: So then why am I always getting treated like.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2048) **Aiden**: Because it seems like you're into, like, drawn depictions of, like. children and you like hang out and like servers that like there's like weird stuff allegations again.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2057) **Spinal**: And that's more moral than him being a weird sex fest.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2061) **Aiden**: Oh, I don't know if it's okay. I don't think I don't think what you're personally into is more immoral. But I think that it indicates a it indicates a risk of committing actions that could be more immoral. So the potential immorality in your case is enough where like somebody can say, okay, this person might be a liability.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2079) **Spinal**: So you're saying my potential immorality outweighs his actual immorality and that I have a potential to be weird and do something bad, but he is actually going and been weird sex pest. So keep the weird sex. Even though. Even though my potential to be, I guess, whatever the word was, my potential is higher. You'll keep the weird sex pest.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2098) **Aiden**: So wait, can I give you an example? Spinal, can I give you an example? Let's say, like, I have a friend that I know drives strong. and I fucking-- I'm against it, right? It's bad to drive drunk. And I have another friend that has actively been-- that has actively been entertaining the notion of shooting a bunch of children, okay? He's been sketching plans, he's just been like sketching shooting kids for fun, etc. Etc. I'd be more likely to cut off the guy that's like sketching himself killing kids than like the guy that's driving drunk, because even though the guy that's driving drunk is like committing actual Greater immorality, the guy who's like sketching, shooting kids, I think is a risk of committing, is at a risk of committing immorality that would be much greater. And as a result, I wouldn't, the risk would not be worth any benefit of keeping him around. That's retarded.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2147) **Spinal**: That's incredibly retarded because you're getting on the guy for something he hasn't done yet. But then the guy who has done some shit, you're gonna sit there and.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2156) **Aiden**: Just let him slide? I can preemptively cut him off if I think it's a genuine risk.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2161) **Spinal**: Yeah, I'd say that's retarded. because by that logic, it's like you should. If anything, cut both of them off. What happens when this guy. This guy is actively drunk driving in this scenario? What happens when he hits someone? You're gonna cut him off more than likely, right?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2172) **Aiden**: No, I'm gonna try to get him sober.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2174) **Spinal**: You're gonna try to get him sober after he's in jail.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2178) **Aiden**: After the first UI. Yeah, probably. Wait, hold on. Hold on, hold on. One more person wants to call, and then I think we're gonna wrap it. yeah, I will probably cut the other guy off. The guy that's drawing himself killing kids. Hold on. One more person. One son.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2197) **Spinal**: Sure. I guess. Hello. Hello.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2201) **JSTLK**: Hey, buddy. Wait, I just. I just have, like, one question to ask you, spinal. So you're, like, totally fine with, like, a random dude sending unsolicited dick pics to women.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2213) **Aiden**: Right.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2213) **JSTLK**: But you're not fine with morale. Just, like, flirting with people. you think morale is more of a sex pest for flirting with women than a guy who's just randomly sending his dick pic around to women without their consent?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2227) **Spinal**: Yeah, the guy has had like, what, two, three different dramas that all revolve around like his, like, that over roll around like his, like, sexual proclivities or whatever.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2239) **JSTLK**: It's like, yeah, with consenting women, by the way, with consenting women. So, yeah, but the point still stands.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2245) **Spinal**: But Starbuck, no, no, it doesn't stand.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2248) **JSTLK**: Because Starbase, the whole reason why nobody wants Starbase around is because he's sending his dick pick unsolicited to people.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2255) **Spinal**: That's the whole issue.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2256) **JSTLK**: Who cares if he hasn't done it again? He did it once. What are you talking? Are you like, retarded?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2262) **Spinal**: What are you talking? I think it matters if he does it again because if he hasn't does it again, if he hadn't done it.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2268) **Aiden**: Again, then it's like, why does it?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2270) **JSTLK**: Wait, you want us to wait for two minutes? So you want us to wait until he sent like, hater potentially his dick pick? unsolicited. All right, do you, do you understand.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2278) **Spinal**: How retarded that sounds? Okay, I'm not saying I wanted him to wait. What I'm saying is you want, okay, here's how I'll break it down for you. You're telling me, and everybody's like flipping out over this like guy, you're saying, oh, this guy's a sex pest, he sent unsolicited dick pics. And my high eyes, they're both equal.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2299) **JSTLK**: Because they're both sex pests. I don't get why we should keep.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2302) **Spinal**: If you want to kick one out, kick them both out.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2305) **JSTLK**: One is infinitely more of a sex.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2307) **Spinal**: Pest because he is sending his dick pic unsolicited to women. to one person.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2305) **JSTLK**: To one person. Why does it matter? One person's enough.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2308) **Spinal**: To one person compared to, like, what, three, four different dramas or whatever.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2312) **Aiden**: Yeah. Yeah.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2313) **JSTLK**: There's a big difference. There's a big difference. All consenting adults.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2316) **Spinal**: There's not a big difference.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2317) **Aiden**: Yes. What? What? You don't think there's a. You don't think there's a big difference in consenting and not consenting?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2327) **Spinal**: I think. I think when it comes to, like, the sex pest stuff. No, they're both big sex pests.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2331) **JSTLK**: Are you, like, retarded? Dude, there's- you are, like, actually retarded.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2336) **Spinal**: This is fucking insane. How am I retarded for saying a.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2340) **JSTLK**: Sex pest is a sex pest? Because there's a big difference between somebody.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2344) **Spinal**: Who is sending their dick pic unconseNtually and somebody who is consensually sending their dick pic. This is like you arguing, well, this rape this is better than the child.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2354) **Aiden**: Driven, and it's like, sure, you can make that argument, but at the end of the day, they're both rape this. No, because in the two examples you just gave, both involve people So violating others without consent. In this case, one uses consent, the other does not.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2362) **Spinal**: I have to break down why do I have to break down why I use those two examples? The whole point is that adding the child on top of it clearly makes people perceive it as much worse.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2369) **Aiden**: But the difference is why that's not comparable is because in both of those two examples, both are committing a wrong against somebody else non-consensually. In these examples, right, one is consensual, the other isn't. what?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2385) **Spinal**: Repeat that.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2386) **Aiden**: In those exam, in those examples, both of the two things you're comparing are committing a wrong against somebody non-consensually right. In the example that in, in the example of morale versus star based, we're talking about one example where there is consent and another where there is not.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2403) **Spinal**: So the world still sex best.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2407) **Aiden**: What do you, what is a sex past?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2408) **D**: What is a sex pest? Yeah. What is it?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2411) **Spinal**: You keep using that term.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2412) **Aiden**: What is it? What is it? I'm asking you, what is a sex pest? I'm asking you, what is a sex pest? You don't.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2419) **Spinal**: You don't ask a question. You don't respond to a question with a question.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2423) **Aiden**: You're using the term. Surely you'd know what term you're using. Well, in my eyes, it's just a.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2428) **Spinal**: Guy who can't keep it in his pants. It's freak who's, like, constantly on some sort of, like, sexual.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2435) **JSTLK**: Wait, okay, so Starbase. So Starbase couldn't keep it in his pants. Morale on.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2440) **Spinal**: And then decided, okay, I'm gonna have sex with them.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2444) **Aiden**: Okay, they're both sex pests. Okay, okay, okay, okay. What about a guy, what about a man whore that like takes women home every night and consensually fucks them, and.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2455) **Spinal**: Then a guy that one time rapes.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2457) **Aiden**: And then a guy that one time rapes a woman. Do you think like- oh, one's a man whore and the other's a rapist. Okay, do you not see that you're- but in this case online you're talking about digital sexual exchanges where one is consensual, very frequent. The other one is one off, but non-consensual. That's why I'm, that's why it's comparable.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2474) **Spinal**: How is it come? So, okay, wait. So how is what I said not comfortable?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2478) **Aiden**: Because, because what you said, the two variables, like you're, when you're saying, comparing these two is like comparing a child rapist to a rapist. The two variables were both going in with the predetermination that both are bad because both lack consent. The variables you're comparing those two, We're not going in with that predetermination because one lacks consent, the other one has consent, right?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2498) **Spinal**: Yeah, but the point I'm making is that at the end of the day, they're both still bad. I think they're both still bad and they're both weird sex pesty freaks. So I think we should handle them both if we want to handle one of them.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2508) **JSTLK**: No, one is a weirdo. No, one is a weirdo for sure. And the other one is just like an actual, like, just disgusting person.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2516) **Spinal**: I don't know. T Smeth arere both weird old disgusting te. Okay, they're both sex.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2522) **JSTLK**: We' not change ye., wait Oay, wait,'s finalin,inal, spinal, Ookay. So, if you think they should be both like kicked out of the community, right, why do you keep him in your server?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2532) **Spinal**: Why hasn't he been abandoned your serant? Just out of you.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2536) **JSTLK**: To am I going to abandon him.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2538) **Spinal**: With Why is myrouse still another server?ay. Well, no, no. If you if you are coming down down that, the man the I final he's going I don I don't know. I don't no I was I did.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2548) **JSTLK**: In him, no question.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2545) **Spinal**: No, no, this is no, you are actually deflecting.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2548) **JSTLK**: No, I know, you should ban him now. No, if your own morals are that a Starbase and Morale should both be banned, you should ban him from your server 100%.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2556) **Spinal**: Wait, why should I ban him now and he's not banned from everywhere else?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2561) **JSTLK**: That guy's not banned from everywhere else, so why should I ban this guy?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2565) **Spinal**: Wait, as you are saying, because you.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2567) **JSTLK**: Are saying both of them should be banned. If you had the option to ban.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2571) **Aiden**: Both of them, you would. And now you have the option to ban him from your server.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2574) **D**: Yeah, and you're not doing it.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2576) **Spinal**: You can enforce your own personal standards, even if other people are not adhering to them.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2574) **D**: Yeah, but the whole problem I have.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2576) **Spinal**: Is that other people aren't adhering to them. So these are obviously not your standards.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2580) **Aiden**: But these are obviously not your standards then. Then you obviously believe it's okay.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2585) **Spinal**: Because. No, because you.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2587) **Aiden**: Oh, wait, you're saying, do I believe.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2589) **Spinal**: It'S okay to have them around?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2591) **Aiden**: Because, well, you're. No, you're keeping your. Then why you're keeping star based around. So you think it's okay to keep star based around?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2599) **Spinal**: I'm keeping him around because I feel like nobody's giving him a fair shake and everybody else is allowing us another sex pest around free.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2606) **Aiden**: So I don't see why I should have to be on this one. Okay, but if you're setting a standard, like, it's bad to keep sex.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2610) **Spinal**: So if I. Let me ask you a question. If I ban him right now, will.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2613) **Aiden**: You do what I just asked?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2614) **Spinal**: No, because it's not my standard. Why should I be in?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2618) **Aiden**: My whole problem is that this is just something everybody's fine with. You should. Because you.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2622) **Spinal**: You should have, like, personal standards, regardless of what other people are doing. Right. I have personal standards, and my personal standards are having people uphold to actual standards.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2631) **JSTLK**: I hate when people want to sit.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2632) **Spinal**: There and flip their over one. These are your standards. 75. then be fine with another guy doing basically not almost the exact same thing, but being just as much of.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2637) **Aiden**: A weirdo in the same respect as the other guy. No, no, no, no, no. I heard you out, man. I heard you out, man. Can I just say something? Can I just say something? Okay, what if I have a personal standard just like you do? My personal standard is that I will cut you off if your sexual interactions do not involve consent. That's my standard. So if I cut star based off and not morale, I'm being consistent on that standard.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2664) **Spinal**: Your standard is shit.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2666) **Aiden**: My standard is shit, that I, that sexual exchanges are wrong when they, that your sexual exchanges are wrong when they cross the line and don't involve consent.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2675) **Spinal**: You're standard as shit, yes. I think both of them should be banned. If you're gonna ban one of them and act like he's a total freak and a sexist, why is this, why.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2683) **Aiden**: Is the standard I've just given you shit?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2686) **D**: Because you should apply it.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2687) **Spinal**: You should apply my. Okay, you want me to say that? You should apply the standard I'm using. Because in these scenario, both of these guys are weird freaks. And I think if you want to ban one of them, you ban both. We just be honest.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2700) **Aiden**: Can we just be honest? It sounds like you've taken on whatever standard you think is gonna, like, allow you to defend star base the most. Like, this doesn't actually sound like a strong standard. Yeah.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2710) **Spinal**: Wait.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2710) **JSTLK**: Spinal. And then one more thing. Also. One more thing. Also, I. You basically kind of admit it. You're just taking the standard because of spy. Because immediately you start saying, well, why am I blacklisted from everyone else? Why am I blacklisted? You're just doing this out of spite, dude. You're just mad that you're like a lolicon freak that nobody wants around because.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2728) **Spinal**: You'Re a lolicon freak.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2730) **Mrow**: It's obvious why you're doing it. Oh, yeah.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2733) **JSTLK**: I need to get in here.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2734) **Mrow**: He keeps comparing me to like the Starbase guy. What is your issue with me?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2738) **Spinal**: What have I done that you find so morally reprehensible? I just think you're a weird sex pest freak and I don't really like you. so, okay, that's kind of.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2745) **Mrow**: I'm a weird sex pest freak in private with consenting adults.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2750) **Aiden**: Right?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2752) **Spinal**: Sure.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2753) **Mrow**: And then star based is a weird sex pest freak who will go into women's DMS and unprompted, without asking, show them his penis.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2762) **Spinal**: Once.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2762) **Mrow**: No, he did this twice. He did this twice to the same girl in a row. He sent a bulge picture.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2767) **Spinal**: Okay, so, yeah, that's once in a row. Means it happened at the same time. That's once.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2774) **D**: Right.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2774) **Mrow**: So you do understand that there iss a fundamental difference between me and Str Based and how we conduct our behavior, right?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2782) **Spinal**: Sure, like I said, you it's the child racist rapist argument.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2785) **Aiden**: No, it's noing what?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2788) **Spinal**: It's the child rapist rapist argument. W makes the argument that one is worst att the end of the day they're both still thatd, I'd say, and both are probably we.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2795) **Mrow**: One of them involves consent and a like what? I'm sorry, I'm missing your point, Zach. I'm so sorry. One of them involves consent, as in the other party is enthusiastically consenting to the interactions that we're having, and then one of them doesn't.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2810) **Aiden**: Right?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2810) **Mrow**: These are drastically different in terms of, like, the right and the wrong here.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2815) **Aiden**: Right?
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2816) **Spinal**: Sure. But that doesn't change the fact that you're both probably weird sex pesty freaks. Okay. I don't. I don't give it so hard to get there.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2826) **Aiden**: I don't know if this is really going anywhere.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2828) **Mrow**: Yeah, I listen. Yeah, okay. I just.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2833) **D**: Yeah.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2833) **Mrow**: All right. Bye.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2835) **D**: All right.
+- [link](youtube.com/watch?v=LaXc78lIS1M&t=2835) **Aiden**: Thanks for calling in.

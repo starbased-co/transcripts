@@ -1,0 +1,910 @@
+# BIG MEMEs WEEKEND - KellyJean, Kuihman, Mrow, Dickers, and more!
+
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=0) **Mrow**: I think this Barbie person, there's some avenue of peace we could find and they're not going down that road, I guess. Exactly. I will say, I will say I.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=7) **JSTLK**: Have no heat for until Shamoo finishes his next Tek Dome video, okay? Well, okay, because next gonna do this.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=14) **Kuihman**: Next gonna go, oh, I don't know, I think Willy realized that the damage is a bit too unreliable, you know? I mean, people gave down maybe a little bit too much charity, but we all gave down too much charity, so I mean, it's fine.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=27) **JSTLK**: I like that his argument isn't, I would never do this, it's how did you do this? I didn't even do it. I believe I just untimed him out for something like this very recently. I just got this randomly.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=37) **Mrow**: I've been lying.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=39) **Kelly**: He threatened Ryle.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=40) **JSTLK**: It was Ryle who did the ringer, apparently. Well, you unfortunately have my, huh, it sucks, because I don't want Ryle timed out either. But unfortunately, yeah, if people are breaking the rules, they gotta go.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=53) **Mrow**: Will you please just respect the fact that it's not a vape and medicine anxiety pin. Okay, that might be me.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=59) **JSTLK**: Is this normal? That was a very that was a very weird ending, too. Yeah, this one seems fake. Get it right.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=70) **Kuihman**: What flavor is your bait?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=72) **JSTLK**: What did you say, Kelly?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=73) **Kuihman**: Sorry.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=74) **Kelly**: What is an anxiety pen?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=76) **JSTLK**: I assume it's just like a CBD Vape or something. Maybe.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=80) **Kelly**: Oh, they said.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=80) **JSTLK**: No, I didn't watch that. I have no interest in that. Sorry. I talked over you again, Kelly. My bad. I did not.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=86) **Kelly**: I said, aren't they still Vapes? Anyway, like, probably the difference. Oh, he's back.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=92) **Kuihman**: Dude, the anxiety pen thing is so f***ing annoying. It's a, it's a bit, it's, it's Dane.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=99) **JSTLK**: Yeah, no, I was just saying it's, dude, the, when he said, when he said.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=104) **E**: Get it right, final and, ah!
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=105) **JSTLK**: For the billionth time, will you please.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=107) **Kuihman**: Just, he can't mention that he vapes.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=110) **JSTLK**: Oh, I see. Maybe TikTok.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=113) **Kuihman**: I don't know why, like, so many people have just, like, Yeah, I know why so many people have just bared onto him and been like, oh my God, look at this guy freaking out about his vape calling an anxiety pen. It's like, yeah, he's joking and you're f***ing.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=127) **JSTLK**: It becomes very obvious he's joking.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=129) **E**: Just respect the fact that it's not.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=131) **JSTLK**: A vape and that it's an anxiety pen. As soon as he does that, I'm.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=136) **Kelly**: Like, oh yeah, it's just a bit, like obviously a bit. Maybe it's because he freaks out over other stuff.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=142) **JSTLK**: I don't see him. It's kind of funny. It's not like the worst bit I've ever seen. I don't know. Why are we judging this bit? It's not the worst bit I've ever seen. It's pretty bad. Oh, did you see? Did you see Dean's audition to get.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=155) **Kuihman**: Back on the America tour?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=156) **JSTLK**: Oh, what? The doxing thing? Yeah. Like, obviously he's just engaging in Destiny and Dan's favorite behavior so he can get back on the America tour, I would assume. Guys, we got a dox. We got a dox this guy and call. Call CPS. Okay? It's really important that we get this guy's kids taken away right now. Right now, it's badly acted. Dude, yeah, you'd think these people would be a little embarrassed getting out acted by Nick Fuentes all the time. Oh. We could do that. I didn't prepare a lot of content for stream. Hold on.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=186) **Kuihman**: You should watch the divorce stream. Go back and watch it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=190) **JSTLK**: Not the whole, not the whole thing, maybe. Not the whole thing, but go watch like a little bit.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=196) **Kelly**: What is this? Divorce stream?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=198) **Kuihman**: The streams that Fuentes did off Destiny's divorce was announced. Why did you think of this recently? We were watching it offsite.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=206) **JSTLK**: Off play. Doing something with Augie and, yeah, we watched this clip. Okay. It was like, yeah, this is the first bit. There's like two bits in this one, and then we'll go to the other one.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=217) **Kuihman**: I might watch some, like a bunch.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=218) **JSTLK**: Of the other one, to be honest. The one that comes after this as well. Yeah, yeah, the other one, the update one. I remember I didn't watch this because I was like, oh, you know, Probably be weird to stream this. Like, when I thought it'd be weird to stream this. I was like, oh, it'd be weird to stream this while I'm embedded in DGG. I think I just probably be banned. It was like my third stream ever. So, anyway, 'cause I think I was covering Nick Fuentes stuff when I was streaming, too. Supposed to be keeping up with Fuentes content? I don't, but I will again.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=248) **E**: Yes.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=249) **JSTLK**: No.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=250) **E**: What's the main song?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=253) **JSTLK**: This could have been- Hold on.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=255) **E**: Oh, what could have been- that's brutal, dude. That hurts me. That hurts me.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=262) **JSTLK**: Oh, no.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=263) **Kuihman**: Kelly is blocking Nick on the capture.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=267) **JSTLK**: Uh-oh. Unacceptable, unacceptable.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=270) **Kelly**: Plea man, Jesus.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=272) **JSTLK**: Hold on, we'll get Kelly back in here. Over here, there we go.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=275) **E**: Wow, let's just play it with no audio.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=278) **JSTLK**: Look at this. No!
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=280) **Kelly**: Melina!
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=282) **JSTLK**: Come back!
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=283) **E**: I miss you! It's Mel time, remember?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=287) **Mrow**: Mel time?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=288) **E**: It could be just like it used to be. Mel time, it's Mel time, it's Mel time! Mel, why'd you have to leave?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=299) **Kuihman**: Don't leave me!
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=301) **JSTLK**: That's terrible. That's terrible. That's terrible. Yeah, anyway, why does Dean get outacted by this like, staunch conservative, alt-right commentator? Okay, why is this guy more of a theater kid than anybody in the left? It's up. Okay, hold on. Next bit. We all know what you're.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=320) **Kelly**: Kid a kid. Mustache.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=322) **E**: Breaking bull.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=324) **Kelly**: Definitely not gay.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=325) **E**: Yeah, look at this merch.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=327) **JSTLK**: Oh, disavow. Disavow.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=331) **Kelly**: Lur's bags.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=332) **E**: Did your merch socks really a black hoodie with a black zip up with your logo? What is this? Merch for a school sh*t for the most le- It's like a school sh*t. If you're like a 27 year old tranny, you know, I hate Christians, you know? This is like, this is the merch.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=352) **Mrow**: That you would wear.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=353) **E**: You would zip this up with a balaclava and get a shock. this is like trans. This is a uniform for trans school. Merch is. Look at this gay little icon.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=365) **Kelly**: Your meme.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=366) **E**: Ticks is merch is so much cooler.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=368) **JSTLK**: That's why she left with the cool logo in the. Look, so this gets so much better when you know that the main. One of the biggest things that Destiny off was the fact that when Molina landed, when they're. She's coming back to talk about, do their, like, last therapy session and try to make the relationship work. She actually got off the plane with wearing a MemeTix hoodie when she met him at the airport. And he never goes to the airport for anybody, by the way. He makes everybody get Ubers from the airport. He went to pick his wife up at the airport and she came off.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=398) **E**: The plane in a MemeTix hoodie, okay? Look at this merch is fire, dude. This is actually cool. This merch is actually sick, bro.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=407) **JSTLK**: Are you serious right now?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=408) **E**: Might be that one. That may be the one. Dude, that's tough. That's tough as hell. He's actually stopped, look, he's got the pearls. This guy, dude. This guy's got the freaking pants. He's got the- He does appear to have the- He's got the raps.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=421) **Dickers**: Listen.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=422) **JSTLK**: He's got the pearls, the side, the middle part. Suck my d***, I k*** myself. Hard to believe, but this works.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=429) **E**: This cleans up in Stockholm, okay? And you look like a bum, dude. You're wearing freaking trans school sh*t merch.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=437) **JSTLK**: And you look like a greasy bum.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=439) **E**: Of course she left you, dude.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=438) **JSTLK**: This is like leading up to the next bit.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=440) **E**: Yo, is this, no, different girl. Dude, this guy's the Rizzler. He's clearly got a type. He likes his buff. She's got that like, I don't know.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=448) **JSTLK**: Snatched the blue letter.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=450) **Kuihman**: Wow, believe in yourself.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=452) **E**: On your wife.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=453) **Kelly**: Believe in him.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=453) **E**: On his way to steal your wife. On his way to threaten to commit suicide if you don't divorce. If your wife doesn't divorce you. POV, I'm on my way to threaten to commit s*** if you don't divorce your husband.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=468) **JSTLK**: Dude, we're so lucky that this guy is not allowed on YouTube or Kick or right, like any platform basically, okay? We'll just get to stream 'cause this guy's not allowed.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=479) **E**: Thank God.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=480) **JSTLK**: Thank God. And it works.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=481) **Kuihman**: And it works.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=482) **E**: Keep him out. POV, I'm on my way to successfully.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=486) **JSTLK**: Gaslight your wife into leaving you.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=488) **E**: So awesome. But let's get, I don't like that song. We need a different song.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=492) **Kelly**: What's like a good, what's like the Chad?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=495) **E**: It's a girl not beating the boyfriend.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=497) **Kelly**: What's that one? Just giving it in now.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=498) **Kuihman**: When this is funny, okay?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=500) **JSTLK**: I've literally never once said Nick Fuentes is not funny. You will never, ever find me saying that anywhere. I believe when I was originally confronted with bad empanada hunting down, Gila Klein or some IDF secretary in a video game, I basically just said he stole it from Nick Fuentes and Nick did it better.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=519) **E**: Or what's the CS in the club, huh? Play his music.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=523) **Kuihman**: Does he have music?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=524) **JSTLK**: What is this? I guess it's this.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=525) **Marcus**: Why did this come up?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=526) **Kuihman**: It's not me.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=528) **JSTLK**: That. Yo, if you see us in the.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=531) **Kelly**: Club, we'll make it real nice.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=534) **JSTLK**: You see us on the floor. I wish you could see us all night. We here to hurt nobody.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=539) **E**: He's on his way.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=544) **JSTLK**: Everybody put up their hands. I get a half a milk from my beach. You get a couple.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=551) **E**: Me on my way to threaten to commit suicide. You don't leave your husband, I'll f*** myself. I swear I'll do it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=564) **JSTLK**: I didn't even notice he's got the same movements as in the other clip. Somebody linked me the other clip. I don't have it right now. Hold on. I swear I'm the one.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=572) **E**: Raise your right hand.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=573) **Kelly**: I will send my 9th test clip channel. We've given in to the idea of making any actual content. We're just watching f***ing Nick Fuentes watch TikToks.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=582) **Marcus**: Meet your husband.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=583) **Kelly**: I said it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=584) **Kuihman**: I made it work.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=585) **JSTLK**: Here, I'll help Kelly. I'll help alleviate Kelly's stress. I'll move her off screen. I get it. I get it. Don't wanna get clipped in that one. Yeah, I get it. I understand. We'll wait until we finish this episode.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=599) **Kelly**: This is a bit boring.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=601) **JSTLK**: What do you mean boring? This man's comedic gold, okay? He won.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=607) **E**: He won, dude. Meme ticks one. Meme ticks one.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=612) **JSTLK**: Okay, there's one other clip that is way better, Kelly, and then, well, way better. No, it's better than these ones, but it's not way better. One more clip that I gotta watch really quick, and then, do something else, okay? We can go do something else after.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=627) **Kelly**: Do we know what we're doing next, QuemAn? You got any content ideas?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=632) **JSTLK**: Oh, we'll figure it out, Kelly. We'll figure it out. Every single attempt, like, oh, right. Every single thing, I'm like, oh my god. Well, do you have a log for that?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=641) **E**: That's cool, dude. I love, this is so, did I tell you, man, that I tell you this is gonna be a delicious feast or what? This is like a bucket of KFC right now. This is like a, Double, triple, extra large cheese pizza and a bucket of fried chicken and a two liter RC Cola. This is it. This is good stuff. This is good stuff. Did you catch that? He said that he's like Neo from the Matrix and he's in bullet time dodging his ex-wife's lies. Imagine like how up your life has to be to utter that sentence. On a public live stream. Like, this is a picture of your life. Let me take a picture of your life. You're 34.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=692) **JSTLK**: It's so true. It's just obviously true. And somehow you'd be in like a community where people don't understand that and they forget that. Like, it's just the most like totally antisocial behavior that you could describe.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=706) **E**: You're on your second failed marriage. You're on a live stream saying, I learned to dodge my ex- my ex-wife's lies like Neo from the Matrix. This is like a little picture. Let's take a screenshot saved to camera roll. Saved to files.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=724) **JSTLK**: You were there? I was definitely there.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=726) **E**: It's like a little screenshot of your life.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=729) **JSTLK**: Why do you think I just said the last thing I said?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=731) **E**: 34 years old, second failed marriage. You're on a live stream talking about your marital problems. Now that I've become like Neo and I could do bullet time and see her, my ex-wife's lies in real time, that's like, how do you, how do you become that person? Because let's avoid that at all costs. Who would wanna be on a public livestream saying, I learned to dodge all my ex-wife's lies. You know how he's like bitter that sounds? That's brutal. Let's rewind that part. I wanna watch that part again.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=763) **JSTLK**: Every single like pivot, so funny seeing your chats glazing Destiny and old vids. Was that really often? I feel like a lot of time I'm, like, correcting or giving my opinion, but there are some that I know I'd have the wrong opinion on, though, that I'd be like, oh, this is, like, actually disgusting. I'm trying to think. I feel like they should strike me off the top of my head. Can't. Can't think of it, but. All right, all right, all right. Jesus, I think we're gonna go to gaming for hope. what? That's not the name.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=792) **Kuihman**: I'm aiming for hope. Oh, man.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=794) **JSTLK**: I just got the name totally wrong, didn't I?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=797) **Kuihman**: No, that's his name.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=798) **JSTLK**: Is that his name? Okay. Yeah, I think we're going to game of hope. I have not watched any of his stuff.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=803) **Kuihman**: It's pretty funny.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=804) **JSTLK**: Okay, hold on.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=806) **Kuihman**: It's just like little couch.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=808) **JSTLK**: I just. If I had, like, something else going on right now, I would probably do it, but let's see. Oh, anyway. Yeah, we'll see. I have, like, None. Let's address these allegations.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=818) **Marcus**: Okay.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=819) **JSTLK**: I do have a question if anyone.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=820) **Kelly**: In the chat knows the answer because I genuinely don't. Why is Destiny learning about COVID I'm just, yeah, I'm just wondering if they could tell me. Because it's like she was learning.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=831) **Kuihman**: Because all the conservatives are convinced as the lab leak theory is like 100% now. So I guess he's trying to debunk that, I would assume.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=840) **Kelly**: Do you know what the lab leak theory is? America's biggest problem right now is that.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=844) **JSTLK**: People believe that COVID was leaked from a lab. I can't think of a bigger problem. problem.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=849) **Kuihman**: Though it's obviously because he argued heavily against that in the past and he hates the fact that he might be broadly considered wrong on it. So he's trying to reinforce the position. But, yeah, the labic theory is just the idea that basically there was a lab in Wuhan that was forming gain of function research. It was funded by, in part, by Fauci that the American government knew about. And China basically, due to a lack of safety protocols or intentional leaking. allows COVID to get out of this lab while they were engineering it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=881) **Kelly**: Okay, but so that's why he was learning about what gain of function, but gain of function is just a mutation in a gene. Well, actually gain of function is something that happens after a gene mutation because you can have loss of, yeah, anyway, it relates to channelopathies usually or something, but those these diseases, but why is that suspicious? Why is the lab studying gain of function?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=908) **Kuihman**: Oh, there's a few other points to it where basically there was, there is, like, evidence of, like, a lack of safety protocols and a, that there were several workers that got sick with, like, covered, like, symptoms, like, weeks or months before it became prominent. So there's, like, a lot of Suspicion around. I don't know how much it is proven or what, but these are the talking points I've heard. So there's, like, other points of Suspicion they bring up, but I don't actually.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=933) **Kelly**: Know how the, the Suspicion part, I understand, but what I didn't understand is why he was spending hours desperately trying to learn what gain of function is or how that relates to the COVID conspiracies in any way.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=947) **Kuihman**: Well, because it's a gain of function. The idea is that they were doing gain of function research on, what is it, SARS or whatever.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=959) **Kelly**: Okay.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=960) **Kuihman**: There's like some, I can't remember what all the talking points are, but there is like something about The types of gain of function research you can do or what they said they were doing or something, and they're not being honest with the public about the type of research that's being done in that lab or something. It's so, I'm not a conspiracy guy, so I don't know all the fucking details.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=978) **Kelly**: What is the implication they were doing? They were mutating genes themselves in animals or something and, oh, okay.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=986) **JSTLK**: I think you're supposed to edit genes. Viruses. to turn them into, like, to make them more contagious or something. And there's like a site or something that makes it seem like, oh, they made it, they modified it genetically. Like they actually spliced DNA in to make it more likely to spread to humans or something. Right? I think that's like something that still.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1006) **Kelly**: Doesn'T make sense why he was spending so many hours learning what gain of function is.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1010) **Kuihman**: Well, it makes sense if you actually want to know why, whether the lab leak theory was true, but I feel.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1014) **Kelly**: Like it is just- But he doesn't know what an ion is. If he doesn't understand the basic fundamental building blocks of the things that he's studying, he listening to hours of- 38.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1026) **Kuihman**: Is a fine time to learn the 38, Kelly. Okay. Stop hating.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1031) **Kelly**: If you don't know that fluoride is an ion and how ions interact within like a, I'm guessing these are voltage gated ion channels. I'm not sure what the gain of function was being studied, but I don't know, but it's just, I feel like if you don't know the basic things, well, what good is it gonna do? But also, I was just curious because I didn't watch any of it. I just saw a little bit.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1058) **JSTLK**: I just started. He's not. He's trying to learn enough so that he can argue that other people are wrong. He's not.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1064) **Kelly**: Okay, even if you want to do that, you still need to learn the basic stuffs and, like, how that's applicable and what it means in a broader.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1074) **JSTLK**: Context.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1075) **Kelly**: Otherwise it's just like you're listening to nonsense.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1078) **Kuihman**: I don't know how you- Also Jason, this is a bad video to start on with Gaming for Hope.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1084) **JSTLK**: I started here and I wanted to go to another video because I regret it. Oh, well, I, yeah, I totally, let's go.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1090) **Kelly**: Why does she know this chemistry stuff? I want to go to chemistry. This is like medicine related. Apparently.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1097) **Kuihman**: Erythromalasia, which is the illness I have.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1100) **Kelly**: There's morale drama. Okay, that's cool. I was talking.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1102) **JSTLK**: You know what, Kelly, hold on. My bad. I want you to tell me about arrhythmia. I will leave Marlow in the back burner for now.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1110) **Kelly**: Used to yap so much and you never once complained or mean to me. And I've been here. Okay, you're asking me to be here.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1117) **Kuihman**: I'm here.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1118) **Kelly**: We love Kelly.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1119) **JSTLK**: And I ask you in a chance. We love Kelly. I promise I actually don't mind you talking about this finishing. It's such a funny joke to make. I can't not do it. So I laugh personally.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1130) **Kelly**: Yeah, I just think it's mean.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1131) **JSTLK**: Okay, I will endeavor not to do that exact thing again. Wait, tell me what's mean so that I can actually understand what I did wrong so that I don't try to-.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1140) **Kelly**: Because I was enjoying myself talking and then you just interrupt me and then you make fun of the fact that you interrupted me.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1146) **JSTLK**: Okay. I was enjoying myself.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1149) **Kelly**: I can't have two minutes of yapping about a thing that I like.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1153) **JSTLK**: 'Cause now you're not enjoying being here, and I don't like that. So I'm going to be better.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1158) **Kelly**: Exactly.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1159) **JSTLK**: Okay. I'm not joking. It sounds like I'm joking. I've gotten this criticism from some other people, and I think it's actually a problem. Unironically, so.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1169) **Kuihman**: Oh my god.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1171) **JSTLK**: Listen, I'm trying to be a better person. I'm trying to be better. I'm trying to grow and be better for everybody. okay?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1180) **Mrow**: Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1181) **Kelly**: And now I don't remember what I was saying.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1183) **JSTLK**: Off topic. Are you willing to accept donation to free? So you were talking about chemistry and then aromyalgia. You're tying it in with destiny, learning about chemistry and aromyalgia.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1192) **Kelly**: Somebody asked me why I know this chemistry stuff, but this isn't really chemistry. It's just. I. I learn about Gene mutations because I had full genome sequencing done because aromyalgia can be caused by a gain of function mutation in a specific sodium canal. Sodium channel and that when that gets messed up, it's like the encoding to the sodium channel. The gain of function in it is like the excitability within like, so that's what causes like the burning pain. That is the gain in that function. So that's what that means when you're like talking about gain of function mutations. But I don't know if he actually knows any of this stuff. It was just really interesting for me to see that he was trying to learn about what this is. I was like, why? That's weird that he's listening to like 10 hours of really random YouTube videos. But yeah, I don't know. Nobody cares. I care. And I will make you suffer. The more you complain, the more I'll make you suffer. Just let me enjoy me talking.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1260) **Kuihman**: I listened. I CAD. We appreciate it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1263) **Kelly**: Shut up, Coyman. You left earlier. What did you even do? Did you go play Marvel Rivals?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1268) **Kuihman**: No, I was listening to other streams. I was playing rematch.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1272) **Mrow**: Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1272) **Kelly**: What's the morale drama?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1274) **Kuihman**: What's he done?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1275) **JSTLK**: He got banned from my Discord, and I think he's upset about it, and.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1279) **Kelly**: I. Oh, I saw he was timed out.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1281) **JSTLK**: Somebody messaged me about it, and I wasn't sure what was going on, but.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1285) **Kelly**: Apparently, yeah, it's kind of annoying. He's been banned, like, three times in.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1291) **JSTLK**: The last week or two. Yeah. People might have had a hair trigger with him this time. I keep trying to tell people though, like, I try not to get involved because basically if I get involved, then I have to like people will expect me to litigate this stuff, right? And it's like, I don't want to litigate Discord bans. It's a little different when somebody comes on stream regularly for content though, 'cause then the Discord ban actually disrupts my content.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1313) **Kuihman**: So, for sure, in this case- so.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1315) **JSTLK**: What do you think of this tweet? What do you think of this tweet? What is it? Hold on? No, now I can't even show it. I thought it was so funny. Now I can't show it. God damn it. Fuck. I totally disavowed that, okay? I totally disavowed that. But just reading it in the moment, it was very funny, okay?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1333) **Kuihman**: I'll show it on screen.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1334) **JSTLK**: Unfortunately, that is funny. Unfortunately, I totally disavowed it. I laughed.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1341) **Kelly**: Disavowed, but I laughed. Hold on, hold on. Let me get it there. I can't see. What am I looking at? My cam is hiding it. I can't see.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1351) **JSTLK**: I'm the only one who can stop him forever.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1349) **Kelly**: What is this? I don't get it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1351) **JSTLK**: You don't know if the show is coming back?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1352) **Kelly**: Wait, so morale posted this?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1355) **JSTLK**: No. What?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1357) **Kelly**: Oh, is this unrelated? Okay. I'm so confused.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1362) **JSTLK**: This is the Suthi kid that Hasan interviewed that everyone said was anti-Semitic. And he's referencing Ethan Klein and saying, I'm the only one who can stop him forever, which is very offensive.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1372) **Kelly**: Was he actually doing some kind of.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1374) **JSTLK**: Laughing harm to Ethan Klein?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1376) **Kelly**: I thought he wasn't actually at Hovzie.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1378) **Kuihman**: He's not.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1379) **Kelly**: Oh.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1383) **JSTLK**: Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1383) **Kelly**: Wow.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1384) **JSTLK**: Wow. Okay, I'm gonna hit play on this route. He's playing some emo music.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1395) **Mrow**: I didn't even do anything this time.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1397) **Kuihman**: What the.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1398) **JSTLK**: What the.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1398) **Mrow**: Hello. My name is Bernard. I'm an automatic moderation bot in the J stock server. you were temporarily timed out for 14 days for the following reason, r*ping death.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1407) **Kuihman**: Threats to another user.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1408) **Mrow**: I didn't even f*cking do anything!
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1410) **Kuihman**: I didn't- Classic.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1412) **JSTLK**: Classic. Again. The morale classic. I like that his argument isn't, I would never do this. It's, how did you do anything this time? I didn't even do it! I believe I just untimed him out for something like this very recently.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1425) **Kelly**: I just got this randomly, I've been lying! What the f*ck?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1428) **JSTLK**: He threatened R*chel B*ner. It was Ryle who did the r*ping, apparently. Well, you, unfortunately, Have my, huh, it sucks because I don't want riled timed out either, but unfortunately, yeah, if people are breaking the rules, they gotta go. If that's against the rules, and I assume it is, you gotta step out for a little bit, okay? If you're doing real threats, if it's jokes, you at first mod to see it judges it by how funny it is, okay? If it's funny enough, maybe, but probably not.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1456) **Kelly**: What the f***?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1457) **JSTLK**: I didn't even do anything. Is Raoul unbanned now? Oh wait, don't tell me, 'cause it's gonna cut.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1462) **Mrow**: What the f- what? I didn't even do anything. What the hell? Dude, I need to- JayTalk, I've been alive. I didn't- I didn't give or death threats.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1472) **JSTLK**: What did I do?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1472) **Mrow**: I've been alive this whole time.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1474) **Kelly**: What the f- what is happening? What did I even do?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1477) **JSTLK**: Is the messages still off in Discord? I'm curious what they're- yeah, we'll just analyze the messages.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1484) **Mrow**: Someone sent me the messages right now.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1483) **JSTLK**: We'll cover them on stream.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1484) **Mrow**: Because you put your stream in the media tab. I don't know what that means. I didn't-- I didn't rape threat anyone, I think. What is going on?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1491) **Kelly**: You think?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1493) **JSTLK**: I think.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1493) **Kelly**: When was he not know?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1496) **JSTLK**: That's the exact same exact same cadence as the Somp saying the biggest problem with-- Was not that he-- Was it that he not-- It's not that he.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1508) **Kuihman**: Invaded the-- I invaded Poland just or some shit. It wasn't it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1513) **JSTLK**: But then he goes, but then at the end he goes, I think. Yeah, I think. What the fuck was I? That is what it is. I can't remember the exact clip anymore. Man, I haven't hate watched this on in forever. I haven't hate watched that guy in forever.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1527) **Mrow**: Like five minutes ago. Who did this? I'm so confused. This is so bizarre. This is so evil.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1537) **JSTLK**: Oh, should we pull the Barbie person in? Is that what we need to do? Does she mind being on stream? I'm gonna pull her in and then we'll see what happened. Hold on. Barbie, can you explain? Okay, this is the stream, by the way. Don't say anything crazy. Can you explain what happened? What just happened with Morale and Ryle? On your stream? Yeah, on the stream. So if you don't want to, you don't have to, but I would like you to.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1562) **Kelly**: No, thank you.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1562) **JSTLK**: Okay. All right, I'll pull the people in. I'm trying to be more respectful. I'd normally ban people who do that, right? But I'm trying to be. I'm trying to let the Discord grow on its own. Let it be what it's gonna be. Who would know, though? I don't know if would know. Somebody tell me in gen chat right now if you can hop on stream and let me know, because I got told, no, thank you. Hey, I. I asked. I asked. what was that? So apparently the rule with an iron fist. No, I'm trying to let this stuff grow up on its own because eventually they'll start paying me for soundboards. Wait, who am I pulling in? I'm pulling. I'm just gonna pull the numbers in. Have you been following this? You have any idea what's going on or are you trying to figure it out? Oh, this guy's just AFK. Oh, nobody doing anything today. Oh, okay, hold on. Okay.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1617) **Kelly**: Uh-oh.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1618) **JSTLK**: Okay, I actually need to read so you guys can talk for a second, or I'll just hit play on the morale video and I'll read this. Who is this guy? Uh, he's a streamer. Wait, did they ban me for something Ryle said?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1630) **Mrow**: Was he here? Oh, my fucking- oh, he got banned or something?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1635) **JSTLK**: I- sorry, I'm trying to read. What's up, Kelly?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1638) **Kelly**: Was he here when Rau got banned or something? I don't know.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1641) **JSTLK**: Yeah, I don't know. I'm trying to figure this out. Because Diggers was in the channel.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1647) **Kelly**: I don't know what you're doing. Okay, so they were all on VC.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1651) **JSTLK**: When it did it just happen? Is one of very few people in that channel who are capable of explaining information, yes. And so I saw him and I was like, oh, maybe he knows what's going on.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1660) **Dickers**: So I pulled him into the channel.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1662) **JSTLK**: What do you want to know?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1664) **Dickers**: Do you know what happened?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1665) **JSTLK**: With Rau? Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1666) **Kelly**: Yes.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1667) **Dickers**: Apparently, Ryle said something about, was trying to explain to somebody that you don't need to worry if Mora says that he's gonna r* and k* you because he doesn't know your address. If people say that they're gonna r* and k* you, don't worry about it unless they know your address. Um, and then Royal cracked a joke about it and that freaked somebody out and so, yeah, Morale got banned, but apparently, according to Royal and Morale, it wasn't Royal's fault. He didn't do anything.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1706) **Kelly**: That girl that you just dragged in said Morale has been threatening me here for a few days. He was timed out and came back. He said he'd slit my throat and s*** me until I'm unrecognizable. weird.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1717) **Dickers**: I I think he said that a few days ago. That was the first ban. But then I think he came back to explain his.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1725) **Mrow**: To his.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1725) **Dickers**: Explain his race play.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1727) **JSTLK**: Yeah, I did on time about. And then I said I was gonna re-time him out, and I did not. I said I was gonna give him a reprieve and then re-time him out. And I didn't do that. Unfortunate.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1736) **Kelly**: Oops.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1737) **JSTLK**: Hold on. We have some breaking news, guys, some incredibly important breaking news. Hard not to. Hard to know how to take this, okay?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1745) **Kuihman**: Breaking news. Willy is so pathetic.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1747) **JSTLK**: Willy is so pathetic. Willy has dropped his stream idea, his show with Dan Saltman. Fighting with Dario who cooked it was gonna put him in an impossible spot. Why though? I don't know why Dario. He's so butt hurt.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1761) **Kuihman**: No idea he lost his mind. Willy is so pathetic.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1764) **Dickers**: It's crazy. We're just following Dario wherever he goes. Willy is like Dan Saltman. Willie likes Dan Saltman. Deorito doesn't.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1772) **Kuihman**: Willie doesn't. I don't.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1774) **Kelly**: Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1776) **Kuihman**: So embarrassing. Dan Saltman can't think for himself.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1780) **JSTLK**: Dude.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1781) **Dickers**: Also, how weird is it that Dan is trying to pretend that he thinks that Deorito freaked out over the disagreement? Dan's the one who redacted his vlogs.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1791) **JSTLK**: No? Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1792) **Kelly**: Dan has been desperately trying to find someone that agrees with him. He was here earlier.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1796) **JSTLK**: I'm used to Dan redacting logs and like, like literally anytime there's a minor disagreement, I don't see that as like a reason I'd kick him out of my server. That seems like an escalation, but like it's, I don't know, if that's what you do, that's fine. I just messaged somebody, I don't know about you guys.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1816) **Dickers**: I deleted your logs, what the f*** is going on? That's weird. If somebody redacts all their logs with me, I'm assuming it's like complete bridge burn.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1825) **JSTLK**: Really? I don't know. Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1823) **Dickers**: OK. Like, you don't you no longer trust me to have this log, so, because you think I'm going to try and get back at you in some way. So it's like, OK, we've clearly got no- I don't have shared trust at all, then.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1836) **Kuihman**: I go, whoops. I don't know why you have shared trust with Dan in the first place. You trust Dan to act within his own interests.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1844) **JSTLK**: So that's all you trust Dan with. OK. Yeah. Well, Dan doesn't always redact DMs. Dan has his DM set up to auto-redact with some people. But mostly he doesn't redact DMs until he says something he shouldn't have.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1854) **Dickers**: I had to tell him that. I think they would have been totally fine to do a show together, except for the fact that, or, Willy and, you know, Dan would have been totally fine to do a show together. And Dan wouldn't have freaked out, except for the fact that Deoria last night said, Dan, this is why I will never do a show with you. That's what seemed to set Dan off.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1871) **Kelly**: Before then it was relatively cordial.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1874) **JSTLK**: Uh, well, it's... That did set him off. And then I think being dismissed set him off as well. I think being dismissed was not cool. Dude, Dario was so casual about it. Did you watch that? It's like the end of that, where he's like, uh, yeah, I think, I'm done talking, I'm gonna go on with my stream now. Man, that conversation did not go well. And he said it to himself. He stopped addressing Dan. He said it to himself. I was not a fan of that conversation, or whatever he said. And then Dan says something, and he's like, Dan says something back to him, and he's like, yeah, I'm gonna cover it, I'm gonna cover it, but I'm gonna go now, 'kay? I'm gonna let you go now. It's like... It was brutal. It was brutal. Uh, honestly, I don't know. How does... How does Willy get out of this with like any respect that he like made this decision?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1920) **Kuihman**: Because... Well, okay, because Nick's gonna do this, Nick's gonna go. Oh, I don't know. I think Willy realized that damage is a bit too unreliable, you know? I mean, people have done maybe a little bit too much charity, but we all gave down too much charity, so I mean, it's fine. And then we'd just move on. That's why.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1937) **JSTLK**: But yeah, in any just world, Willie.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1939) **Kuihman**: Would be treated like he would be treated like the absolute peer is constantly under the thumb of someone else, whether it's Dan, Destiny or Nick, just a total empty headed, low IQ slack jawed...
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1952) **Kelly**: Could they just be friends? Stop making me defend the Oreo today. I've had to do it once already.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1958) **JSTLK**: Could they just be friends?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1959) **Kelly**: Because they are friends.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1960) **JSTLK**: And they got each other's backs. Yeah. That's what I'm saying. Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1963) **Kelly**: Yeah, well, that's all that they're doing, isn't it? They're just mates. They got each other's back. I don't think it's any deeper than that, is it? No, but I was describing what they were being. Really? I know. I don't be a. They're just mates. I see it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1979) **Kuihman**: I don't think it's deeper than that.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1981) **Kelly**: Okay, that doesn't change anything I said. I mean, it kind of changes the motivations.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1985) **JSTLK**: Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1986) **Kelly**: Because you're like, I didn't say.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1988) **Mrow**: Behind why you might have done stuff.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1989) **Kuihman**: It's just their friends. I didn't say anything about Nick's motivation.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1992) **Kelly**: Well, well, Willy being pathetic or whatever it is you were saying. Yeah, that's true. Is it pathetic to do stuff because.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=1998) **Kuihman**: You feel like you're sticking up for your friend?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2001) **Kelly**: That's not why Willy's doing this. Well, you don't know what his motivations.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2005) **Kuihman**: Are and I don't either because neither of us live in the real world. He's not sticking up for Willy. The point that's being made here is that he cancels the show with Dan.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2014) **Kelly**: For seemingly no reason simply because Deori was fighting with him and the only reason he cancels the show with Dan is because Deori was fighting with him.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2021) **JSTLK**: And the only reason he cancels the.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2023) **Kelly**: Show with Dan is because Deori was fighting with him.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2025) **JSTLK**: If it puts him in a weird position, as Dan said, that's not no reason, is it?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2030) **Kelly**: It might just feel weird.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2021) **JSTLK**: I think, I would just want to know what opinion is on that stream that is not consistent with every past statement he's made. Right? Like, I understand that the statements on doxing are new, but the, the strategy behind making those statements, everything about him, everything about how he approached this has been consistent the whole time. Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2042) **Kuihman**: Nick's made the same statements as well, like with the Denim's chat stuff.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2045) **JSTLK**: So, yeah, I just don't know. I don't know what changed.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2047) **Kuihman**: You know what's so I'm saying as well, we watched on earlier, we saw Nick's reaction to that Denim's chat stuff and it comes up in idubbb content deputy. And Nick, it is, does the most disgusting, obvious, shameful sweeping you will ever see.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2060) **JSTLK**: It is like, so boring. It's like a, it's like a totally different one than, than his one on the stream. The stream one was pretty bad where.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2068) **Kuihman**: He just kind of goes like, ah, good one. Good, good one.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2071) **JSTLK**: Yep. Yep.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2072) **Dickers**: It was way worse. Way worse. And then when he, but then he watches it the second time because he watches Ethan's reaction to it. He just kind of like, talks with his chat. and responds to donos and just completely ignores it. It's like, oh, man. Even Ethan's taken the L here. But you defended it on the fact that... No, Ethan's actually describing it exactly the way that, like, I understand it. It's like, well, no.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2093) **Kuihman**: Ethan's saying it's a cutout and it's just been enlarged.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2098) **Dickers**: Yeah, I like Jason's timestamp is here. What's he gonna say? He says it's time delayed, cut out, enlarged, zoomed in.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2106) **JSTLK**: I don't know how any of that gets into edited and filtered. Hold on, hold on, hold on. Okay, I'll litigate the morale stuff, the morale and rile stuff after this. Oh, okay. Anyway, I will litigate all of this after we're gonna watch this, okay?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2120) **Kelly**: Ooh, I have chocolates. My friend got me chocolates for my birthday. I hate them.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2124) **JSTLK**: Based? Okay, here we go. Bring him on while he's doing this. Combines them. It's one chat on one stream at different points.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2133) **Mrow**: To make it seem like someone is.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2135) **E**: Coordinating an attack on you.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2137) **Mrow**: Love made a good point, you said.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2139) **Marcus**: Is this- Someone is literally coordinating an attack on him.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2143) **Mrow**: Absolutely, unequivocally.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2145) **JSTLK**: Every comment, I believe this is- Wait, who- that's a difficult claim, isn't it? Who is coordinating the attack? That's a really tough one. Who knows, man.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2154) **Kuihman**: That is a really tough one.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2156) **JSTLK**: Of course. I guess you could say, hypothetically, someone is doing it. Dude, how many times do I have to hear about the deep state tonight? Have you- oh, I don't wanna, you know, I don't know if I'm gonna be like Nick with tipster. But go for stickers.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2172) **Dickers**: Not supposedly, okay? Not hypothetically. I think the word definitively is used, right? Definitively somebody is conspiring against him.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2182) **JSTLK**: Yeah. Dude. Okay. Have you heard Destiny use this term, a propaganda resonance model? You guys heard this?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2190) **Dickers**: I don't think I have.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2192) **JSTLK**: I heard it for the first time tonight, and it's basically explaining how Kiwi Farms works with his haters on YouTube, like me or Queefman. to, like, basically ruin his life. Right. And it's literally, he just invented a word for conspiratorial thinking. He's just using, like, this. This is, like, the swamp or the deep state. It's a conspiratorial resonance model or, sorry, a propaganda resonance model. And this is, like, the same thing where people, like, people all engage in this exact Behavior, right? The exact behavior. And then they. They call out everyone else for doing. It's like, bro, you should just have a way to. Figure that out or just admit that you're wrong. I don't know.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2228) **Marcus**: Let's listen to it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2230) **Mrow**: Literally coordinating an attack on it. Love made a good point.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2233) **Marcus**: You said, is this someone is literally.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2235) **JSTLK**: Coordinating an attack on him?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2237) **Mrow**: Absolutely unequivocally.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2239) **JSTLK**: Every comment, I believe. That's sorry. That's the same as definitive. Yeah. Literally coordinating attack.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2245) **Mrow**: Absolutely unequivocally.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2247) **Kelly**: Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2247) **Dickers**: Believe this is a live feed of the chat.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2250) **JSTLK**: This isn't edited.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2251) **Mrow**: What about the top right? I thought these were. No, it's this. I think when you full screen it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2256) **E**: No, this is an edit. It's a cutout of the full. And then he plays This is the clip where Ethan explicitly tells you, okay, that they clipped the chat, and it's.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2262) **Mrow**: Like a cut out of it. Chat, this just enlarged.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2265) **JSTLK**: Oh, really?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2266) **Marcus**: Over the screen, yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2267) **JSTLK**: They're different, I think. What did- hold on, what did he just say?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2271) **E**: Sorry, I was trying to litigate this.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2273) **Mrow**: Okay, that they clipped the chat, and it's like a cut out of it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2277) **Kuihman**: Chat, this just enlarged.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2279) **JSTLK**: Oh, really?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2280) **Kuihman**: Over the screen, yeah. He's saying they explicitly tell you they cut the chat. Yeah, and it's not what they're saying at all. Even saying they've just enlarged it and slowed it down. It's not saying he's filtered it or.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2289) **JSTLK**: Any shit like that. Yeah, no, and it is clearly filtered. They're different, I think. Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2294) **E**: And like, it's directly explained to you.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2296) **JSTLK**: In the stream what exactly this is.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2298) **Mrow**: Like, Love literally says it's not timed the same way.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2301) **JSTLK**: It's not timed the same way. Like, all of the context is in the clip. Ah, ha ha ha ha ha. This is kind of brutal. Dude, we just rebuilt the Nick Bridge.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2311) **Kuihman**: This is brutal. It's just this is totally sweeping. There's no way to look at this.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2314) **JSTLK**: Other than just being f*cking dishonest.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2316) **Kelly**: What?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2317) **JSTLK**: Stop! I just, I literally just became friends with best friends with Nick again and you guys are gonna ruin it. God damn it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2324) **Dickers**: God damn it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2325) **Kuihman**: This f*cking- the worst thing as well was, why is it after a bridge burning? But it doesn't have to be a bridge burning. Just, why can't he not just admit.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2335) **Dickers**: Yeah, I've totally swept and been dishonest.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2338) **Kuihman**: To make Ethan look better. I can just stand on it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2336) **JSTLK**: 'Cause that's really hard.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2338) **Dickers**: We could probably just say that he was like, oh, get on like- Stretching his neck a little bit to try and make like a defense of Ethan or thinking that Ethan was like smarter than he is.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2347) **Kuihman**: We'll get on the stream and just like address criticisms. Like, what? What is such behavior? Just act like this off stream all the time. Refuse to engage with any criticism. And then suddenly start acting like, oh, this dogging thing's too far.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2362) **Dickers**: No, you've been doing the same sh*t for six months. Yeah, the worst thing as well was watching or looking at the tweet that you pulled up When you had Oggy on stream as well, when Nick's saying like, oh, when anyone with half a brain, anyone with half a brain could have told, well, apparently Ethan has got less than half a brain, interesting.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2377) **JSTLK**: That was so rough. I wasn't trying to insult Oggy by pulling that up. I swear to God, I was just like, no, it's obvious that the context here is people are going to look at the big thing on the screen, even with both of them there. It's just very obvious. I mean, that's the clear intention, right?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2393) **Dickers**: Otherwise you wouldn't have layered them like that to look like a pre-existing chat.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2398) **JSTLK**: I, and I don't know if we have this. I would just want to know who actually made this clip. Do we know the provenance of this clip? Because I would love to know, or was it H3Snark or, sorry, not H3Snark, was it H3H3 Productions? I don't know, because I've seen the clip posted on H3H3 Productions before, the Denims one.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2416) **Kelly**: Right?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2417) **JSTLK**: I just wanna know, like, the providence of it. I wanna know who directed it, who made it. I wanna know how this got put together. 'Cause it would be really funny if it was coming from somewhere similar to where the whole Diddy Party thing was coming from. Who's gonna show that to people?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2432) **Mrow**: But it sounds like, based on this.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2434) **JSTLK**: Clip, you knew that it was and.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2436) **Mrow**: You just went with it anyway.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2438) **JSTLK**: It's not.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2439) **E**: Denhams has confirmed, in her own video, that those messages did come from her chat. and all of it is after the.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2448) **JSTLK**: Wait, I'm actually so confused.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2451) **Kuihman**: So he's acknowledging that he, he is acknowledging there he has seen the Denims video. He knows what the Denims video says, and he is choosing to relay exclusively. So he's saying Ethan's exactly right in what he's saying on the podcast, which he's not. Ethan's lying. And he's also saying the only piece of information that video is, oh, Those chats were actually from her chat. That's not all Denim says though, is it? What Denim's points out is that that is filtered and has only 6% of.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2479) **JSTLK**: The chat messages that occur within the timeframe that's shown. At all.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2483) **Kuihman**: She like, there's no argument addressed here. It's just like blatantly dishonest. You're acknowledging here, you've seen the evidence. You know how Ethan's lying here and.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2494) **Kelly**: You'Re choosing not to point it out.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2496) **JSTLK**: You're choosing to make a statement that is technically truthful, but actually totally avoids the real argument, right?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2503) **Kuihman**: Which is basically dismissing criticism.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2506) **JSTLK**: Yep. Like when you say Hasan went to a ditty party, but you know that he says he left and that he was weirded out and, you know, all the circumstances. Or Hasan attended a brothel. It's the exact same thing. You're saying something that could arguably be like...
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2522) **Kuihman**: Okay, Moody Morgan in chat, if you don't see it, you literally don't understand what's going on. You literally do not understand what's happening if you don't see it. It is as simple as this. There is a chat log in this video that has 6% of the messages from that time frame. So from the first message shown to the final message shown, only 6% of the total chat messages that were in the chat in that time frame are there. It is filtered to include exclusively the CPS messages, kids messages, yardi messages. Those are the only messages that are shown. Ethan shows us on his stream and he says, oh, this is just enlarged and slowed. Look, it's just cut out of the corner. It's just enlarged and slowed. which is a total f***ing lie. It's filtered to exclude 95% of the chat messages. Nick watches this. He knows this lie has happened, but he says Ethan is totally correct. And then he says, Denim's has confirmed that those chat messages came from her chat in her video and does not present any of the rest of the information that would show that Ethan is explicitly f***ing lying. And he knows that. and the orio knows that he's acknowledging he's seen the evidence. So if you don't quite and go see it, you just don't get it. You're just not paying enough attention.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2592) **JSTLK**: You don't understand something's happening. Dude, I can't find. I had the link to the Denim's response video.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2599) **Kelly**: I do not have the link currently. Hello. Who this? I vaguely remember, like, well, not vaguely. I know what, like, has, like, Destiny and Hassan beef is, but why does Dan care this much? like, did I miss something?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2609) **Dickers**: I thought Dan and the song used to be, like, Bazzi maze, right?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2613) **JSTLK**: Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2614) **Kelly**: I'm just. Was there something significant that happened? Like, why is Dan on this specific Crusade now? I don't. Is it just because it's twitch? Is it because he's bored? I don't. He normally has, like, Hobbies and stuff.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2627) **Dickers**: He does when he's just bored. There must be something more about it being, like, feeling an Injustice over Stephen being banned. I didn't find out if that's the.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2635) **JSTLK**: Be all and end all, but. yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2637) **Kelly**: He's getting his son banned. Make it less of an Injustice.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2641) **JSTLK**: He's doing a rust Raider.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2643) **Kuihman**: It's a midlife crisis. You just feel cool, is it?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2646) **Kelly**: That's okay. I'm not here. Everyone's just talking over me.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2651) **JSTLK**: I just saw.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2653) **Kelly**: I. I haven't seen anything since I.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2656) **JSTLK**: Watched, like, half of Ryle's vod that he uploaded from yesterday where you guys.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2661) **Kelly**: Were talking to Auggie.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2662) **JSTLK**: So I'm not up on what's going on now, but I saw you guys.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2666) **Kelly**: Were just talking about Denim's chat and how, see, when I watched Ethan's nuke.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2672) **JSTLK**: Video, like, I've been watching H3, the, the podcast since it started pretty much. And so when I watched that, I had a sense of good faith with Ethan, and I had no idea how absolutely, like, chopped and dishonest. It's disgusting. I would just like to state my disgust.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2696) **Kuihman**: Wow.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2698) **Mrow**: Okay.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2699) **JSTLK**: Goodbye.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2701) **Kelly**: Oh, that was quick.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2702) **JSTLK**: Oh, hello.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2703) **Kelly**: And bye.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2704) **JSTLK**: It's. It's pretty tough. Love you. Bye.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2707) **Kelly**: Bye.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2708) **JSTLK**: Wow. So gross when I hear it back to me. Me. Oh, okay. All right, I'm back.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2713) **Kelly**: What I was saying is that I don't understand the thought process between, like, okay, if he gets Hassan banned, how does that make the injustice of a Destiny getting banned any different? Yeah, because it's not about that at all.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2725) **Kuihman**: It's like, that's kind of like a thin veneer of, like, motivation where it's like, okay, I kind of don't like Twitch for this, but the reason Dan's doing any of this is just because he wants to feel like a cool, epic internet leader who can send, you know, internet people after someone and cause things to change. He wants to feel like he's got power.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2745) **Kelly**: Nobody thinks he's cool. He's somehow managing to make an argument that even the people that like him are not agreeing with. It's like, I don't get it. Who is he trying to win over here? I don't know. I feel like everyone in this space is pretty against the whole idea of report culture and getting people banned over bullshit, right? So I don't, why would you want to then go on that crusade? I don't get it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2773) **Aiden**: Hi, Kelly.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2775) **Kelly**: Hello.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2776) **JSTLK**: Hi.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2777) **Aiden**: Sorry. I just wanted to say hi. It's me, your best friend. I needed to briefly come in here. I'm about to leave, but you guys are kind of, you guys are enabling, like, pure laziness right now. Dickers was supposed to release a Cameron F-305 video, like, weeks ago, and instead of working on that in any meaningful capacity, he's sitting in this VC contributing absolutely nothing. So, what do you have to say about that? Do you follow him on Twitter?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2804) **Kuihman**: I will say, I will say I.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2805) **JSTLK**: Have no heat for Shamu until Shamu finishes his next Tek Dome video, okay? Shamu, I know you're watching right now. Get to work. I don't care if it's in review. Give it to somebody else to review. That guy's too f***ing slow.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2821) **Aiden**: Yeah, I knew you were here. I knew he was here. Shamu releases quality. Okay, so the wait is worth it. Releases mid. We shouldn't have to wait this long for mid. Let a r*** get away with it. Let the world know.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2831) **JSTLK**: Thanks. Wait, wait, wait, wait, wait. Oh, I wanted to get his reaction. I don't know if he heard. You think he knows? He probably knows. He's probably spicy. Though, about the podcast being done. Oh, yeah. Damn. Okay. Do you guys think it's worth it to go back and explain this whole thing? Like, go back and show it with the original Denim's video?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2853) **Kuihman**: I can't remember. Somebody linked me the Denim's video last night. Might have been you, Quimby. I can't remember. Oh, I don't know.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2861) **JSTLK**: No, it wasn't you. It's just playing. It's just playing. Ethan just straight up lies about the nature of that clip and Nick totally straight for it. And it's blatant.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2861) **Kuihman**: Not.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2861) **JSTLK**: Yeah. Denim's contradiction with the video. The reason she says they're lying or. Yeah, they're lying is because she says there's a massive chat that's blown up. It's filtered down to just these messages. It's like six percent of the messages or something. Right. From that chat. And when you only show those six percent of the messages and say, look, everybody in her chat was, like, clamoring to get CPS called, it gives the wrong impression. It's, like, totally disingenuous for you to do this, even if the chat's up there and. The way they're engaging with that is saying, like, oh, it's like really obvious that, like, it's really obvious that, oh, that's not all of the chat. And not only that, all of those messages were said in the chat, so it's the same thing.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2900) **Kuihman**: It's not like those chat messages weren't sent, right? Guys, like, mad. What I'm pub- what am I doing? Right, I'm in public, you f***ing mongoloid. What do you mean? Yes, Nick the Oreo sweeps Ethan like f***ing crazy. He describes this guy. I will talk to Nick anytime about this. He doesn't want to talk to me about it. He's said as much. Call him out on Twitter. Oh, do a gay debate tweet right now. Do a gay debate tweet, otherwise you're hiding.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2924) **Dickers**: The fuck are you talking about, you mongoloid? Have you heard anything from Augie about.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2929) **Kuihman**: Like, getting a debate together or no? No, he said last night he would.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2932) **JSTLK**: Be interested in setting it up.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2934) **Dickers**: But, said he thinks it's good, would be good. I feel like after Nick's debate with Augie a few months ago, there's just like no interest. after they debated on the Willy Mapp video the first night.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2942) **JSTLK**: After the f- Wait, I'm actually- Sorry about that. Um, I think they just, they see a lot of, like, they see enemies everywhere, right? Like, the whole thing with Chud doing the call out, like that was suddenly, oh, Chud's like trying to snake this guy and take his audience. It seems like an unreasonable standard to have. And it, like, chills all possible criticism. so you just get like these big waves of people like you can't ever criticize people going hyperbolic, like being way too hyperbolic their takes being like way over the line and you constantly like chill any of that like commentary coming back at you then obviously you're just gonna go way off the rails into like three skulls were sent for each of his children, you know, Nazi swords, he's gonna get way out to lunch. So speaking of, I just got food, what's up? Ellie singing.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2995) **Kelly**: I didn't realize it picked up my man.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=2997) **JSTLK**: Well, well, but did you just leave?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3001) **Kelly**: Yes.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3001) **JSTLK**: Okay.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3002) **Kelly**: Why don't people say bye these days? What are you guys? So rude.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3007) **Kuihman**: God, I think you said something. Just either no one listened or we didn't hear it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3010) **Kelly**: You didn't say bye last time.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3012) **Kuihman**: I did say bye last time, but you either didn't listen. I didn't hear it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3017) **Kelly**: I doubt it. I dou it, you said nightn. I I wasn't night, was it? You came back?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3024) **Kuihman**: No, I think you said night, said I were about through it earlier, I believe.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3028) **Kelly**: But you so quite un the evening lot?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3030) **JSTLK**: Thiscourage one lis and gra rest stored the streams in initial f to stor.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3035) **Kuihman**: His things his life.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3042) **Kelly**: On friendh Jesus..
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3044) **JSTLK**: Wait, why is my chat up on the side? The hell? Do you guys see this? That it's like, oh, this is like all your chats. They have something for the site right now. Okay. I guess we're back to the Moran thing. I can't remember. We went over, we looked at the content deputy, and then apparently the reaction.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3061) **Kuihman**: To the content deputy is also not good, right? From Ethan's reaction. Oh, right. Yeah, just like, he just like pays.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3068) **JSTLK**: Attention to Dino's all the time and doesn't address it at all. It's like, oh, very worth watching. All right, I got you. All right. It's kick. What do you expect? I mean, I expect some professionalism, god damn it. All right, are we moved? We're moved on from this. We finally go back to figuring out what happened with Morau. I think I'm just gonna talk to people about this. We'll see what's going on. Okay.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3085) **Mrow**: Thank God.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3086) **Kuihman**: There's Morau not around. You'll just bring Morau in and have him explain it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3091) **JSTLK**: Sure. Let me untie up Morau for stream content, right?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3095) **Kelly**: He's not gonna give the most impartial account, is he?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3098) **JSTLK**: He'S already been saying, oh, I don't.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3100) **Kelly**: Think I said that, actually. I'm like, well, yeah, his victim didn't.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3104) **Kuihman**: Want to testify, so that's their own fault.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3107) **Kelly**: Well, we just have the deleted messages, I assume. Or was it on VC?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3112) **JSTLK**: Okay, gentle whale, thank you very much for the 10 gift. It. Another hour on the stream. Let's go. He's already back. Oh, did I not. I don't know how I just added him without him actually hopping on stream. It's possible we'll have a A clip, okay? A clip of our boy Quimby doing.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3128) **Kuihman**: His Willy impression, okay?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3130) **Kelly**: Uh-oh.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3131) **Kuihman**: Masabono, Masabono, you showed the read, read mighty well, Masabono.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3136) **JSTLK**: Explain the tenor media scandal to me, Masabono. I wonder, did you see him replying to that thread, like posting the fail docs in Desi's community again?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3146) **Kuihman**: Did you see that, Quimby? No, he told me earlier. You told me earlier. This is the second time you told.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3152) **JSTLK**: Me about it, though. well, I'm sorry. It was gonna be. I thought I was wondering if that had to do with part of his, what do you call it, rationale for getting off the. The podcast with Dan, just seeing who he was in bed with, you know? No, I don't.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3164) **Kuihman**: I don't know why Willie would ever. I don't know why it would ever give you a single idea that Willie gives about doxing or anything like that after the last few months.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3172) **JSTLK**: Probably cares significantly more about it out in the open like that in a community.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3176) **Kuihman**: He's, like, openly. I don't think that had literally anything.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3179) **JSTLK**: To do with it. you can say that. I thought you would. What's come back? You good? No, I think. I think things hit people at different rates. Okay. And when you see that, I don't know. You see the. The other doxing thing. I think those add up.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3193) **Kuihman**: I don't think Willie is engaging in any kind of, like, critical thought or realization. I think it is because Nick is saying it's bad to hang around Dan now. I think anything else is complete delusional. Willie is not engaging like that. It's blatantly obvious. He literally thought Destiny was like, basically, he was like, I don't know. We give a quitting this Destiny stuff, and I had to be corrected by Nick initially. Like, this guy's a total.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3219) **JSTLK**: I don't know why you think he's having a position on it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3222) **Kelly**: It's not.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3222) **Mrow**: It's just what Nick says. I just agree to disagree. Go ahead, man. Oh, there he is.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3228) **JSTLK**: So I did.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3228) **Mrow**: I did give a. A death threat, like, a couple days ago, I said, because I said, I need to explain the whole story, or else it seems like I'm really crazy and I'm not. Okay?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3238) **Kelly**: Uh-huh.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3239) **Mrow**: So I joined the VC, there's like 40 people and it's like a really big VC, everybody's muted except like five people though, okay? And this Barbie girl is like annoying and she starts trying to talk to me and I say something along the lines of, don't talk to me, you're annoying and I hate you. And then she's like, what the f*ck did I ever do to you? And then like for 10 minutes straight basically, this girl is constantly trying to ask me, like, why do you hate me, morale? What did I do to you? And I just keep telling her to shut the up, and then eventually, you.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3271) **Kelly**: Can mute people, right? Yeah, I.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3272) **Mrow**: You're telling me. I I'm well aware of that. Okay? I'm well aware of that. You need to tell that to this broad, okay?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3280) **Kelly**: That keeps complaining. Why didn't you mute her?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3284) **Mrow**: You wouldn't have been able to hear.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3285) **Kelly**: Her complain about you if you'd ever muted.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3288) **Kuihman**: Because it's way funnier to cause conflict and.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3291) **Mrow**: All right, well, let's just.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3287) **Kelly**: Make that clear.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3288) **Kuihman**: Well, I'll finish the story. Let's carry on.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3291) **Mrow**: Yeah, sure, sure. So eventually it comes to the point where I'm at my breaking point. I say, if you don't stop talking, I'm gonna find your IP. Okay? Which I can't do. I don't know how to do that. And then she starts freaking out. And then I say, I'm, and then I do, I do this. And then I say, do you hear what that is? Or if you don't quiet down. And then she announces her. She announces her address in the VC and tells me to come find her. And I'm like, whoa, Jesus Christ. Yeah, yeah. She announced her address. She told me to come find her. And then I. I did threaten to her and stuff like that, but she's been, like, making it seem way more extreme than it was.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3334) **Kelly**: I did threaten to her.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3336) **Mrow**: I did. To be clear, I did. But she's been saying, like, she threatened to sh*t my face until I'm unrecognizable. I never did that, okay? I did not go that far. I did threaten to sh*t her at a base level. But I think what she's doing, she's doing like a smear disinformation-esque campaign. She's like trying to say that I'm worse than I actually am, okay? It's very evil and f*cked. And I think, I did apologize. I did say that I wasn't gonna do any more death threats when I got muted initially. okay? And I've. I have stood by.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3369) **Kuihman**: She was being really annoying, right?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3371) **Mrow**: She was being incredible.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3372) **Kelly**: Initially, this is a time before or the shell time or how many times?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3380) **Mrow**: I think she warranted Kelly.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3381) **Kuihman**: I can't say they did anything.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3383) **Kelly**: You said you would.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3384) **Mrow**: I did not say I would. Shell, pull up the message.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3387) **JSTLK**: I have the message.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3388) **Mrow**: Where is it?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3389) **Kelly**: In there, too.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3390) **Mrow**: There was in there. I didn't say I would anyone. I would not say that.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3393) **Kelly**: Hold on, J-Sock. I mean, I don't- I did.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3397) **Mrow**: J-Sock, pull this up to the evidence board, please.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3401) **Kelly**: I gotta make you look less weird. I don't know. Is it really hard for you to like control yourself so that you don't.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3407) **JSTLK**: Say these types of things? Rau said, I think she just wants to be left alone, but good luck. And Rau responds, yeah, I want you doxxed and r*ped, but you don't hear.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3417) **Kelly**: Me flapping my lips about it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3418) **Kuihman**: That feels like exactly what I just said. Well, no, he didn't say he was going to doxx me. Yeah, no, he said he wants her docs, he wouldn't necessarily know what difference that makes.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3427) **Kelly**: You just want it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3428) **Mrow**: I'm not going to be doing whether.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3429) **Kelly**: It'S you or anyone else. You don't mind who does it, but you want it to be done. I'm sorry. That doesn't make it look best demented.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3437) **JSTLK**: It's just.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3437) **Kuihman**: It's not a threat.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3438) **Mrow**: Well, to be fair, I think it would look significantly worse if I was going around threatening women. I'm not like that. I think women are beautiful and I think we should listen and learn and.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3448) **JSTLK**: Okay, like, hypothetical, you clearly had, like, a holdover, right? Clearly. What if she was in my Discord and she read that message and she was like, yes, I I read you loud and clear. Okay. Yes, Mr. Morale. Yes, Mr. Morale. I hear you loud and clear.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3462) **Mrow**: You think my. My. My ethnic. My ethnic companion would have doxxed this. This sort of snow monkey is what you're saying. Okay, well, I I was not intending to threat. Listen, publicly, I apologize. Okay. I apologize that you got so upset at what I said. I was not trying to threaten you, threaten you, okay? That's not the case at all. And to this Barbie person, I do think this Barbie person is incredibly subhuman, and I think they should come on stream and litigate this. And the fact that they're running repeatedly while also being a former Wick mod and a current Malcolm mod, you know, I think it's relatively appropriate to take.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3505) **JSTLK**: This person who says they're, like, afraid of you and start saying where people can find them. that's like an appropriate response right now. Dude, it's pretty unhinged. They're a public figure and this is on Discord. I don't care. Why isn't being a mod matter?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3519) **Kelly**: Like how? Like what?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3521) **Mrow**: They're all public.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3522) **Kelly**: They're a wick mod.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3523) **Mrow**: Like, well, I think, Kelly, if you were a wick mod, I think you would have a very different, I guess, phenotype, if you get what I mean.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3530) **Kelly**: How? Okay, well, your. Her phenotype is not why you're weird.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3535) **Mrow**: Kelly, do you disagree?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3537) **JSTLK**: No.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3538) **Mrow**: I rest my case. I rest my case.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3541) **Kuihman**: I don't know why you've been so.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3543) **Kelly**: Weird the last week, but can you not just be normal?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3545) **Mrow**: I don't believe I said I would split her throat. I think. I think it was exclusively the gun. I do know for a fact that I did not say I would or I would shoot her in the head until she's unrecognizable. I do know for a fact I did not say that the slitting of the throat, I'm less. concrete on, I guess that plausible. But I don't. So you said it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3566) **Aiden**: I don't believe I did, but I.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3568) **Mrow**: Don'T believe you did just own us.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3569) **Aiden**: Like, yeah, I. I threaten to take the lives of my enemies online. Well, I did with a gun.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3575) **Mrow**: I don't think I did it with a knife, is what I'm.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3578) **Kuihman**: Because it's true that you're holding out evidence on us and you have screenshots.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3583) **JSTLK**: And clips from voice chats.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3585) **Kelly**: Nope.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3585) **Kuihman**: Why is this Barbie person claiming you have that?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3588) **JSTLK**: And I got sent screenshot. Oh, hold on. Let me look at my message requests. No, I don't think so. Were you sent to somebody else? They might be sitting in my mod chat and I'm just unaware.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3600) **Kelly**: Oh, the top answer is I wasn't not intend to join the VC.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3604) **JSTLK**: I thought Zoe was joining the VC.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3606) **Kelly**: Why is that an option?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3607) **Kuihman**: Is Zoe proud Pro or anti-morale which. Which side is Zoe on?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3612) **JSTLK**: Anti-morale over the shellbunner comments shockingly what?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3616) **Kelly**: See if I've got.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3617) **JSTLK**: Apparently I have voice calls here. Let me see. Listen, I did do a death threat.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3622) **Mrow**: I just don't. I don't want to be, you know, listen, I. I think this Barbie person, there's some. There's some Avenue of Peace we could find, and they're not. They're not going down that road, I guess.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3634) **Kuihman**: It seems like this person is the problem, not you, Morale.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3637) **JSTLK**: Oh, yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3637) **Kelly**: It's not like morale is being deranged for three other people in the last one.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3641) **JSTLK**: It's possible. But I mean, we basically just meme this whole thing.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3644) **Kelly**: It has to be the women who. for a fault. It can't be more.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3648) **Mrow**: Kelly, I just don't understand why you have this, like, this, like, vendetta.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3652) **Kelly**: Probably because show burner said absolutely nothing crazy. And then you responded with that. Oh, no way. Yeah. I don't believe you. I think you're full of.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3661) **Kuihman**: Yeah, you gotta think about it. But, Jerry, what about. No, sorry. Good one.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3669) **Kelly**: That's the other woman. Cute.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3673) **Mrow**: Would it help if I said I was in Iceland right now and it would be impossible for me to kill anybody from America here?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3679) **Kelly**: I mean, I don't think anyone thinks you're capable of killing anyone.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3682) **Kuihman**: It's not really the point, is it?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3683) **Mrow**: Thank God. Okay.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3688) **JSTLK**: I just feel like dead air right now really serves to like focus in on Queen's comment. So I'm just gonna let it hang for a little bit.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3694) **Kelly**: I said I am the other woman. It was a joke.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3697) **Kuihman**: They've got some other syllables. It's easy, too.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3699) **Mrow**: I've just gotten a dono that says Kelly blows dogs for orders. I don't know if this is. I don't know if that's something I should, you know, bring up, but I don't know.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3710) **Kelly**: People give you money.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3711) **Aiden**: That's some Kelly owns you.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3712) **Mrow**: Kelly, you really broke this Aiden guy.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3715) **Kuihman**: Jesus. So I. I'm just. I'm reading this chat and, like, I can't help but feel as though I.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3722) **Mrow**: See a message from Maximus, who I am. I am best friends with in private, so I don't know why he's saying this. He says they're both fake. He said something unhinged enough it matches the unrecognizable. I just thought I would pull her with a gun. I think adding on to the, I think adding on to the, like the unrecognizable adds like a level that's like.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3744) **Kuihman**: You really consider the context as well.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3745) **Kelly**: She wasn't going to shoot her, not till she's unrecognizable. Just her a bit.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3750) **Mrow**: I just pop her once in the head. I don't understand, like why would I go overboard, I guess.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3754) **Kelly**: Why would I go overboard as the message saying I want you to drink on a Screen.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3760) **Mrow**: Well, I understood my shortcomings.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3762) **Kuihman**: Okay, that's that behavior.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3764) **Kelly**: I mean, that is out of context, to be fair. No, it's not.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3768) **JSTLK**: The context makes it worse because it's a normal conversation. No, you just lose your mind.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3774) **Kelly**: No, the context is that it's shell butter and anything against shell butter is a personal attack.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3778) **Kuihman**: No, we don't have shell burner exception here.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3781) **Mrow**: There is no exception. Name the person. She's really annoying.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3785) **JSTLK**: I guess ultimately, Kelly, I guess like what criticisms or I guess advice do you have? How do I avoid? Before you respond to that, Kelly, I have to let him around. Stop saying people should be that I can set my price to keep morale banned from the community. I kind of want to test how high that price could go.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3799) **Mrow**: Who? Who said this?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3801) **JSTLK**: Some. Some random donator just said, like, set a price and. Ah, how much. How much to keep morale out of the community. So I just. I don't know who that is, so I'm kind of hesitating, you know?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3816) **Mrow**: Listen, if you get a ton of money for banning me, I'm not gonna be. Listen, it is what it is.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3821) **Kuihman**: Okay?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3822) **JSTLK**: I wouldn't actually ban you, like, long term. Hold on. Time out, Zoe. I don't know how long Zoe was timed out for, but she needs to go again. Unlucky. Unlucky.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3836) **Aiden**: So is Zoe the person that Paragon sent us to?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3840) **Mrow**: Yes.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3841) **JSTLK**: Yes. Thanks. Which now makes it really weird that I just timed her out. So.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3846) **Kelly**: Wait, why did Zoe get timed out?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3849) **Aiden**: Sweeping for Paragon? Interesting.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3854) **Kelly**: Oh, an untimed out. Okay.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3855) **JSTLK**: I can't explain it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3856) **Kelly**: She came back and said morale is up.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3860) **JSTLK**: People are sending me screenshots from your Discord to litigate now, Kelly. So I hope- Apparently this poor random fellow Someone said that he should be right and you just didn't care about it. I know you don't actually care. You said, I know it doesn't matter.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3876) **Kelly**: If this is anything to do with Lotka, I do not care. They would constantly sit in there and wind up Lotka and it was just very boring. I said I wouldn't deal with any of it because- okay, but show can.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3888) **Kuihman**: Just be as annoying as she wants.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3889) **Kelly**: And no one will say anything. And like, she'll-.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3894) **JSTLK**: Remember when Yoge threatened to rip chel dog?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3897) **Kelly**: I don't think that's been to my Discord for months either.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3899) **JSTLK**: That's awesome. We didn't time that guy out. Should we time that guy out?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3902) **Mrow**: Yeah, free that.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3903) **Kuihman**: Free that guy. Free that guy. Free that guy.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3905) **Kelly**: April f***ing hell, it's July.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3908) **JSTLK**: Uh.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3911) **Kelly**: Yeah, the exceptions are men saying they want to r* women is worse. Don't fight me on that. Deal with it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3919) **JSTLK**: I just think being timed out for like a reasonable amount of time is probably okay. Because... Well, what did I even do?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3926) **Mrow**: What do you mean? What do you mean?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3928) **JSTLK**: I let you out early and you should have been let out early. You do need to sit out. You need to stop doing like these stupid edgy comments to random women in my life.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3935) **Mrow**: Listen, I've significantly toned down and what if I apologize and what if I promise to not...
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3942) **JSTLK**: I think if you're like...
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3945) **Kuihman**: I don't think any of these are a big deal really, are they?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3947) **JSTLK**: Uh, this one's pretty bad. you can't do this one. The. The shell. Which one? I don't know if it's.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3954) **Mrow**: Okay.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3954) **Kuihman**: That was, like, a month ago.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3956) **Mrow**: Nope.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3956) **JSTLK**: No.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3957) **Mrow**: That was, like, a month ago. I I've. I've served my time, whatever it may be, for that one. I got timed out for, like, two days for that already, and I served that.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3966) **JSTLK**: It's fine. You weren't. You didn't serve out all your time.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3969) **Mrow**: I timed you so you could come and talk about your weird. No, not for the.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3973) **JSTLK**: For the shell. The shell burner one was a while ago.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3976) **Kelly**: That was months ago.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3977) **Mrow**: Oh, right, right, right, right. There's a month, probably. the Barbie one was, like, three days ago or something.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3981) **Kelly**: Okay, so why did you get timed out today?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3983) **JSTLK**: I.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3984) **Mrow**: Well, that was because someone said that I said something that Ryle actually said, and I got in trouble for it when it. I didn't do anything.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3991) **Kelly**: I see.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=3992) **JSTLK**: The irony here is that RAO. Sorry, Ryle literally just DM me 30 seconds ago. RAO isn't routing me out, and I'm not going on without RAO. I don't know. Oh, is he behind on the VOD? Mao did.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4003) **Kuihman**: I don't know. What did he say?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4005) **Mrow**: Is that ratty? Okay, okay, well, I'll say what he said. He said Kelly is defending because she is cheating on her husband with Kelly. They're. Okay, I don't know if that's true, but regardless, you don't know.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4019) **Kelly**: That's true. Obviously, it's not.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4022) **Mrow**: I just don't know.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4023) **Kuihman**: Unconfirmed reports. Unconfirmed reports.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4025) **Mrow**: Okay.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4025) **Kelly**: Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4026) **Mrow**: Ryle said, why did you give Mau your address if you didn't want to be in And then they said, I think that I said that I was going to rip them.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4036) **JSTLK**: That's like a good example. No, no, no. But that is a good example of a timeout that probably should just happen. Like Ryle's got to go until he can learn to control himself. Right?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4046) **Kuihman**: Wait, for saying, why did you give him Ryle your address if you don't want to be ripped?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4050) **JSTLK**: Yes.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4051) **Kuihman**: That's fair enough.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4053) **Mrow**: To be fair, I think that's, I think that's reasonable. I think that's fine.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4055) **Kuihman**: I think that's a reasonable comment.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4057) **JSTLK**: That is a totally reasonable thing. Yes. Yes, to ask that question. But you have to understand that most people don't hear that, most people can't see that, right? But it is, sorry, just the general sentiment that like I would not give my real my address ever unless I wanted to be I do agree with that sentiment entirely. But saying that to somebody on a Discord who doesn't know around that well.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4076) **Kuihman**: It just seems like you're like long house. You're long house right now.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4079) **Aiden**: It will, it will, it will further incite like genuine fear of physical harm, right? And I think from a content creators.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4086) **Kuihman**: Perspective, it's totally reasonable to long house. Long house, this guy defends Indians. by the way, this guy defends Indians on his stream.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4091) **Aiden**: Yeah, Indians on you, you're mad and.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4094) **JSTLK**: Indian took your girlfriend. Problem. Okay, we're on the same side here, Aiden, but that's a pretty tough one for me to deal with, just so you know.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4103) **Mrow**: That's actually not true.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4104) **JSTLK**: I love Indian people. I'll want to- I'll- I'll- Ryle. Did Ryle admit to leaking B's IP address just prior to her being a re- and spilling her full address? Yeah, I mean, I assume if Ryle wrote down an IP address, it's totally made up. And if people took that seriously, I feel like they're goofy.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4120) **Mrow**: I believe you just post the local IP thing.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4122) **Kuihman**: You just post that?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4123) **Mrow**: No, I went to ChatGPT and I said, I'm writing a book. Can you give me a fake IP address for someone, one of the characters? And then I just read that out loud.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4132) **JSTLK**: Bro, do you know what an octet is?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4134) **Mrow**: I don't think I've ever heard that word.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4136) **JSTLK**: No.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4136) **Mrow**: Okay, never mind. What is it?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4138) **JSTLK**: Smile. Nothing. Don't worry about it. Bro bricked his PC trying to put.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4143) **Kuihman**: The CPU back in. Not shocking. it sounds like Mara just did a bit of light trolling in this check.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4146) **Mrow**: It way too serious.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4147) **JSTLK**: Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4147) **Mrow**: I mean, she is a former, you.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4149) **JSTLK**: Know, Wick mod, current Malcolm mod. Ryle, I, I know you want to come and give you your side of the story, but I think you just want to go and, like, yell about meowdi's.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4159) **Mrow**: I think if I let you on here, you're just going to come on and rant about meowdi's instead of actually giving your side of the story. Because you're saying the story is, I think, I do, I, I think while meowdi's does have, you know, she is criticizable. I think ultimately she made the right decision by, you know, unmuting me and think I think a lot of us, including Ryal, can, you know, come to a an understanding maybe about, you know, being friends with one another. I think we we can all I mean, th this culture of, like, allowing like, do like death threats and threats and stuff needs to kind of stop, I think. I think ultimately we we kinda we.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4186) **JSTLK**: When looking with culture, You're always you've always been a weirdo, you've always been aberant in this community in that way. Don't don't think out the culture.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4194) **Mrow**: Well, I'm just, I'm just thinking that.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4196) **Aiden**: We need to move past it. That's all. J-StuK, just to play devil's advocate here, there is another side of this that's problematic and it's your moderation, okay? I simply asked someone if they were a man or a woman, and I got server muted just for asking them if they were a man or a woman. Kenny then comes in and undoes that meeting because Kenny is a very reasonable person. We love Kenny, kind of owns you, right? And Kenny undoes that meeting. and then I find out later that Kenny, as a result of that, was given a time out for an hour. Thoughts?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4226) **Kuihman**: Was that a trans person you asked?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4228) **Aiden**: I didn't know if they were. They had, like, a very, like, ambiguous voice.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4232) **Kuihman**: What was that username? What was that username?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4234) **Mrow**: I don't know.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4234) **Aiden**: They had a picture of a hand. Is their profile picture?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4237) **JSTLK**: I don't know. I don't know. I just tried to time him out. He's literally left the server. Ryle Rann? So the evil Johnny Bravo says cringe server mutes are way worse for your server than death threats if I had to guess. So the server mutes are a problem because, oh, Ryle was banned? Jesus, Ryle keeps spamming F slurs in my messages. No, no, Ryle didn't leave, Ryle was banned. I just maligned Ryle's name.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4268) **Aiden**: Give me a second. Is this a picture of Aiden? What the f***?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4272) **JSTLK**: I know. Do not pull it up if it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4274) **Aiden**: Is what I think you got sent.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4272) **JSTLK**: Is that real?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4274) **Aiden**: Is what real? If it's the one I think you got sent?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4278) **JSTLK**: No. Okay. It is real.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4280) **Aiden**: I don't know what he's talking about.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4282) **Kuihman**: I know what he's talking about in Israel. It's the one where he looks so spotty and that's real.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4288) **Mrow**: At Marau, Shelby lives in a trailer and drunk out of her mind every day. She f*cked her cousin and her mom is a schizophrenic abusive crackhead. I don't know if that's true.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4299) **JSTLK**: Hold on, I'm trying to figure out, dude, why can't anybody in this Discord just be normal?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4304) **Kuihman**: I think Raul and Ryo had themselves pretty well.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4307) **Mrow**: I'm just like, like I said, Raul, you give off chill vibes like you low-key like kids, but you went to therapy and got impulse control and you would never hurt one if you know what I mean. Happy when I see your streams smile. Don't know if that's true.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4322) **JSTLK**: I've not waited in with my opinion on this and people are like getting mad at me. okay, dude.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4326) **Kuihman**: Wait, wait, wait. I just realized. So we were talking about the Willy thing a minute ago. So eight hours ago, Leroy something puts out a tweet saying, hi at Willy Mack show. What are your thoughts on current Nick and Dan discourse? I love to hear what you have to say. Three hours ago, Willy Mack replies to that. Tune in tomorrow, LOL. So up until literally three hours before it was canceled, even two hours before it was canceled, Willy was on board with this.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4354) **E**: Very quick change of his mind there.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4355) **Mrow**: Very rapid.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4354) **E**: Anonymous just tipped $5. I actually like Maru and Ryle, but here's some more money to fund their reeducation. Okay.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4361) **JSTLK**: Wait, what? Hey, Ryle should be able to join. I don't see him in the waiting room. I'm waiting. I don't know if he's joining. Maybe he's not joining. Okay.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4371) **Mrow**: Also, can you link the Willy Mac tweet or are they deleted? Oh, I can grab it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4377) **E**: Hold on.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4377) **Mrow**: Barbie's saying, I'm certain this will go well and will result in Ralph following me to three different VCS. She said before she left the VC, you're welcome to follow me if you want. and then I followed her. She gave me permission. In fact, she invited me.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4385) **Kuihman**: So confused.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4386) **Mrow**: So true.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4386) **Kuihman**: So based. Like, I don't understand.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4389) **Mrow**: Why was she. If she's mad, if she didn't want me to follow her, she didn't have to say that. I don't understand.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4395) **JSTLK**: I'm sorry. Hold on. What? I@WillieMacShow, what are your thoughts on the current Nick and Dan discourse? I would love to hear what you have to say. But tune in tomorrow.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4406) **E**: Wow.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4407) **Aiden**: Three years. He's gonna be taking a strong anti-Dan position tomorrow. That's what my sources have confirmed.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4411) **JSTLK**: Do you guys think that, do you think Willy actually canceled or did Dan just go like, hey, I know like this is who I have to ask, but can Willy still come out to play tomorrow? And Nick was just like, no. No, he can't. No, Willy, do you think Willy even knows that it's canceled yet?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4426) **Aiden**: Wait, you think Nick and Dan are still in contact?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4430) **JSTLK**: I was definitely discussing a totally real thing that probably happened.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4434) **Aiden**: I know you're speculating, right?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4437) **JSTLK**: I'm not even speculating. I do not think that Dan actually went to Nicholas DeOrio and said, hey, can Willy still come on my show? And then Willy, and then Nick said, no, he can't anymore. And then Willy was never consulted. I don't actually think that happened, literally. No.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4450) **Aiden**: Oh, okay. You would be the type to believe something like that. So just wanted to double check.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4456) **JSTLK**: All right. Thank you, Mom.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4457) **Kelly**: And my friend come out to play.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4459) **JSTLK**: Oh, wait, was I imagine if they do the show tomorrow, the schedule is going to be insane. So that's what? That's four hours ago. So an hour after this tweet is when he says tune in tomorrow, right?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4473) **Kelly**: Damn. Cancel the day before.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4476) **JSTLK**: Wow. It was canceled the day before.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4480) **Aiden**: Well, can we talk about how Nick went after Dan harder than Queenan ever could? I guess crazy like that. That Queenan swapped for Dan harder than Deoria.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4490) **JSTLK**: You know why, right? Why?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4491) **Aiden**: Because if you just constantly tell Dan.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4494) **JSTLK**: Dan, you're crashing out. Dan, this is not good. Dan, you're not. Dan, you're not making a good argument right now. You just tell him that, like, softly, then you don't have to, like, scream at him or have, like, a meltdown.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4507) **Kuihman**: You just eventually use nose. You're just like, you are just filtering yourself. You're just announcing that you don't. You just can't see how everything's working.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4516) **Aiden**: You're filtering yourself hard right now.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4517) **Kelly**: Me?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4518) **JSTLK**: Yeah. I'm talking to what?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4520) **Kuihman**: Aiden can't see the mechanic to play. Aiden can't see the way things are moving. And he's like, oh, you're not going off to Dan, but Dan's so evil. It's like, yeah, because you're dumb.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4529) **Aiden**: Do you have some secret plans in the works or something?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4532) **JSTLK**: You've had this discussion before. I see.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4534) **Kelly**: Is Kelly not gonna respond to all this around? Talked about her. Is that true? I'm no clue. We need to talk about me.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4543) **Mrow**: No, I am actually a Kelly fan. It does not seem like it's reciprocated, but I am a Kelly fan.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4549) **Kelly**: Not what I am.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4549) **Mrow**: You make me laugh a lot.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4551) **Kelly**: Okay.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4553) **JSTLK**: I think, I think Nick's dropping a video on Dan. How did this all go so wrong so quickly? It's almost like there were people in the background consistently pushing for this to happen. I would never, you know, I'd never assume that or think that, but this just happens so quickly. It's crazy.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4569) **Kuihman**: Okay, I've received a DM from @salvopancakes on Twitter. He's saying to me, what's your deal, kid? Better keep Diario's name out your mouth. Take this as your only warning. Why is he gonna eat him?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4583) **Kelly**: I love Tyler.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4584) **Kuihman**: Holy.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4585) **JSTLK**: By the end of this month, Dan and Ethan will break up. No, I don't think so. Although I wonder how Ethan will take this. Wait, isn't that gonna be fantastic content? Isn't Ethan back tomorrow? Doesn't Ethan have to come back tomorrow and discuss this? Wait, am I crazy or is that true? Can anyone, anyone here remember?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4605) **Kuihman**: Brandon what?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4606) **JSTLK**: Sorry. Ethan's back tomorrow, right? H3 podcast back tomorrow? Like he literally has to comment on this.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4612) **Kuihman**: He's like two biggest- no, he's not discussing any drama, right?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4617) **JSTLK**: What? Bro, no drama posted on Insta that he won't talk about any drama tomorrow. Wonder why. I do wonder why. Okay, I think I untimed out ryle. I think he wants to give his side of the story. We can kind of float back into this if he's gonna join.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4631) **Kelly**: What did ryle say? I have no clue. What did ryle say? That was attributed to you, ryle, since you seem to know it was the.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4644) **JSTLK**: Why did you give ryle your address? I already said that.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4647) **Mrow**: Yeah, I already said that.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4648) **JSTLK**: Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4649) **Kelly**: Okay. Is that it?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4652) **JSTLK**: Yeah. Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4654) **Mrow**: I was muted for the rape and death threat when I didn't do him.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4657) **Aiden**: J stock, just make, like, a text channel in your server that allows for that kind of stuff.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4662) **JSTLK**: Yeah, that's actually the solution I was going to give to other people as well. Wizard. We're just gonna have a channel. Spicy chat. It's gonna be a spicy chat, basically.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4671) **Aiden**: Dude, nobody uses spicy chat anymore. Everyone moved to IC chat, like, weeks ago.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4675) **JSTLK**: I don't. I've never even heard of it, so that's hard to believe. In the.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4679) **Mrow**: Can your. Can your spicy chat be called, like, marawi chat or something?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4684) **JSTLK**: I'll consider it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4685) **Aiden**: Do you think it would be funny if Dan can't streams? Circumcision was botched, and instead his name was Dan can't cream.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4693) **Mrow**: I'll see. Everything I said about shell is true. Kelly knows it, too, because shell tells her all her little secrets. A tiny bit. Shell husband is depressed, and because of her.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4702) **Kelly**: Where are you reading this from? I don't see these messages in the chat. Are you just like making fan fiction up on the side?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4709) **Mrow**: No, it's my- I'm streaming as well, sorry.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4712) **JSTLK**: Yeah. Oh, okay. Apparently Ryle is not joining now, so...
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4717) **Kelly**: Bizarre. We've reached the time of the night where it's just like absolute nonsense VC chatting. I'm gonna go to bed.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4725) **JSTLK**: Goodnight.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4726) **Kelly**: Okay.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4726) **JSTLK**: Have a good night, Kelly. Bye. Good night. See ya, bye. Okay, let me see this. Octweet, let's see here. Oh, hold on. Oh, sh*t. Dude, Nick's like everywhere on Twitter. When he would, when Nick is upset.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4742) **Kuihman**: With people, he just, he's like, oh, excuse my spicy screenshot. Oh, excuse my spicy screenshot. I own this.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4749) **JSTLK**: I own you. I own this loser. Pork. Okay. Uh, I mean, yeah, probably, but it's fine. Looking for an editor now. I probably not. I don't know. I, dude, I don't know. People get angry because there's, like, eight different people messaging me, and then I'm trying to run the stream. I have to run the stream, too. I need somebody else they can, like, send to who's not, like, figuring out what's on stream and watching this as well. It's actually not a hard job. I actually do not struggle to do it at all. I'm just lazy. But move Kelly's thing. Oh, as I, as I don't monitor what's on stream, and I leave this up for 10 minutes. PG. God, I need to find a better. I need to, like, actually write custom CSS for Discord reactive or something, because it's actually. It's too annoying. Well, we actually Dan Saltman podcast scheduled for tomorrow is now canceled. Saltman claims Nicholas de Orio is the reason why fighting with the area cooked it was going to put him in an impossible spot. Translation. He doesn't agree with Dan. Still got me blocked.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4808) **Mrow**: Just unblock, bro. You don't have to follow me. Just unblock. Quote tweet this one at Mrow. See Kelly ran. Okay, well, I mean. It is shocking that after I read that last message you sent, she did leave the VC. So I'm gonna put a pin in that, I guess.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4821) **JSTLK**: Go on and debate Dan if you disagree with him. You cooked us on, you got a decent shot to put up a good performance. Willie Mack versus Dan Saltman? Debate on doxxing? I guess. Let's go. Listen, I don't want that, okay? Because if there's one person Dan could probably debate, It's almost certainly Willie. Okay. Interesting. Where were we? What were we doing? We were watching Marauder's Stream and then the boy mindset, Dean, hour 37. I got a lot of stuff left to go tonight, so we're gonna have to make more content.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4854) **Mrow**: Well, I guess final words. I won't threaten women anymore. I'll be nice. And I think going forward we'll just be kind and no more threats, I guess. Right, Jay's talk?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4868) **JSTLK**: I just, I, you know, you clearly don't have the, the socialization required to use the word most conversation. I would just consider dropping it from your vocab off stream entirely.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4880) **Mrow**: Well, I mean, sure. I mean, yeah, I mean, I guess, I guess ultimately. Well, I, well, I didn't say that was Ryle again.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4886) **JSTLK**: No, the shell thing.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4888) **Mrow**: Oh, okay.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4889) **JSTLK**: That's the game, I guess.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4890) **Mrow**: Yeah, I'll just be kind going forward. I think, I think that solves everything pretty much.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4894) **JSTLK**: You don't have to be kind. Also, maybe we'll make some kind of spicy chat variant that will be more of it could be the anti-social area. Shamoo, you were in the waiting room. I have no idea what you're coming on to say, but I obviously am struggling to make content right now, so basically anything.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4910) **Marcus**: Yeah, I was just gonna say, like, how insane. It's just crazy that Dan is trying to push this docs thing. It's actually so awesome because it's, like, the dumbest. He has absolutely nothing. It's just a YouTube channel. and, like, anybody. Nobody. I. I mean, it's crazy that I even tried to push it in the first place. And I guess, like, some people buy it because, I mean, it got a lot of traction, I guess, like, most of his attacks on Hasan get. But there's really nothing there. So it's crazy to me that he, like, blew up this whole thing for that one little narrative, you know? But I.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4946) **JSTLK**: So I don't know that he really blew it up. I don't know that he acted out of line with what he's been doing for the past. I think he acted almost entirely in line with what he's been saying for the past. How the long? Probably six months, right?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4963) **Marcus**: Yeah, but this one's, like, really bad. Like, there's other ones that, like, you have to get some kind of context for. Like, the Denims one that Queman brought up the other night. I actually didn't even know about that either. I didn't realize that they, like, filtered the chat. that one's really bad, but it takes, like, an extra step. Yeah, I didn't know about that. It takes, like, an extra step, you know? There's probably, like, five minutes or something where you have to explain it. The docs one is like. It's literally, like, a YouTube channel name, you know? Like, just on the face of it, it's completely fraudulent.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=4993) **JSTLK**: So, like, it's just crazy he tried to sell that. Yeah, sure. I would say the, like, the other smears you've been pushing against Hassan have been totally welcomed and will still be totally welcomed by everybody. who thinks this is really bad, right? Like, nobody's actually against this because it's absurd. They're, like, against it because- probably because it looks way more insanely hypocritical given the, what do you call it? The- like, just, like, of how it would affect them, essentially. But, like, in terms of just, like, lying openly, like, there's tons of lying openly that'll still be endorsed. Like, do you think anybody's gonna stop doing the Hasan Brothel thing or the Hasan Diddy Party thing? I think that's still gonna be, like, totally all over the place.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5032) **Marcus**: Yeah, I guess so. I mean, the Diddy party thing, I almost feel like people almost meme it or something. Right. It's not like a. Is it like. I mean, do people treat it like a serious allegation? I feel like they're just kind of, like, throwing at the wall with the Diddy party thing.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5047) **JSTLK**: I, like, just remember we're in, like, I realized that we're all right. Like, there's, like, a ton of around us, but this is still, like, probably, like, the. 99th percentile of drama community intelligence or something, right? Like, it's like. Like, realistically, the people on Twitter who are, like, propagating these things and getting other people to believe them are all, like, robots.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5071) **Marcus**: Yeah, I guess that's true.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5072) **JSTLK**: Like. Like, everyone else is Smaggle. Let's get out of here. No, Smaggle's. Smaggle's been, like, on point through this whole thing, as far as I can tell. most of Spangles tweets through, like, a lot of the Ethan Klein stuff have been accurate.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5087) **Marcus**: Yeah, they've been good, but it's just. Dan is, to me, is just, like, an alog, you know, like, just through and through. Like, he'll push false narratives or he'll, like, twist things, you know, just to, like, you know, his enemy or whatever. Like, truth really isn't. Or, like, you know, the total truth isn't really important to him. It's all about just, like, you know. With someone.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5108) **JSTLK**: That is important to him a lot of the time. Jesus, sorry, I got a bunch of sht going on as well. My DMs. Um, I do think you have a good point. I'm sorry I missed what you just said. And I probably have to ask you again. But I do think the point is probably good, though, that you're like, that given it's like, whatever, something crypto YT, like that does just sort of make it, like, obviously laughable on its face. To most people. You add in the fact that the guy's picture, which is the only piece of PII you could argue is on exposed, is in his Twitch profile? Like, it's just there's literally nothing there. So it is just very much so much easier to convince people of this. I think- yeah, to side with Dan on it. Correct.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5155) **Marcus**: To side with Dan on it, you literally have to get on your knees and admit you're his bitch. like, to go along with the narrative he's trying to push. Like, that's how bad it is on the face of it. So it makes sense that people don't want to, you know, push that one. But it is crazy that Dan even tried to do it in the first place. Like, he's.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5174) **JSTLK**: He's nuts. I think he had a different narrative this morning that worked better, which was like, well, you know, I don't really think it's that bad, but, like, it's against the 2s, and you could argue it's against the law, right? Like, he's basically like, well, I don't really care, but, you know, you could.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5191) **Marcus**: Argue, and it's like, well, then what are you doing?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5190) **JSTLK**: Why are you.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5191) **Marcus**: That's not even true either, because it's not confidential. Right. The guys.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5195) **JSTLK**: Yeah, I don't think it's.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5196) **Marcus**: Yeah, the guy's username. It's not because he's offering his username. Right. So in no way is it confidential. So it doesn't break into TOS.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5205) **JSTLK**: So that narrative doesn't work. The profile is not confidential. You could argue his picture is confidential. Right. You can argue that. No, because the. You can't be sure and it's, I mean. well, his profile picture on Twitch is his face.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5219) **Marcus**: Okay. Yeah. And his YouTube channel, he's on camera.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5223) **JSTLK**: Right.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5224) **Marcus**: So that wouldn't make a difference.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5226) **Kuihman**: Right.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5226) **Marcus**: I mean, it wouldn't matter either way because it's a username. As I understand it, Hassan just put the username into YouTube or whatever, and it came up.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5235) **Kuihman**: Right.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5235) **JSTLK**: It's under the same name. Yes. Well, I. He put in the wrong one first, but. Yes. And that's more. That's another thing Dan was going for was, like, the guy who didn't. Who he didn't actually. want to talk to. Uh, that is, sorry, the guy who didn't want to actually insult is probably the guy who got, quote unquote, doxxed here, right? If you wanted to argue that. But then it's, it's like, dude, then I don't even know how you argue intent in that case.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5258) **Marcus**: It's goofy.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5260) **JSTLK**: Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5260) **Marcus**: It's a public-facing social media profile, you know?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5264) **JSTLK**: And, yeah, it's just dumb. Yeah, I, yeah, I'm like, I'm like basically trying to give the steel man of what Dan's arguments are. I don't really agree with them either. But at least it was better today than it was last night.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5273) **Marcus**: Well, he was more detailed, I guess. He listed all this stuff. I don't know. I guess he's just using chat GPT. He brought that up a few times. People use that all the time now. I don't use it very often, but I guess people use it all the time. Seemed like he just did that and then had all these different things, just making chat GPT prompts and then listing that for sources for this law and that law and all this stuff.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5295) **JSTLK**: Yeah, well, it's more in how you filter the questions down, right? You filter the questions down so that you get the responses you want. But as you include more information or withhold certain information, you'd filter it down, so it's pretty obviously the case. We added a few more questions in, and once it was like, oh, these are public profiles. Oh, he has this picture in his profile. Oh, it's like it literally says, oh, these need to be confidential pieces or hidden pieces. If you expose them publicly yourself, then they can't be considered PII, right? If you just announce to the world, this is me, then it's not PII, right? If I signed up to Twitch with my full address as my username, I couldn't go, Whoa, you just used my full address? What the f***? Obviously. Yep. Right. So, yeah. So the question we've all been waiting for is coming now. Where's the takedown video? What, how is the review passed? Are we, how long does it take.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5345) **Marcus**: To review the video? Yeah, I've been like, poking at them or whatever, but yeah, it should be out this week. I don't want to say like, it'll be out this week.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5354) **Kuihman**: It's pretty much done. I'm like, just doing that final bit of audio editing to make sure that.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5360) **JSTLK**: It sounds worse than he does on Discord. true. Geez, bro. I think. I think people, like, freaked the out my Discord tonight. I have to see here. I was just looking. I guess. I guess membership is up. People get, like, so mad about stuff. It's so weird.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5373) **Kuihman**: Mara did nothing wrong.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5380) **JSTLK**: No, Mara's a little. Mara's a little crazy. He's just got to control himself a little bit. I don't need to totally control himself. He's control himself a little bit.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5389) **Kuihman**: Chiefly you're putting out a classic with puke.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5392) **JSTLK**: You get that? See that getting posted a whole lot? The more Kelly complains about the content quality, the more your views have gone up. Canary in the coal mine. Wait, are views going up right now? There's no f***ing way. It's not possible. Bro, what? How?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5407) **Mrow**: Okay, cool.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5408) **JSTLK**: Yeah, you need, you just need to be well socialized to know when you can talk about r*pe, okay? Now, infamously, I am probably not the guy to really even make the judgment on this, so. But I understand it, at least. I don't really get mad when people tell me, no, no, no, you missed your timing here. All right.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5423) **Marcus**: If morale was joking, what's the big deal?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5426) **JSTLK**: You know?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5427) **Marcus**: I don't know.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5428) **JSTLK**: That's how I would look at it. Um, yeah, but the thing is, is like, people feel uncomfortable, even if, people are just joking, right? Like, if you're, if you're doing, like, casual, like, joking racism around people a whole bunch, They could feel uncomfortable and you could be totally sincere and like joking the whole time, right? Like just not, but it can still make people uncomfortable.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5447) **Marcus**: Yeah, but I mean, that's the thing with jokes, right?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5450) **JSTLK**: Who cares if someone's uncomfortable? Um, yeah, but if it's making like a lot of people feel uncomfortable and leave, there's like, there's just a standard decorum that people want. I basically just told my mods, it's.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5462) **Marcus**: Like, yeah, if you think somebody's being like super weird, just time them out. Yeah, it's different for how you wanna run like a server or something, right? Like you might have rules, but just in general, I would say, like, who cares? Someone's joke, you know, and someone gets their feelings or whatever.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5473) **JSTLK**: Yeah. Mra gets special treatment because he is. He comes on stream. That's how it is.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5479) **Marcus**: You were gonna say because he had that girl, right? The n-word.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5483) **JSTLK**: Nope.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5483) **Marcus**: For some reason.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5484) **JSTLK**: @Jstk if Hasan supports doxing too, what's the harm in engaging in team sports with the Dan method? Where does Hasan endorse doxing would be my first question. And then, no, it doesn't. Like, I don't endorse doxing people who have, like, tried to dox me. I'm not gonna go out and, like, try to lead a campaign to get that done. Bad empanada. Hassan has said, I endorse bad empanada doxing people. Really?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5509) **Marcus**: You can't hold people guilty for, like.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5511) **Kuihman**: What other people do.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5512) **Marcus**: At least I don't typically.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5514) **Kuihman**: Hassan just has a specific he has that whole thing of just, like, he's not gonna sit there and fight with you over your methods. if you're directionally on the same side as him, right? That's like his whole thing. He says that, oh, this guy's crazy, and I agree with everything he does, but he's not gonna sit there and go, well, Bannon's such a bad guy because he oxes people he thinks are genocide supporters. He's not gonna focus on that because.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5535) **Marcus**: He'S, you know, got his political narrative.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5538) **JSTLK**: If he wants to maintain. It's kind of crazy if you think, like- the same is a whole bunch of people around, like, the DGG community, too. They're that exact same position. So, like, that's Josiah's position infamously.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5550) **Kuihman**: Like, I'm never gonna go fight with somebody who's in my camp because it's.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5548) **JSTLK**: Just a waste of time.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5549) **Kuihman**: It's a very common political position. It's incredibly common position for people that are very politically motivated.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5555) **JSTLK**: It is.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5555) **Kuihman**: Do not attack people that direction on the same side as you because it's a waste of time and only emboldens the other side.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5560) **JSTLK**: Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5561) **Marcus**: Sorry, I cut your option. Move. Oh, it's all good. I was just gonna say, if people. If Hassan was, like, suing people and doing all the doxing and threatening to sue all these, like, H3 fans, I mean, they would be losing their mind. that's kind of the weird thing about this whole conflict is, like, I feel like it's very. I guess you have bad empanada and all these people doing all this.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5581) **JSTLK**: Right.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5581) **Marcus**: But at least in Hassan's case, like, it feels kind of one side, you know, it's, like, taken up to, like, 11 with the lawsuits and stuff, and it feels very one-sided to me, I guess.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5592) **Kuihman**: I don't know.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5593) **Marcus**: But I don't. I don't really attribute, like, everything those, like, snark reddits do to, like, these streamers, you know? To me, that's just, like, a platform where, like, Anons get on or whatever and say, but I don't know. I feel like if it was the shoes on the other foot, people would be, like, losing their mind over it. Did you see that the, the Houthi guy or the, the alleged Houthi kid was, like, making threats? Dan tweeted it out, but I'm guessing that they'll talk about that. He was like, I'm the only one that can put a stop to this. And it was like a picture of Ethan Klein's Instagram.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5625) **Kuihman**: Yeah, it was.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5625) **JSTLK**: Oh, dude, it totally disavow, but, yes, cataclysmically funny, unfortunately.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5631) **Marcus**: Yeah, it is funny. It's funny to think that, like, people will get really upset about it, too, you know?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5636) **Kuihman**: It's a very, very credible threat of some kid in Yemen saying he's gonna better stop to eat and climb forever.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5643) **Marcus**: The terrorists are after him. The terrorists.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5651) **JSTLK**: Arguing people in my chat right now. Guys, we can do Collins. Guys, you want to come in and argue that. you want to argue the dox thing on Dan's side? You want to argue if, like, any critiques of, like, that was going on tonight? Hop on the stream. If you want, you can pick who you want to debate with. That's fine. I don't need to jump in, but, yeah, I don't know. I don't know how much. Listen, if you're a dgg and you're watching this, you can't believe that all this happened. Okay, you go ahead, you join the stream, hop on. We'll talk it out because realistically, I.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5684) **Kuihman**: Did not plan very much content for tonight, so. Did you even finish the Molina stuff last night?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5688) **JSTLK**: No, I didn't. I was put, I didn't. We got like an hour into that. That was going nowhere for a long time. That was, that was like bad.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5698) **Kuihman**: Because she's a total airhead. Let's be serious here.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5702) **JSTLK**: No, let's not be serious. Not a total airhead. Come on.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5707) **Marcus**: What was Augie's take on this?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5708) **JSTLK**: She's like a hippie. She's like a hippie. She's just like living on her own at her own pace, okay? same thing.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5713) **Kuihman**: She's just chilling.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5714) **JSTLK**: No, it's not the same thing. You're like, you're saying you're negatively loading it, and I'm just like, she's just chilling. She's having a good time. She's living her life. Cleo couldn't imagine. Cleo couldn't imagine just, like, waking up on a given day, not making anybody cry or feel bad about themselves, and then going to sleep and being happy with your life. Okay? He can't imagine what that would feel like. Molina is just like, hey, I want to put positive energy into the world. I know if I put positive energy in the world, it'll come. talking to my life, right? And Queen was just like, if I don't actually try to make somebody harm themselves, I haven't lived. I haven't lived.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5746) **Kuihman**: So true.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5747) **JSTLK**: He just doesn't get it. Those.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5748) **Kuihman**: Those realize blood pumping if I'm not, you know.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5754) **JSTLK**: I get it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5755) **Marcus**: The debate with Willie Mack and Queenman, I think that would be great. It'd be great for Content. They obviously have beef. Like, there's been Twitter stuff going on. Why not do it, you?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5765) **JSTLK**: That would be really good. Oh, somebody in chat, the j-stock gooner Arc guy, he, he definitely said some. Oh, I think he said, like, it's tragic that queenan keeps running from Willy Mac and won't debate him. I don't know if you saw that, but I thought that was really good. If you saw that, if you saw that, I feel like he, he worded it slightly differently. I was like, that might have gotten him.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5788) **Kuihman**: Maybe if he caught it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5790) **Kelly**: That's hot.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5791) **JSTLK**: That's hot. He might have said something like, oh. Didn't Willy Mack debate Hasan? Why is Cleveland running from him if Willy Mack's ready for a challenge or something? Okay, Shamou, you're about to witness a treat though, because I think Cleveland's like arch nemesis might hop on the stream to debate with him. Oh God.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5808) **Kuihman**: Okay. Which one is it? Kangla.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5810) **JSTLK**: I don't know.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5811) **Kuihman**: I actually might fuck him.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5813) **JSTLK**: There are so many people who like actually just get like super bitter and angry and are like, you guys are lying about everything. You guys are making all this stuff up. And then they won't hop on the stream. I just wish they'd hop on the stream. There's got to be a bunch of DGgers who are like watching this and seething silently, but they're too scared to.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5835) **Kuihman**: Hop on the stream. I know it's sad a million times, but it just is so sad that there was like this, you know, the whole, they're meant to be the community of like, back up everything you say and show up on stream and debate it. That was the whole thing for years. And now it's just so made. And the only people that come on to these, like, actually, like, 70 IQ Indians who are like, I don't think that's an Indian.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5857) **JSTLK**: They're Europeans. Lots of Europeans. Lots of Europeans who can't really count to 25. Unfortunate. The Indian, the only Indian guy is the troll. There's one other Indian guy in this community who's very smart, and I don't make fun of him because he's actually very. Very intelligent.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5873) **Marcus**: Wait, that guy's actually Indian? The troll?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5876) **JSTLK**: I thought he was just like- no, no, the troll is not Indian.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5880) **Marcus**: It's a different Indian guy.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5882) **JSTLK**: That's gonna say. Oh, okay. Kathy is not Indian. No, no, not Scribble. I'm not talking about Scribble.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5889) **Kuihman**: Dude, KIngler said he's gonna hop on.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5892) **JSTLK**: And then he just peaced out. I heard Hunter Young's getting on off to work, right?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5896) **Kuihman**: Yeah, I doubt it. I doubt it. But I don't think he was really.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5900) **JSTLK**: Disagreeing with us, to be honest. I think he's been at work for like 13 months. uh-huh -huh youh know who that guy, that one guy was in here again, the man of the mines guy. I want that guy to join so badly. He was in here seething last night and he was in here seething again today. I would love for that guy to join. That would be cool. He's the guy, remember he just comes in and like gets, he just doesn't know anything. He's the guy we got, we like totally dog walked when we were watching Rellie maybe right after this stuff popped off. I got banned from DGGsub for posting Indians packing into a train like sardines after Scribble about the Indian birth rate on Destiny's stream instantly became an anti-fan okay, it's Queen's position on the Ethan Klein Denim chat messages.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5942) **Kuihman**: Just scroll back and watch it. Leader totally lied about it. I don't know. I spoke about it like three times.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5948) **JSTLK**: He completely lied about it. Blake. Clarifications are wanting, I think. I think the clarifications have been wanting. Although I do think it's possible that Ethan had a good clarification at some point.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5958) **Kuihman**: I think when he actually did, when he did his statement, where he was basically like, kneeling to Denims, clarifying his defamation. I think he might have done it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5965) **JSTLK**: Then, but, yeah, there was an actual real clarification from Ethan at some point. So, yeah, I'm positive.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5974) **Marcus**: It was pretty effective. I mean, I watched quite a bit of this stuff, and I, like I said, I didn't know that they had filtered the chat messages at all, you know?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5981) **Kuihman**: And so many people didn't until, like.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=5983) **JSTLK**: Very recently, which is weird, because I. I know I brought it up on stream. I know I brought it up when it, like, got released. I, like, looked at it and I was like, oh, this is clearly, like, and then I saw that, like, no con. There's no context change here. I'm like, that's. But I I feel like people in my community did. Like, most of them had to. Yeah.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6003) **Marcus**: So many things. So many things were built off of that, too, right? Like, a lot of the justification for the lawsuit threats or the current ones that are ongoing were was the CPS stuff, right? Oh, well, he came for the kids. And in that case, you, like, built it off of a lie. You know, if you're filtering those messages and that's not really what was going on, like, a lot of this stuff would be kind of built on deception, you know, built on crazy.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6030) **JSTLK**: Oh, DGG did the same thing early on to Ethan saying Hasan's chat was being anti-Semitic but they were fake. To be fair, that was one guy, Mimi DGG chat, who, like, HTML edited a chat message. and he got permabanned for it. It was the McAfee antivirus guy. We all remember that one, okay? We all remember that one. Okay, Kingler's here. I'm gonna drag him in, see what he wants. See what he wants to criticize, see what he wants to say. Kingler 92, you're on the stream. We're listening, we're learning. What's up? What's your criticism today?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6063) **Mrow**: What do you want to complain about today? Oh, maybe you don't want me on that. I'm just curious what your principal disagreement.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6070) **JSTLK**: With Dan's methods are.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6069) **Mrow**: Why are they bad?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6071) **JSTLK**: He's lying. States he will lie.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6077) **Mrow**: Oh, okay.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6078) **Kuihman**: Well, that's it.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6079) **Mrow**: I guess I'll go. No, I just mean, like, if it's in service to a goal that you might agree with, Dan has a different principle than you.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6088) **JSTLK**: Why?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6088) **Kuihman**: Why?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6089) **Mrow**: Why criticize him for doing something that he thinks is okay? Isn't that kind of like. your guys new outlook, if a person.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6098) **Kuihman**: Believes from their own perspective that they.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6102) **Mrow**: Are in the right, then it's hard to criticize them.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6107) **Kuihman**: No, no, you just have to engage with, you have to engage, yeah, and you have to engage with a justification, right? You have to take apart why their argument doesn't work if they're justifying something they do. I felt like we're doing that.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6119) **Mrow**: Okay, I thought we talked a few months ago about how you were trying.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6125) **JSTLK**: To be a little bit more charitable to Hassan's side of the internet.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6128) **Kuihman**: And one of the reasons was because.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6131) **Mrow**: You were trying to factor in their perspective and their decision making.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6137) **Kuihman**: Yeah, so you have to factor that in and engage with that and pick that apart if you want to condemn what's happening, right? If you want to say you're wrong for doing this, you have to explain why they're wrong for doing it. You can't just say, oh, my terrorist, my terrorist endlessly and assume everyone's gonna go along with you.
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6159) **Mrow**: Do you agree with Dan that there's a problem at Twitch that needs to be addressed?
+- [link](https://youtube.com/watch?v=r2BPaoIgeRA&t=6164) **Kuihman**: Nope. Why would there be a problem that needs to be addressed? There's a private company making decisions about the type of content they want on their platform. They've decided they want lefty content. There's plenty of platforms where you can be a right winger that are perfectly just as profitable as Twitch, if not more. I don't see it. There's a massive injustice or ratio happening here.

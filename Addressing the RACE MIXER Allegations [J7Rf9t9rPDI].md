@@ -1,0 +1,94 @@
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=0) **Mrow**: Listen, for whatever reasoning she had for leaking the contents of the sexual messages between us is her own, all right? I'll never understand it, okay? I'll never understand it. I'll never understand. All right, this music's getting loud. Listen, a lot of mentioning of black, N-word white colonizing. There's a lot here, okay? There's a lot we could choose from. Given I get, like, a hundred bucks, I'll leak, like. I'll leak, like, a message that I've.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=40) **Marcus**: Sent or something more like, I think I'd rather meet you in a. In a. In, like, a public setting, like, almost like a VidCon setting or something first.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=48) **Mrow**: You're afraid.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=49) **Marcus**: So I can get a good thing to you. Yeah, I'm a little. There's a little fear in me.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=62) **Mrow**: I will say the allegations are completely true. The allegations are completely true. And I will leak my messages for like fifty dollars. I'll like one message for fifty dollars where the n-word is said or something. okay, I need money. Or, like, a hundred dollars. I'll do a hundred. A hundred. We. I I gave Marcus some of them. Can I see if I can call Marcus? Let's see. I'll see about calling this Marcus guy. Also, I don't. I'm using a different pair of headphones, so the audio might be a little. so I'm not sure. Oh, okay, we gotta go, like, to negative 15. Surely. This good? It's not good. What about negative 20? That is still incredibly loud for you guys.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=138) **C**: I think.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=138) **Mrow**: Let me play, like, a YouTube video. One message for 40 all for 100. I'm not leaking at all. I would do individual messages.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=159) **C**: What?
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=160) **Mrow**: Okay, there's this Aiden VOD.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=162) **Aiden**: Just, like, setting yourself up for some kind of allegation. There is adult content posts in your server.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=166) **C**: You.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=166) **Mrow**: You will get accused of having a growing Community. Are there any other.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=170) **Aiden**: Miners in your server besides these two?
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=172) **Marcus**: That's the only two I know.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=173) **Aiden**: How old is Jewel?
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=175) **Marcus**: I think that person is 15.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=177) **Aiden**: Another one is it the compressor?
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=179) **Mrow**: Might not be.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=180) **Marcus**: Is there another one?
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=181) **Aiden**: How many miners are in the server, bro?
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=183) **Marcus**: I don't know.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=185) **Mrow**: He doesn't know.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=187) **Aiden**: Okay, so apparently there's some drama, okay, that I'm hearing, and I need everyone's opinion on this. So there's a streamer called Marcus or March baby. I've been in his chat sometimes when he's covered some stuff pertaining to me. I have no problems with the guy, but there's a person that is frequent in. In commentary.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=207) **Mrow**: That's good. Thank you. Brain rot logs for the one membership, the one gifted membership. Not sure why it didn't play through or didn't show on screen. I don't even know. I don't even know. Okay, so, Dr. Octavon, thank you for the five Canadian smile. I appreciate it. I appreciate it. So the allegations are completely true. I have typed the n-word and my. Listen, my. My racism has gotten out of hand. Okay? My racism has gotten completely out of hand. I need some, like, wholesome music. Wholesome music. Wow.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=271) **C**: W.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=277) **Mrow**: Play sad music. We can do sad music. Sad music. I can teach you how to get through this. I think I need to become a Christian, Max. I've been talking to Max a lot about this. I've been. I've been talking to Max a lot about becoming a Christian. I've been thinking of becoming a Christian. Okay. I have been considering becoming a Christian. this will save me, I think, or something. All right. I don't even know what there is to say. I don't even know what there is to say. Some asked me to call her the n-word and I did. And somehow I'm the bad guy. Somehow I'm the bad guy. Some girl wrote the n-word on her tits and somehow I'm the bad guy. Somehow I'm the bad guy. Perry then decides to leak this all for seemingly no reason. And somehow I'm the bad guy. I'm the bad guy somehow. Somehow. I don't know. Listen, for whatever, whatever reasoning she had for leaking the. The contents of the sexual messages between us is her own. All right? I'll never understand it. Okay? I'll never understand it. I'll never understand. All right, this music's getting loud.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=390) **C**: And.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=390) **Mrow**: To be clear, I'm not going to be leaking. the. The exchanges. But I will for money. I will for money leak some of the messages that I've sent, because I think. I think that's funny. I think that's funny. Okay? I think that's funny. How much money are we talking? Let me. Let's take a look.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=418) **C**: Let me.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=418) **Mrow**: Let me go to the. The archive that I have. Let me see. Let me see. Let me see what we have. Smile. Listen, a lot of mentioning.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=443) **C**: Of.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=444) **Mrow**: Of. Of black, N-word white colonizing. There's a lot here, okay? There's a lot we could choose from. Given I get, like, a hundred bucks, I'll leak, like, I'll leak, like, a message that I've sent or something. I'll find a good one. All right? I'll find a good one. Colonize.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=469) **C**: Yeah.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=476) **Mrow**: There's also a conversation about scrambled eggs. I started talking to her about scrambled eggs and how I really like scrambled eggs. This goes on for a while.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=504) **C**: Yeah.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=504) **Mrow**: All right.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=506) **C**: Yeah.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=506) **Mrow**: I mean, it's true again. I mean, her reasoning for leaking this is. Is her own.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=512) **Marcus**: All right.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=513) **Mrow**: And I can't exactly prove that it was, like, reciprocated and consensual without leaking the. The full-on exchange. so I don't. I'm being put in, like, a rough position. All right? But I can. I can say with a significant air of certainty that it was 1000 consensual and reciprocated. And I think outside of, like, leaking my own side for money, I think that's the extent of what. What I'm gonna say. Unless she starts, like, lying about it, you know, if she starts lying about it. obviously, at that point, I'd probably consider, you know, defending myself in a more significant one. However, looking stuff seems like a bad idea. I mean, like, literally the only time I would leak, like, full on exchanges is. If it was, like, a small lie, I probably wouldn't care. If it was a lie that was, like, damaging, I would probably. Which I. I can't even think of what a damaging lie in this scenario would be. But at that point, I would probably consider, like, you know, leaking something to prove my innocence or whatever. but outside of that, I'll, like, leak messages that I've sent and keep her side ambiguous, because I think. I think that's funny, and I think that's reasonable because it's messages that I've sent. So obviously, you know, I can, you know, control what is being sent or what is being seen, I should say. see if we hit, like, a hundred bucks. If I get, like, a hundred dollars in donos today, I'll find, like, a really funny message. I'll put it up on screen, but past that, I probably am not gonna leak anything else. You know, I'm not listening, guys. Listen. Asus in chat, Shelby in chat, Louie in chat, Ali Khan in chat, Tony in chat, Zach in chat, Keller vetla in chat, resi in chat, all my.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=654) **C**: All my best friends.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=654) **Mrow**: I'm not- I'm not exactly happy. Happen. I'm not exactly happy. Okay. I feel like no one wants to see that shit. I mean, it's fairly funny. It has, like, the n-word. I'm trying to find a way to make light of a situation, all right? And make it kind of funny, all right?
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=676) **C**: Oh.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=678) **Marcus**: Hey, what- what did you call me for?
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=682) **Mrow**: I forgot, actually. What was I saying when I called you?
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=693) **Marcus**: I picked up Pottery with my wife.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=696) **Mrow**: Oh, yeah, I. I showed you my side of the DMs, right? Yeah.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=701) **C**: Yeah.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=704) **Mrow**: Describe. Describe what you've seen. Don't like, don't leak it word for word. You use innuendo and metaphor.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=712) **Marcus**: You use the specific word to describe a group of people a lot.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=718) **Mrow**: Repeat that. You were cutting out.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=719) **Marcus**: Sorry. Oh, sorry. You used a word that describes like a specific group of people a lot. You used the, it starts with an N. and you. I mean, it was. It was a lot of. I don't know how to describe it. It's just, you know, it was a lot of. I kind of, you know, how do I put this? You owned her, you know?
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=750) **Mrow**: Oh, this is like. This is like, who's that black rapper? The one, the Tyler, the. It's like Tyler the Creator. What you said has two different meanings. You owned her.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=762) **C**: Right?
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=763) **Mrow**: There's two different ways you could interpret what you just said. You're like, yeah, you're like Tyler the Created. Created.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=771) **C**: Yeah. Yeah.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=776) **Mrow**: Marcus, do you, am I a bad person?
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=782) **Marcus**: Um, no, no, you're just, you're just weird. I don't know. You're just. You're just weird. That's about it.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=793) **Mrow**: We were. So, like, last year, we were talking about meeting up, right? Like, having a play date. Or is that off the table, or is that still.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=803) **Marcus**: If I had the. If it's not off the table, I guess if I had money, if you ever wanted to do something, I guess I wouldn't even be opposed to it.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=814) **Mrow**: Are you more open to it now after you know what I am or are you like?
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=819) **Marcus**: I think I'm more open to doing it. I'm a little bit less open to doing it, but I don't know how to explain this. It'd have to be in a setting where meeting up would make sense. Previously, I was like, oh, I love this guy. He's awesome. Now it's more like, I think I'd rather meet you in a, in a, in, like, a public setting, like, almost like a VidCon setting or something first.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=845) **Mrow**: You're afraid I'm going to get something to you?
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=847) **Marcus**: Yeah, I'm a little. There's a little fear in me.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=851) **Mrow**: Okay. Okay.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=853) **Marcus**: You're bigger than me.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=855) **Mrow**: I'm. I'm like, I could hurt you.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=857) **Marcus**: You could. You could.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=862) **C**: Like.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=863) **Mrow**: Like, if you. If we. How long would we have to, like. Know each other in real life for you to introduce me to your parents, I guess, after, you know.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=873) **Marcus**: Oh, my God. I have to be, I'd have to meet you a few times before I could even do that.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=882) **Mrow**: Let's say we, like, live together. How long, how long do we live together before I meet your, meet your.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=887) **Marcus**: Papa and- I guess, like, I guess if we lived together, like, maybe a full year would be fine. Like a full year of living together. I don't, I wouldn't care. if you met my parents. Well, they'd probably meet, you know, because they'd come over, you know, they'd come over to my house or something. So you'd be there.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=904) **Mrow**: You'd dump. Hey, stay in your room. Don't come out until they're gone.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=909) **Marcus**: Well, I mean, I'm not going to make you stay in your room. That's fucked up.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=913) **Mrow**: No, you'd make me leave. You'd make me go to go to Jimmy John's.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=916) **Marcus**: Yeah, go run errands or do something. Yeah, that's what I would do.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=921) **Mrow**: All right, well, I mean, I still love you. I don't think you're weird at all, despite that's okay. You can think I'm weird. Just despite everything.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=934) **Marcus**: Despite everything, yeah.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=936) **Mrow**: I've known you. We've known each other for like three years, Marcus.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=940) **Marcus**: We have, yeah. We have.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=945) **Mrow**: I mean, I guess that's it. Anything else? I don't know if there's much more for us to talk about.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=950) **Marcus**: Since we're since we're being so open today. I'll be I'll be honest, you know that you know that new movie that just came out? It's called K-pop demon hunters yeah, my.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=961) **Mrow**: Roommate was watching that yesterday or like I watched it. I watched it She was in and.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=968) **Marcus**: And I'll admit it wasn't that bad.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=971) **Mrow**: My roommate was watching she was in a you know what a snuggie is?
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=976) **Marcus**: Yeah, I know what a Snuggie is. That's an oldie.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=979) **Mrow**: Yeah, that's old. She was in a Snuggie and she was watching K-pop Demon Hunters. I went out of the living room and I saw this. I saw my roommate in a Snuggie watching K-pop Demon Hunters with her big mug. I don't know what they're called. I don't know what they're called.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=995) **Marcus**: That's actually kind of crazy because I made hot cocoa for me and my wife and we sat down and watched K-pop Demon Hunters.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=1004) **Mrow**: Jesus. Jesus, this is not looking good.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=1009) **Marcus**: Sorry, I don't know if that was too much.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=1011) **Mrow**: Do you know what a cuck queen is?
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=1016) **Marcus**: No, is that like- no, I was.
+- [link](youtube.com/watch?v=J7Rf9t9rPDI&t=1020) **Mrow**: Just- I'm just- I was just- I gotta go, okay? Jesus.
